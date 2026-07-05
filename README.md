@@ -1,5 +1,8 @@
 ARTFIGHT: https://artfight.net/~MyNameIsSneeze
 
+<img width="100" height="57" alt="tumblr_81f13d6e48c4f1d21dbbed539c6579c8_3003a98d_100" src="https://github.com/user-attachments/assets/15194ec6-81f6-4520-a79d-c792d10259b9" />
+
+
 🌟✨ Hey, I'm Sneeze! ✨🌟
 
 🌙💜 25 • Taken • She/Her • They/Them 💜🌙
