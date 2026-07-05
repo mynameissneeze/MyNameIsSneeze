@@ -249,7 +249,8 @@ Zalinki • Lisa Frank • Zach Hadel • Chris O'Neill • Amy Brown
 
 Life Is Strange • Scott Pilgrim
 
-## 🛍️🌸 Favorite Brands 🌸🛍️
+## <img width="20" height="20" alt="KsxA2NJ" src="https://github.com/user-attachments/assets/ffb6a343-41bc-4cb2-a6ba-fccaf38395f6" /> Favorite Brands <img width="20" height="20" alt="Km6xqC4" src="https://github.com/user-attachments/assets/6268af4f-819e-4a2a-8929-f1e69cd9ea55" /> 
+
 
 Sanrio • Squishmallows • Arizona Tea • Starbucks • Sugarbunnies
 
