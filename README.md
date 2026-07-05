@@ -2,7 +2,15 @@
 
 <img width="97" height="98" alt="tumblr_6e738a5eba545c1544589db0fa0a2f3a_186a76fc_100" src="https://github.com/user-attachments/assets/41e56b15-a5fa-4451-b84f-6c93e0e4bd11" /> 
 
-Scroll down to see my Gif collection
+<div align="center">
+
+
+# Scroll down to see my Gif/Blinkie collection 
+
+
+</div>
+<img width="150" height="20" alt="tumblr_31e10898bb344c6f0c7043d6e0fd4ffc_06630a2a_250" src="https://github.com/user-attachments/assets/b6f95b16-55e4-43c7-acf0-b9458d726a3b" /> 
+
 
 
 
@@ -23,14 +31,22 @@ https://artfight.net/~MyNameIsSneeze
 <img width="184" height="240" alt="tumblr_958e615e5126700be627af8b16fa97fe_13dc9f8f_250" src="https://github.com/user-attachments/assets/c7f2ed9b-67e0-44a7-bb1a-b8208245ca7a" /> <img width="468" height="60" alt="tumblr_12342d34c673899a328a6ed5b29fa314_e3ac842d_500" src="https://github.com/user-attachments/assets/19790c59-202e-49d9-86a7-5fd0610b7046" /> <img width="184" height="240" alt="tumblr_b50ff649c4e931a33473a54dc9ce8bd7_cbad83d1_250" src="https://github.com/user-attachments/assets/48a9e2bd-55bf-4629-b2f7-36356b3df9a2" />
 
 
+<div align="center">
 
+# 🌸✨ Hey, I'm Sneeze! ✨🌸
 
-✨ Hey, I'm Sneeze! ✨
+₊˚⊹♡ Welcome to my little corner of the internet! ♡⊹˚₊
+
+</div>
 
  <div align="center">
 
 
 </div>
+
+<img width="540" height="32" alt="tumblr_52b4c107a413fda41692d64a186f53ed_50f43d7e_540" src="https://github.com/user-attachments/assets/0722659f-a665-4b4c-887d-4a0cda0ff027" />
+
+
 
 <details>
 <summary>⭐See my most commonly used PonyTown skins!⭐:</summary>
@@ -75,7 +91,7 @@ https://artfight.net/~MyNameIsSneeze
 
 </details>
 
-</div>
+<div align="center">
 
 <br>
  25 • Taken • She/Her • They/Them 
@@ -404,3 +420,5 @@ Starbby • Luminfur
 </details>
 
 </div>
+
+<div align="center">
