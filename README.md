@@ -1,11 +1,10 @@
 <div align="center">
 
 <img width="97" height="98" alt="tumblr_6e738a5eba545c1544589db0fa0a2f3a_186a76fc_100" src="https://github.com/user-attachments/assets/41e56b15-a5fa-4451-b84f-6c93e0e4bd11" /> 
-
 <div align="center">
 
 
-# Scroll down to see my Gif/Blinkie collection 
+## Scroll down to see my Gif/Blinkie collection 
 
 
 </div>
@@ -133,7 +132,7 @@ https://artfight.net/~MyNameIsSneeze
 
 <img width="150" height="20" alt="223979qnh6dwmabq" src="https://github.com/user-attachments/assets/f81531f2-5136-40ea-8c36-dd7dfc01e797" /> <img width="150" height="20" alt="aereea (6)" src="https://github.com/user-attachments/assets/1406a629-0d90-4545-bf28-2239e2729b29" />
 
-
+✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧
 
 🎮 **Discord:** SneezeIsHere
 
@@ -180,6 +179,9 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 # <img width="20" height="20" alt="star99" src="https://github.com/user-attachments/assets/9c55968c-6dff-4a03-985f-378888bc64c7" /> ALL ABOUT ME <img width="20" height="20" alt="star99" src="https://github.com/user-attachments/assets/7bd34b51-9550-4a4c-8a3c-240ec8bfb1be" />
 
+
+ ( ⸝⸝´꒳`⸝⸝)
+ 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## 🎬🍿 Favorite Films 🍿🎬
@@ -360,15 +362,26 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 
 <br><br>
 
+
+-ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 # Misc
 
 <img width="70" height="60" alt="tumblr_3a1010da86c68c3d4c4b727cdaf90103_0d4ad389_75" src="https://github.com/user-attachments/assets/6f74d8a0-d9d0-4ce1-9ad9-7e395b69837e" /> <img width="136" height="136" alt="tumblr_e6f51cdb79f53479a81669a8013d117f_d48fd4ff_250" src="https://github.com/user-attachments/assets/04223acd-c454-495f-b07a-f8b9b46313bc" /> <img width="90" height="90" alt="tumblr_076c534cee64fc9835c0fcd6a4c0dc53_b7ca815c_100" src="https://github.com/user-attachments/assets/b06bd79d-fd9b-46b1-8a86-8efed7ed2c84" /> <img width="60" height="60" alt="tumblr_a91f1ad2b33dbfd92a5b679509552d78_02ea9082_75" src="https://github.com/user-attachments/assets/47fef935-2b7e-4d9d-963e-955a7da394b8" /> <img width="133" height="133" alt="tumblr_91d35af063cdf46bd7fe875cce67ff4c_f0eb8c02_250" src="https://github.com/user-attachments/assets/9c538663-3dfa-4888-8540-20c0acff37c2" /> <img width="100" height="100" alt="tumblr_cddde76324eb7f848a12d60a624bb0b3_6201e661_100" src="https://github.com/user-attachments/assets/bda4a764-175a-4b2d-a1a8-0ca6b4489119" /> <img width="60" height="73" alt="tumblr_72026168bc5c3bd12ba33a3d31d43e5d_29772e96_75" src="https://github.com/user-attachments/assets/a9ff417f-f072-4287-8944-bb8a1f07cffe" /> <img width="60" height="73" alt="tumblr_159e6257c4d3b67ccf6abcc6a15da71b_7e558aa0_75" src="https://github.com/user-attachments/assets/18f960cd-60d9-4115-8b05-bda7850a154e" /> <img width="61" height="74" alt="tumblr_b9d0b7e4cacf3a1a9e069ebd7c259f70_be79f03d_75" src="https://github.com/user-attachments/assets/38904831-cf1e-460e-9556-ae37afa48996" /> <img width="100" height="100" alt="tumblr_pyns0qkDNw1xmlb72o1_100" src="https://github.com/user-attachments/assets/9893ab6d-dc81-4a30-9d31-e3c2e379b2ae" /> <img width="99" height="124" alt="tumblr_lg6itmL6Yk1qfu6o4o1_100" src="https://github.com/user-attachments/assets/9b95223c-a81e-4555-a905-3a799dcf3a30" /> 
 
+
+-ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 # Blinkies
 
-<img width="99" height="56" alt="black_pearl_cookie_stamp_by_megumar_dfks60q" src="https://github.com/user-attachments/assets/338adc42-cd0b-4c7d-9dd7-3ea3ac10323f" /> <img width="99" height="56" alt="poison_mushroom_cookie_stamp_by_megumar_deumhsp" src="https://github.com/user-attachments/assets/801bc173-9028-45f3-a219-6f1cbd5f3b11" /> <img width="99" height="56" alt="6f15h6" src="https://github.com/user-attachments/assets/7622195e-0ecc-484d-b99c-17e8382b6aef" /> 
+<img width="99" height="56" alt="black_pearl_cookie_stamp_by_megumar_dfks60q" src="https://github.com/user-attachments/assets/338adc42-cd0b-4c7d-9dd7-3ea3ac10323f" /> <img width="99" height="56" alt="poison_mushroom_cookie_stamp_by_megumar_deumhsp" src="https://github.com/user-attachments/assets/801bc173-9028-45f3-a219-6f1cbd5f3b11" /> <img width="99" height="56" alt="6f15h6" src="https://github.com/user-attachments/assets/7622195e-0ecc-484d-b99c-17e8382b6aef" /> <img width="99" height="56" alt="catwithflowers" src="https://github.com/user-attachments/assets/9044ac5c-cb25-4f9a-a5a2-3b6c8886656d" />
 
-# GIFS
+
+-ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
+# Smaller Blinkies
+
+<img width="300" height="40" alt="0280-pinkalien" src="https://github.com/user-attachments/assets/d5d6fa9b-4e07-4660-8196-84bd5b359e84" />
+
+
+-ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
  
 </summary>
 
