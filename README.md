@@ -376,6 +376,27 @@ Starbby • Luminfur
 ⭐ Hyperfixations ⭐
 
 
+<details>
+<summary>🎀 FAVICONS 🎀</summary>
+
+<br>
+
+<div align="center">
+
+<br><br>
+
+
+</div>
+
+<img width="20" height="20" alt="bunny47" src="https://github.com/user-attachments/assets/a2bdd9d0-669e-4499-85a6-c7356271ed1a" />
+
+
+</details>
+
+</div>
+
+<div align="center">
+
 
 
 </div>
