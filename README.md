@@ -47,7 +47,7 @@ https://artfight.net/~MyNameIsSneeze
 <img width="540" height="32" alt="tumblr_52b4c107a413fda41692d64a186f53ed_50f43d7e_540" src="https://github.com/user-attachments/assets/0722659f-a665-4b4c-887d-4a0cda0ff027" />
 
 <details>
-<summary> <img width="20" height="20" alt="apple3" src="https://github.com/user-attachments/assets/fbcd104f-6615-4e80-81c0-10b0d088a830" /> See my most commonly used PonyTown skins!<img width="20" height="20" alt="wtAThJF" src="https://github.com/user-attachments/assets/d2c1e21c-aba5-4dfa-b98c-3490b498393b" />
+ <summary> <img width="20" height="20" alt="apple3" src="https://github.com/user-attachments/assets/fbcd104f-6615-4e80-81c0-10b0d088a830" /> See my most commonly used PonyTown skins!<img width="20" height="20" alt="wtAThJF" src="https://github.com/user-attachments/assets/d2c1e21c-aba5-4dfa-b98c-3490b498393b" />
 :</summary>
 
 
@@ -57,9 +57,6 @@ https://artfight.net/~MyNameIsSneeze
 <img width="236" height="244" alt="tumblr_7bf57a43da37e88dfeff08cbe8081091_36555f5a_250" src="https://github.com/user-attachments/assets/69cc83b8-264e-4bba-9d82-cdd080aa7c0b" />
 
 <img width="240" height="228" alt="tumblr_659f8ac4b8f631d9211eb4973f50b058_93596b2f_250" src="https://github.com/user-attachments/assets/f89cc244-6282-495a-b842-e3b39eb7274a" />
-
-<img width="192" height="240" alt="tumblr_c31ff2a0622f8120fa8b9f637b10d816_5660e5b4_250" src="https://github.com<img width="68" height="106" alt="0b9f53e6daf61e20cb62e928a3161b8d" src="https://github.com/user-attachments/assets/5dfc4792-8bd0-42b9-81f9-bd72eb97e9d3" />
-/user-attachments/assets/1da344b5-38bd-457b-a151-83fe1dd65a62" />
 
 <img width="224" height="216" alt="tumblr_1d77c54fdf5c698509c44bab93eaf89b_c7846511_250" src="https://github.com/user-attachments/assets/5eea0202-6cdf-4763-99d1-e00cf0a0508d" />
 
