@@ -11,9 +11,14 @@ https://artfight.net/~MyNameIsSneeze
 <img width="99" height="56" alt="m6eczo" src="https://github.com/user-attachments/assets/96ed7429-caf5-41f0-8db0-f5cdf29d852d" /> <img width="88" height="31" alt="pothead" src="https://github.com/user-attachments/assets/7f8801cf-3e9b-403b-ad79-9d813f061675" /> <img width="99" height="56" alt="shy__but_happy_to_talk_by_crownstamps_d7odi2r" src="https://github.com/user-attachments/assets/e81f9281-e9d3-446f-9a00-d4ee55b84d20" />
 
 
+<img width="184" height="240" alt="tumblr_958e615e5126700be627af8b16fa97fe_13dc9f8f_250" src="https://github.com/user-attachments/assets/c7f2ed9b-67e0-44a7-bb1a-b8208245ca7a" /> <img width="468" height="60" alt="tumblr_12342d34c673899a328a6ed5b29fa314_e3ac842d_500" src="https://github.com/user-attachments/assets/19790c59-202e-49d9-86a7-5fd0610b7046" /> <img width="184" height="240" alt="tumblr_b50ff649c4e931a33473a54dc9ce8bd7_cbad83d1_250" src="https://github.com/user-attachments/assets/48a9e2bd-55bf-4629-b2f7-36356b3df9a2" />
+
+
+
+
 ✨ Hey, I'm Sneeze! ✨
 
-🌙💜 <div align="center">
+ <div align="center">
 
 ### 🌟 ARTFIGHT 🌟
 https://artfight.net/~MyNameIsSneeze
@@ -32,7 +37,10 @@ https://artfight.net/~MyNameIsSneeze
 
 🎬 I love introducing people to new movies and TV shows, especially animation, anime, indie cartoons, and horror films.
 
-🎨 **Art Fight:** MyNameIsSneeze
+<img width="88" height="31" alt="furby" src="https://github.com/user-attachments/assets/5caeecd5-a09e-4c16-b98f-58bd1c6c4594" /> <img width="99" height="56" alt="127a8df72318d333d11ab24018ca46a1" src="https://github.com/user-attachments/assets/0876c57c-a311-4d4c-ad0b-fc7451c3e511" /> <img width="88" height="31" alt="7e9ab237a908760de13954b5bbcf5409" src="https://github.com/user-attachments/assets/17a822bb-d11e-4eb6-bc1a-6ffcc7684b8c" />
+
+
+
 
 ━━━━━━━━━━━━━━━━━━━━
 
@@ -50,6 +58,13 @@ https://artfight.net/~MyNameIsSneeze
 https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 ━━━━━━━━━━━━━━━━━━━━
+
+<img width="99" height="56" alt="49f4af6ffce296ffe91f7e3c67f5634c" src="https://github.com/user-attachments/assets/0b03ab78-851f-414f-aaa0-dfb18b562ae6" /> <img width="101" height="57" alt="konata2" src="https://github.com/user-attachments/assets/394340af-af28-4436-92bd-45f18ec31aa7" />
+
+<img width="150" height="20" alt="wafflehouse" src="https://github.com/user-attachments/assets/39c5026f-e076-4a79-9e34-81a44bbeddc0" /> <img width="150" height="20" alt="981803a2" src="https://github.com/user-attachments/assets/9b1d6259-3909-4bf4-940f-f31f8249beec" /> <img width="150" height="20" alt="mlpgirl" src="https://github.com/user-attachments/assets/d1c3e3e4-2698-4767-b795-84ad08901cbe" />
+
+
+
 
 # 💌 Let's Be Friends!
 
