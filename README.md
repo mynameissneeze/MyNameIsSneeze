@@ -249,7 +249,7 @@ Zalinki • Lisa Frank • Zach Hadel • Chris O'Neill • Amy Brown
 
 Life Is Strange • Scott Pilgrim
 
-## <img width="20" height="20" alt="KsxA2NJ" src="https://github.com/user-attachments/assets/ffb6a343-41bc-4cb2-a6ba-fccaf38395f6" /> Favorite Brands <img width="20" height="20" alt="Km6xqC4" src="https://github.com/user-attachments/assets/6268af4f-819e-4a2a-8929-f1e69cd9ea55" /> 
+##   <img width="20" height="20" alt="2rpoJ9c" src="https://github.com/user-attachments/assets/ed55ebc2-1026-4585-803f-3f84995e39ee" /> Favorite Brands <img width="20" height="20" alt="pSATbKG" src="https://github.com/user-attachments/assets/dc434305-cf2b-4aaf-9b5d-f08d5a3909e2" /> 
 
 
 Sanrio • Squishmallows • Arizona Tea • Starbucks • Sugarbunnies
@@ -325,7 +325,15 @@ Lemon
 
 </div>
 
-<img width="20" height="20" alt="bunny47" src="https://github.com/user-attachments/assets/a2bdd9d0-669e-4499-85a6-c7356271ed1a" /> <img width="20" height="20" alt="plant5" src="https://github.com/user-attachments/assets/b30e51b0-4dd4-481a-ac13-c30d046cfd9f" /> <img width="18" height="18" alt="fish5" src="https://github.com/user-attachments/assets/90b1cbc2-68b8-4179-8b4f-e462d8c3baf5" />  <img width="20" height="20" alt="pig" src="https://github.com/user-attachments/assets/7ea56f4c-64c5-48fd-9b63-432c98d596ef" /> <img width="20" height="20" alt="beetle4" src="https://github.com/user-attachments/assets/8402003c-7d21-40f4-ac2d-8df6b6868ff2" /> <img width="20" height="20" alt="tv12" src="https://github.com/user-attachments/assets/a1408288-78c7-489a-913f-c1b70d49577d" /> <img width="20" height="20" alt="ds4" src="https://github.com/user-attachments/assets/0bbb32ef-1199-4d13-bc39-644eed429707" /> <img width="20" height="20" alt="milk3" src="https://github.com/user-attachments/assets/a0015f24-0f30-4c68-9257-9008a13b30dd" /> <img width="20" height="20" alt="bowl28" src="https://github.com/user-attachments/assets/79971d61-0195-4f68-be1a-0a19b6753abe" /> <img width="20" height="20" alt="rice3" src="https://github.com/user-attachments/assets/1e7cd0ba-9e1d-40f2-b868-909cb22e4cab" /> <img width="20" height="20" alt="beetle7" src="https://github.com/user-attachments/assets/8c6f7874-f4c2-460d-be56-de7835e51920" /> <img width="20" height="20" alt="beetle3" src="https://github.com/user-attachments/assets/aa56f311-51b2-4b46-b8c8-d248d328f7b2" />
+<img width="20" height="20" alt="bunny47" src="https://github.com/user-attachments/assets/a2bdd9d0-669e-4499-85a6-c7356271ed1a" /> <img width="20" height="20" alt="plant5" src="https://github.com/user-attachments/assets/b30e51b0-4dd4-481a-ac13-c30d046cfd9f" /> <img width="18" height="18" alt="fish5" src="https://github.com/user-attachments/assets/90b1cbc2-68b8-4179-8b4f-e462d8c3baf5" />  <img width="20" height="20" alt="pig" src="https://github.com/user-attachments/assets/7ea56f4c-64c5-48fd-9b63-432c98d596ef" /> <img width="20" height="20" alt="beetle4" src="https://github.com/user-attachments/assets/8402003c-7d21-40f4-ac2d-8df6b6868ff2" /> <img width="20" height="20" alt="tv12" src="https://github.com/user-attachments/assets/a1408288-78c7-489a-913f-c1b70d49577d" /> <img width="20" height="20" alt="ds4" src="https://github.com/user-attachments/assets/0bbb32ef-1199-4d13-bc39-644eed429707" /> <img width="20" height="20" alt="milk3" src="https://github.com/user-attachments/assets/a0015f24-0f30-4c68-9257-9008a13b30dd" /> <img width="20" height="20" alt="bowl28" src="https://github.com/user-attachments/assets/79971d61-0195-4f68-be1a-0a19b6753abe" /> <img width="20" height="20" alt="rice3" src="https://github.com/user-attachments/assets/1e7cd0ba-9e1d-40f2-b868-909cb22e4cab" /> <img width="20" height="20" alt="beetle7" src="https://github.com/user-attachments/assets/8c6f7874-f4c2-460d-be56-de7835e51920" /> <img width="20" height="20" alt="beetle3" src="https://github.com/user-attachments/assets/aa56f311-51b2-4b46-b8c8-d248d328f7b2" /> <img width="20" height="20" alt="PyO8c0P" src="https://github.com/user-attachments/assets/8e5cc4ed-a614-4118-b892-8d2a94f1cb52" /> <img width="20" height="20" alt="fAjtZrI" src="https://github.com/user-attachments/assets/95b2723a-e50c-41fd-b8df-19f4672dcd23" /> <img width="20" height="20" alt="vLB1efm" src="https://github.com/user-attachments/assets/e602c89a-b1be-4282-b8eb-0baefc397aef" /> <img width="20" height="20" alt="rb8Xhaz" src="https://github.com/user-attachments/assets/be490430-eba3-40bf-bd07-7db57dbd6ed6" /> <img width="20" height="20" alt="5GrL8yx" src="https://github.com/user-attachments/assets/094d104d-d05c-4cce-9d4e-6fc9552edfff" /> <img width="20" height="20" alt="Gkn77tc" src="https://github.com/user-attachments/assets/82aa5226-4bb9-4489-8a59-aa1255bbf0af" /> <img width="20" height="20" alt="1ZwSXaS" src="https://github.com/user-attachments/assets/7f4dfa7d-9041-46bd-934e-f1270e40e811" /> <img width="20" height="20" alt="mZ6AqYW" src="https://github.com/user-attachments/assets/5e4fd5d5-6db4-422f-af2e-74bf96added3" /> 
+
+
+
+
+
+
+
+
 
 
 
