@@ -135,12 +135,6 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 ━━━━━━━━━━━━━━━━━━━━
 
-<img width="99" height="56" alt="49f4af6ffce296ffe91f7e3c67f5634c" src="https://github.com/user-attachments/assets/0b03ab78-851f-414f-aaa0-dfb18b562ae6" /> <img width="101" height="57" alt="konata2" src="https://github.com/user-attachments/assets/394340af-af28-4436-92bd-45f18ec31aa7" />
-
-<img width="150" height="20" alt="wafflehouse" src="https://github.com/user-attachments/assets/39c5026f-e076-4a79-9e34-81a44bbeddc0" /> <img width="150" height="20" alt="981803a2" src="https://github.com/user-attachments/assets/9b1d6259-3909-4bf4-940f-f31f8249beec" /> <img width="150" height="20" alt="mlpgirl" src="https://github.com/user-attachments/assets/d1c3e3e4-2698-4767-b795-84ad08901cbe" />
-
-
-
 
 # 💌 Let's Be Friends!
 
@@ -210,6 +204,9 @@ Coraline • Alice in Wonderland • Spirited Away • Ponyo • Pom Poko • On
 
 <img width="57" height="51" alt="tumblr_eca496e4e28c6523a16b2641b6d2c656_7a897480_75" src="https://github.com/user-attachments/assets/3e70fdbf-e4d5-47f0-9f9e-da12788144df" />
 
+<img width="100" height="57" alt="tumblr_1ba80809ef3f61b6190a3ed05a4edb47_f2c5ce32_250" src="https://github.com/user-attachments/assets/87dcb80d-93cc-4f33-b442-84e4f2c7062d" /> <img width="101" height="57" alt="konata2" src="https://github.com/user-attachments/assets/394340af-af28-4436-92bd-45f18ec31aa7" />
+
+
 
 ## 📺💫 Favorite Shows 💫📺
 
@@ -227,12 +224,12 @@ xxxHolic • Durarara!! • Osomatsu-san • Deadman Wonderland • Mob Psycho 1
 
 Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by Daylight • The Classrooms • Five Nights at Freddy's • Grounded • The Forest • Lethal Company • Life Is Strange • Resident Evil • Saints Row • Raft • Stardew Valley • Webfishing • Fran Bow • Content Warning • 7 Days to Die • Bigfoot • Roblox • Skyrim • Yandere Simulator • Silent Hill • Hello Kitty Island Adventure • Kletka • Hitman • Degrees of Lewdity • Alice: Madness Returns • What Remains of Edith Finch • Reka • Schedule 1 • Wizard101 • Wobbledogs
 
+## 🍓🧋 Favorite Foods & Drinks 🧋🍓
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-<img width="360" height="360" alt="tumblr_fb4f0ad7a075c2de12f0be1c92135950_6e8feeeb_400" src="https://github.com/user-attachments/assets/f70228fc-2532-478d-86e9-d4fb231f094d" />
 
+<img width="99" height="56" alt="49f4af6ffce296ffe91f7e3c67f5634c" src="https://github.com/user-attachments/assets/0b03ab78-851f-414f-aaa0-dfb18b562ae6" /> <img width="99" height="56" alt="tumblr_cc48125e658008761381e8e0862d5a9a_f90860e0_250" src="https://github.com/user-attachments/assets/c6bb88e4-460f-4924-b7cc-1b0cd3663ae8" />
 
-## 🍓🧋 Favorite Foods & Drinks 🧋🍓
 
 ⚡ Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries)
 
@@ -261,6 +258,8 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 🧋 Boba Tea
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+
+<img width="360" height="360" alt="tumblr_fb4f0ad7a075c2de12f0be1c92135950_6e8feeeb_400" src="https://github.com/user-attachments/assets/f70228fc-2532-478d-86e9-d4fb231f094d" />
 
 ## 🎶🖤 Favorite Music / Artists 🖤🎶
 
@@ -416,6 +415,18 @@ Starbby • Luminfur
 <img width="133" height="133" alt="tumblr_91d35af063cdf46bd7fe875cce67ff4c_f0eb8c02_250" src="https://github.com/user-attachments/assets/9c538663-3dfa-4888-8540-20c0acff37c2" />
 
 <img width="100" height="100" alt="tumblr_cddde76324eb7f848a12d60a624bb0b3_6201e661_100" src="https://github.com/user-attachments/assets/bda4a764-175a-4b2d-a1a8-0ca6b4489119" />
+
+<img width="60" height="73" alt="tumblr_72026168bc5c3bd12ba33a3d31d43e5d_29772e96_75" src="https://github.com/user-attachments/assets/a9ff417f-f072-4287-8944-bb8a1f07cffe" />
+
+<img width="60" height="73" alt="tumblr_159e6257c4d3b67ccf6abcc6a15da71b_7e558aa0_75" src="https://github.com/user-attachments/assets/18f960cd-60d9-4115-8b05-bda7850a154e" />
+
+<img width="61" height="74" alt="tumblr_b9d0b7e4cacf3a1a9e069ebd7c259f70_be79f03d_75" src="https://github.com/user-attachments/assets/38904831-cf1e-460e-9556-ae37afa48996" />
+
+<img width="100" height="100" alt="tumblr_pyns0qkDNw1xmlb72o1_100" src="https://github.com/user-attachments/assets/9893ab6d-dc81-4a30-9d31-e3c2e379b2ae" />
+
+<img width="99" height="124" alt="tumblr_lg6itmL6Yk1qfu6o4o1_100" src="https://github.com/user-attachments/assets/9b95223c-a81e-4555-a905-3a799dcf3a30" />
+
+
 
 </details>
 
