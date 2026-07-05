@@ -134,6 +134,10 @@ https://artfight.net/~MyNameIsSneeze
 
 ✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧
 
+<img width="100" height="50" alt="talk_to_me__d_by_silvvy_d34668b" src="https://github.com/user-attachments/assets/5c21a496-d6a9-47bb-8200-1d47c0d0b04e" /> <img width="99" height="56" alt="id86oi" src="https://github.com/user-attachments/assets/7aefb153-423c-44f1-82cc-588e4e0c1e5d" />
+
+
+
 🎮 **Discord:** SneezeIsHere
 
 **I enjoy talking about** <img width="20" height="20" alt="pvbzJMc" src="https://github.com/user-attachments/assets/afd7ab61-f783-4ddd-9573-a9e0fe4918f7" />
@@ -290,8 +294,7 @@ Starbby • Luminfur
 
 ## <img width="20" height="20" alt="hyLdyyr" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7" /> Aesthetics <img width="20" height="20" alt="hyLdyyr" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7" />
 
- Harajuku
- Frutiger Aero
+ Harajuku • Frutiger Aero • Webcore
 
 ## <img width="20" height="20" alt="S89ceBR" src="https://github.com/user-attachments/assets/752f14ca-5544-408c-a55a-734a732b3425" /> Phobias <img width="20" height="20" alt="S89ceBR" src="https://github.com/user-attachments/assets/752f14ca-5544-408c-a55a-734a732b3425" />
 
@@ -372,13 +375,12 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 # Blinkies
 
-<img width="99" height="56" alt="black_pearl_cookie_stamp_by_megumar_dfks60q" src="https://github.com/user-attachments/assets/338adc42-cd0b-4c7d-9dd7-3ea3ac10323f" /> <img width="99" height="56" alt="poison_mushroom_cookie_stamp_by_megumar_deumhsp" src="https://github.com/user-attachments/assets/801bc173-9028-45f3-a219-6f1cbd5f3b11" /> <img width="99" height="56" alt="6f15h6" src="https://github.com/user-attachments/assets/7622195e-0ecc-484d-b99c-17e8382b6aef" /> <img width="99" height="56" alt="catwithflowers" src="https://github.com/user-attachments/assets/9044ac5c-cb25-4f9a-a5a2-3b6c8886656d" />
-
+<img width="99" height="56" alt="black_pearl_cookie_stamp_by_megumar_dfks60q" src="https://github.com/user-attachments/assets/338adc42-cd0b-4c7d-9dd7-3ea3ac10323f" /> <img width="99" height="56" alt="poison_mushroom_cookie_stamp_by_megumar_deumhsp" src="https://github.com/user-attachments/assets/801bc173-9028-45f3-a219-6f1cbd5f3b11" /> <img width="99" height="56" alt="6f15h6" src="https://github.com/user-attachments/assets/7622195e-0ecc-484d-b99c-17e8382b6aef" /> <img width="99" height="56" alt="catwithflowers" src="https://github.com/user-attachments/assets/9044ac5c-cb25-4f9a-a5a2-3b6c8886656d" /> <img width="99" height="56" alt="mn3myj" src="https://github.com/user-attachments/assets/92055fbb-e232-46a3-b004-b7a7b96e6b99" /> <img width="99" height="56" alt="z29a0n" src="https://github.com/user-attachments/assets/a84e1aee-bd65-4605-a414-19bbd50af606" /> <img width="99" height="56" alt="nvdxuv" src="https://github.com/user-attachments/assets/13f152e5-9476-4b4a-b4e8-ef9562dc286a" /> <img width="99" height="56" alt="vh26o1" src="https://github.com/user-attachments/assets/3d8a554d-2b22-4498-ad3c-c21827658c3c" /> <img width="99" height="56" alt="this_is_how_i_feel_by_mr_stamp_d1333rt" src="https://github.com/user-attachments/assets/d1e15ea1-221e-4573-9f0b-2f4454c8da77" /> 
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 # Smaller Blinkies
 
-<img width="300" height="40" alt="0280-pinkalien" src="https://github.com/user-attachments/assets/d5d6fa9b-4e07-4660-8196-84bd5b359e84" />
+<img width="300" height="40" alt="0280-pinkalien" src="https://github.com/user-attachments/assets/d5d6fa9b-4e07-4660-8196-84bd5b359e84" /> <img width="88" height="31" alt="u239b4" src="https://github.com/user-attachments/assets/676a27f6-48b2-437e-9b7f-8d6d2f6289fe" /> <img width="88" height="31" alt="strawberry" src="https://github.com/user-attachments/assets/152ba778-81bb-4426-acf7-13a633b7f7b1" /> <img width="88" height="31" alt="reshirii" src="https://github.com/user-attachments/assets/6b9d1c37-412d-410b-874e-95821b0d3e99" /> <img width="88" height="31" alt="imhigh" src="https://github.com/user-attachments/assets/0644a81f-f791-4c97-8dfa-daf741882622" /> 
 
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
