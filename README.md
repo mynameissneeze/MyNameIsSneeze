@@ -51,7 +51,7 @@ https://artfight.net/~MyNameIsSneeze
 
 
 <details>
-<summary>⭐See my most commonly used PonyTown skins!⭐:</summary>
+<summary> <img width="20" height="20" alt="apple3" src="https://github.com/user-attachments/assets/fbcd104f-6615-4e80-81c0-10b0d088a830" /> See my most commonly used PonyTown skins!⭐:</summary>
 
 <br>
 
@@ -102,20 +102,20 @@ https://artfight.net/~MyNameIsSneeze
 
 
 
-🍄🎨 Digital Artist • Character Creator • Cartoon Lover 🎨🍄
+<img width="20" height="20" alt="pencil6" src="https://github.com/user-attachments/assets/c101e02d-5d99-4a60-a769-082e5864b853" /> Digital Artist • Character Creator • Cartoon Lover <img width="20" height="20" alt="book8" src="https://github.com/user-attachments/assets/8e36f0ec-6add-484a-86e2-b2e144f3eb9c" />
 
-✨ **Commissions:** OPEN  
-💌 **DMs:** ALWAYS OPEN
 
-🌟 My username is **MyNameIsSneeze** on pretty much everything!
+<img width="20" height="20" alt="palette" src="https://github.com/user-attachments/assets/b07d8b1f-7807-469e-8954-3e1ea27fb16c" /> **Commissions:** OPEN  
 
-🦋 I can be a little quiet when meeting new people, but once I get comfortable I open up a lot.
+<img width="20" height="20" alt="phone11" src="https://github.com/user-attachments/assets/7240478c-1977-4d5c-a2f5-04106e7f2bd0" />**DMs:** ALWAYS OPEN
 
-🎬 I love introducing people to new movies and TV shows, especially animation, anime, indie cartoons, and horror films.
+<img width="20" height="20" alt="star87" src="https://github.com/user-attachments/assets/d9f53134-b061-499e-a67b-e9625cab752b" /> My username is **MyNameIsSneeze** on pretty much everything!
+
+<img width="32" height="29" alt="butterfly24" src="https://github.com/user-attachments/assets/5c579676-9f90-4f8e-a8ae-b95f0ccfd955" /> I can be a little quiet when meeting new people, but once I get comfortable I open up a lot.
+
+<img width="20" height="20" alt="tv3" src="https://github.com/user-attachments/assets/885eacc9-b5fb-4967-bdf8-1fa164316215" /> I love introducing people to new movies and TV shows, especially animation, anime, indie cartoons, and horror films.
 
 <img width="88" height="31" alt="furby" src="https://github.com/user-attachments/assets/5caeecd5-a09e-4c16-b98f-58bd1c6c4594" /> <img width="99" height="56" alt="127a8df72318d333d11ab24018ca46a1" src="https://github.com/user-attachments/assets/0876c57c-a311-4d4c-ad0b-fc7451c3e511" /> <img width="88" height="31" alt="7e9ab237a908760de13954b5bbcf5409" src="https://github.com/user-attachments/assets/17a822bb-d11e-4eb6-bc1a-6ffcc7684b8c" />
-
-
 
 
 ━━━━━━━━━━━━━━━━━━━━
@@ -137,8 +137,7 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 ━━━━━━━━━━━━━━━━━━━━
 
-
-# 💌 Let's Be Friends!
+#  Let's Be Friends!
 
 🌸 Feel free to reach out anytime!
 
@@ -146,19 +145,7 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 💜 **I enjoy talking about**
 
-Animation
-
-Anime
-
-Horror Movies
-
-Art & Character Design
-
-Indie Games
-
-Cartoons
-
-Cute & Weird Aesthetics
+Animation • Anime • Horror Movies • Art & Character Design • Indie Games • Cartoons • Cute & Weird Aesthetics
 
 ━━━━━━━━━━━━━━━━━━━━
 
@@ -182,21 +169,6 @@ Cute & Weird Aesthetics
 
 # <img width="20" height="20" alt="star99" src="https://github.com/user-attachments/assets/9c55968c-6dff-4a03-985f-378888bc64c7" /> ALL ABOUT ME <img width="20" height="20" alt="star99" src="https://github.com/user-attachments/assets/7bd34b51-9550-4a4c-8a3c-240ec8bfb1be" />
 
-
-## 🌟 Special Interests 🌟
-
-👻 AHHH! Real Monsters
-
-🦄 My Little Pony
-
-🎀 Hello Kitty
-
-🍄 Mushrooms
-
-🐇 Rabbits
-
-⭐ Stars
-
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## 🎬🍿 Favorite Films 🍿🎬
@@ -211,30 +183,30 @@ Coraline • Alice in Wonderland • Spirited Away • Ponyo • Pom Poko • On
 
 
 
-## 📺💫 Favorite Shows 💫📺
+## <img width="20" height="20" alt="tv" src="https://github.com/user-attachments/assets/63f05612-e961-44fb-b458-7c6b69b3a71b" /> Favorite Shows 
 
 Adventure Time • Bee and PuppyCat • Gravity Falls • Futurama • Scott Pilgrim • My Little Pony • Moomin • South Park • Final Space • Aggretsuko • AHHH! Real Monsters • The Cuphead Show • Code Lyoko • Steven Universe • Star vs. the Forces of Evil • OK K.O.! • Infinity Train • Tuca & Bertie • The Amazing Digital Circus • Home Movies • China, IL • Clone High • Big Top Burger • MTV Downtown
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-## 🎌💥 Favorite Anime 💥🎌
+## <img width="20" height="20" alt="tv7" src="https://github.com/user-attachments/assets/cb6a6f56-9181-4853-8e7d-8aad99dfb290" /> Favorite Anime 
 
 xxxHolic • Durarara!! • Osomatsu-san • Deadman Wonderland • Mob Psycho 100 • Ouran High School Host Club • Soul Eater • Sgt. Frog • Lucky Star • Kakegurui • Nana • FLCL • Panty & Stocking • Bleach • Princess Tutu • Princess Jellyfish • Migi & Dali • Squid Girl • Life Lessons with Uramichi Oniisan • Nichijou • Dandadan
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-## 🎮🕹️ Favorite Games 🕹️🎮
+## <img width="20" height="20" alt="console5" src="https://github.com/user-attachments/assets/c6c51af7-a43f-4caf-8c72-e454e2509605" /> Favorite Games 
 
 Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by Daylight • The Classrooms • Five Nights at Freddy's • Grounded • The Forest • Lethal Company • Life Is Strange • Resident Evil • Saints Row • Raft • Stardew Valley • Webfishing • Fran Bow • Content Warning • 7 Days to Die • Bigfoot • Roblox • Skyrim • Yandere Simulator • Silent Hill • Hello Kitty Island Adventure • Kletka • Hitman • Degrees of Lewdity • Alice: Madness Returns • What Remains of Edith Finch • Reka • Schedule 1 • Wizard101 • Wobbledogs
 
-## 🍓🧋 Favorite Foods & Drinks 🧋🍓
+## <img width="20" height="20" alt="juice2" src="https://github.com/user-attachments/assets/2b0c8754-707c-4f2a-90c8-4ec4a1ab50d8" /> Favorite Foods & Drinks 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 
 <img width="99" height="56" alt="49f4af6ffce296ffe91f7e3c67f5634c" src="https://github.com/user-attachments/assets/0b03ab78-851f-414f-aaa0-dfb18b562ae6" /> <img width="99" height="56" alt="tumblr_cc48125e658008761381e8e0862d5a9a_f90860e0_250" src="https://github.com/user-attachments/assets/c6bb88e4-460f-4924-b7cc-1b0cd3663ae8" />
 
 
-⚡ Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries)
+<img width="20" height="20" alt="storm3" src="https://github.com/user-attachments/assets/41b76715-d5f5-47cb-847c-a768c5861ebe" /> Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries)
 
 <img width="20" height="20" alt="cake32" src="https://github.com/user-attachments/assets/470332e6-f14b-4ece-98a2-4c6a47db2cf1" /> Pancakes
 
@@ -285,24 +257,7 @@ Sanrio • Squishmallows • Arizona Tea • Starbucks • Sugarbunnies
 Wild Spirit Driftwood Perfume • Chlorine • Smoke • Fire
 
 ## 🐛🦋 Favorite Bugs 🦋🐛
-
-🌙 Luna Moth
-
-🦋 Chinese Luna Moth
-
-☁️ Woolly Aphid
-
-✨ Chrysolina cerealis
-
-🌸 Cherry Blossom Isopod
-
-🍁 Rosy Maple Moth
-
-🦗 Orchid Mantis
-
-🦗 Metallyticus Mantis
-
-🕷️ Jumping Spiders
+ Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Jumping Spiders
 
 ## ⚡🐾 Favorite Pokémon 🐾⚡
 
@@ -318,41 +273,26 @@ Starbby • Luminfur
 
 ## 🎨🌈 Aesthetics 🌈🎨
 
-🩷 Harajuku
-
-💙 Frutiger Aero
+ Harajuku
+ Frutiger Aero
 
 ## 😰⚠️ Phobias ⚠️😰
 
-🌊 Thalassophobia
-
-🕳️ Trypophobia
-
-⛰️ Acrophobia
-
-👁️ Scopophobia
-
-🏢 Megalophobia
+ Thalassophobia • Trypophobia • Acrophobia • Scopophobia • Megalophobia
 
 ## 🏝️ Animal Crossing
 
 🐦 Favorite Villager: **Pierce**
 
-## ☕ Starbucks Order
+## <img width="20" height="20" alt="coffee22" src="https://github.com/user-attachments/assets/dc9b342b-6a61-4095-b016-64d53fd9fea8" /> Starbucks Order
+ Trenta Iced Coffee
+ Extra Sweet Cream
+ Four Pumps White Mocha
+ One Shot Espresso
 
-🧋 Trenta Iced Coffee
-
-✨ Extra Sweet Cream
-
-🤍 Four Pumps White Mocha
-
-⚡ One Shot Espresso
-
-🍋 Passion Iced Tea Lemonade
-
-❄️ No Ice
-
-🍋 Extra Lemon
+Passion Iced Tea Lemonade
+No Ice Extra 
+Lemon
 
 <img width="101" height="72" alt="tumblr_92fa73c4478041cea3c30b92d7bb2f69_c1a5ee75_250" src="https://github.com/user-attachments/assets/6b54a5ed-8713-4a11-a5c8-71feaf54956b" />
 
@@ -365,19 +305,11 @@ Starbby • Luminfur
 
 ──────────── ✦ ────────────
 
-
 🍓 GIF CORNER 🍓
-
 
 ──────────── ✦ ────────────
 
-
-⭐ Blinkies ⭐
-⭐ Pixels ⭐
-⭐ Stamps ⭐
-⭐ Funny GIFs ⭐
-⭐ Hyperfixations ⭐
-
+⭐ Blinkies • Pixels • Stamps • Funny GIFs • Hyperfixations ⭐
 
 <details>
 <summary>🎀 FAVICONS 🎀</summary>
@@ -391,10 +323,7 @@ Starbby • Luminfur
 
 </div>
 
-<img width="20" height="20" alt="bunny47" src="https://github.com/user-attachments/assets/a2bdd9d0-669e-4499-85a6-c7356271ed1a" /> <img width="20" height="20" alt="plant5" src="https://github.com/user-attachments/assets/b30e51b0-4dd4-481a-ac13-c30d046cfd9f" /> <img width="18" height="18" alt="fish5" src="https://github.com/user-attachments/assets/90b1cbc2-68b8-4179-8b4f-e462d8c3baf5" />  <img width="20" height="20" alt="pig" src="https://github.com/user-attachments/assets/7ea56f4c-64c5-48fd-9b63-432c98d596ef" /> <img width="20" height="20" alt="beetle4" src="https://github.com/user-attachments/assets/8402003c-7d21-40f4-ac2d-8df6b6868ff2" /> 
-
-
-
+<img width="20" height="20" alt="bunny47" src="https://github.com/user-attachments/assets/a2bdd9d0-669e-4499-85a6-c7356271ed1a" /> <img width="20" height="20" alt="plant5" src="https://github.com/user-attachments/assets/b30e51b0-4dd4-481a-ac13-c30d046cfd9f" /> <img width="18" height="18" alt="fish5" src="https://github.com/user-attachments/assets/90b1cbc2-68b8-4179-8b4f-e462d8c3baf5" />  <img width="20" height="20" alt="pig" src="https://github.com/user-attachments/assets/7ea56f4c-64c5-48fd-9b63-432c98d596ef" /> <img width="20" height="20" alt="beetle4" src="https://github.com/user-attachments/assets/8402003c-7d21-40f4-ac2d-8df6b6868ff2" /> <img width="20" height="20" alt="tv12" src="https://github.com/user-attachments/assets/a1408288-78c7-489a-913f-c1b70d49577d" /> <img width="20" height="20" alt="ds4" src="https://github.com/user-attachments/assets/0bbb32ef-1199-4d13-bc39-644eed429707" /> <img width="20" height="20" alt="milk3" src="https://github.com/user-attachments/assets/a0015f24-0f30-4c68-9257-9008a13b30dd" /> <img width="20" height="20" alt="bowl28" src="https://github.com/user-attachments/assets/79971d61-0195-4f68-be1a-0a19b6753abe" /> <img width="20" height="20" alt="rice3" src="https://github.com/user-attachments/assets/1e7cd0ba-9e1d-40f2-b868-909cb22e4cab" /> <img width="20" height="20" alt="beetle7" src="https://github.com/user-attachments/assets/8c6f7874-f4c2-460d-be56-de7835e51920" /> <img width="20" height="20" alt="beetle3" src="https://github.com/user-attachments/assets/aa56f311-51b2-4b46-b8c8-d248d328f7b2" />
 
 
 
