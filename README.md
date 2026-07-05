@@ -95,8 +95,10 @@ https://artfight.net/~MyNameIsSneeze
 
 <div align="center">
 
+
 <br>
  25 • Taken • She/Her • They/Them 
+
 
  <img width="53" height="19" alt="tumblr_b0f0812c3fe5e3893a9c7c27d071daf5_45eff816_75" src="https://github.com/user-attachments/assets/ec4d7e41-34c3-4484-b72c-9e80a2af3728" /> <img width="88" height="18" alt="tumblr_620339d01e534fbe9c69e254adf56a27_5e64093c_100" src="https://github.com/user-attachments/assets/c54faa45-9726-4f73-bdaa-24abf241d431" />
 
