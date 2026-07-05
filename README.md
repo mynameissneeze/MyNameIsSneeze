@@ -14,7 +14,8 @@
 
 
 
-### 🌟 ARTFIGHT 🌟
+### <img width="20" height="20" alt="star119" src="https://github.com/user-attachments/assets/168f001a-41a0-4ad5-9b52-53ee99a6aaba" /> ARTFIGHT <img width="20" height="20" alt="star119" src="https://github.com/user-attachments/assets/edb21f66-25fa-4ef4-8ac7-f8475b114d1d" />
+
 https://artfight.net/~MyNameIsSneeze
 
 <img width="250" height="150" alt="tumblr_0f45449880e2eb4f5a6e69dbc04175a1_a824b6f8_250" src="https://github.com/user-attachments/assets/b23ebfaf-241c-4afc-a3d7-d75589494d5c" />
@@ -33,7 +34,8 @@ https://artfight.net/~MyNameIsSneeze
 
 <div align="center">
 
-# 🌸✨ Hey, I'm Sneeze! ✨🌸
+# <img width="20" height="20" alt="star21" src="https://github.com/user-attachments/assets/d9f5a77c-f008-419c-9f76-7ee5e57a58fe" /> 🌸 Hey, I'm Sneeze!🌸<img width="20" height="20" alt="star21" src="https://github.com/user-attachments/assets/33900094-644b-426a-8032-c60590212c93" />
+
 
 ₊˚⊹♡ Welcome to my little corner of the internet! ♡⊹˚₊
 
@@ -120,7 +122,7 @@ https://artfight.net/~MyNameIsSneeze
 
 <img width="90" height="90" alt="tumblr_f105062e73fd7c557ed24cb9fd96e393_3f30bbb9_100" src="https://github.com/user-attachments/assets/b35a4910-36ef-413c-b409-9ef75d876891" />
 
-# 🎧 Currently Listening To
+# <img width="20" height="20" alt="disc" src="https://github.com/user-attachments/assets/a597e1ba-18e8-4374-a9b0-7242f47694a1" /> Currently Listening To 
 
 ### 𝗡𝗼𝘄 𝗣𝗹𝗮𝘆𝗶𝗻𝗴
 
@@ -178,7 +180,8 @@ Cute & Weird Aesthetics
 
 <img width="141" height="95" alt="tumblr_62a2c5caf2864327bae29a2f95ebcdbf_a29d3394_250" src="https://github.com/user-attachments/assets/ac951b13-b7b9-45e9-8eaa-4a33d094522e" />
 
-# 🌟✨ ALL ABOUT ME ✨🌟
+# <img width="20" height="20" alt="star99" src="https://github.com/user-attachments/assets/9c55968c-6dff-4a03-985f-378888bc64c7" /> ALL ABOUT ME <img width="20" height="20" alt="star99" src="https://github.com/user-attachments/assets/7bd34b51-9550-4a4c-8a3c-240ec8bfb1be" />
+
 
 ## 🌟 Special Interests 🌟
 
@@ -233,29 +236,29 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 ⚡ Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries)
 
-🥞 Pancakes
+<img width="20" height="20" alt="cake32" src="https://github.com/user-attachments/assets/470332e6-f14b-4ece-98a2-4c6a47db2cf1" /> Pancakes
 
-🍜 Buldak Ramen
+<img width="20" height="20" alt="bowl19" src="https://github.com/user-attachments/assets/d7ca5895-2efc-45b2-84c5-7b6e72427c82" /> Buldak Ramen
 
-🍵 Arizona Tea (Herbal Tonic, Green Tea, Half & Half)
+<img width="20" height="20" alt="tea2" src="https://github.com/user-attachments/assets/3d0c944a-151d-443e-b23f-9f2842fe23d1" /> Arizona Tea (Herbal Tonic, Green Tea, Half & Half)
 
-🧁 Muffins
+<img width="20" height="20" alt="cupcake7" src="https://github.com/user-attachments/assets/9792819e-adc3-409f-9a9e-006b255d7568" /> Muffins
 
-🍵 Matcha
+<img width="20" height="20" alt="cake12" src="https://github.com/user-attachments/assets/d09300b7-eac3-457c-b195-5dee8b1e6349" /> Matcha
 
-🍞 French Toast
+<img width="20" height="20" alt="bread7" src="https://github.com/user-attachments/assets/9a9125fb-a253-4172-bcff-959a7fde8ce5" /> French Toast
 
-🍋 Aussie Lemonade
+<img width="20" height="20" alt="citrus" src="https://github.com/user-attachments/assets/475c5b75-108c-472d-bdba-e6489505f571" /> Aussie Lemonade
 
-🍩 Donuts
+<img width="20" height="20" alt="donut2" src="https://github.com/user-attachments/assets/9bad393b-7db0-47a3-bf97-b0272c466aa5" /> Donuts
 
-☕ Iced Coffee
+<img width="20" height="20" alt="coffee17" src="https://github.com/user-attachments/assets/f2f38056-9b7c-42a5-9c3c-ac977e5bbb01" /> Iced Coffee
 
-🍵 Tea
+<img width="20" height="20" alt="tea" src="https://github.com/user-attachments/assets/174716a7-b7c2-4e44-92cc-930acc53ca95" /> Tea
 
-🍋 Lemon & Lime
+<img width="20" height="20" alt="citrus5" src="https://github.com/user-attachments/assets/5dea1775-df94-4e34-a066-37ccea0371a0" />  Lemon & Lime
 
-🧋 Boba Tea
+<img width="20" height="20" alt="bubble" src="https://github.com/user-attachments/assets/d33c7c99-3338-4157-997e-0555a2db5523" /> Boba Tea
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
@@ -388,7 +391,11 @@ Starbby • Luminfur
 
 </div>
 
-<img width="20" height="20" alt="bunny47" src="https://github.com/user-attachments/assets/a2bdd9d0-669e-4499-85a6-c7356271ed1a" />
+<img width="20" height="20" alt="bunny47" src="https://github.com/user-attachments/assets/a2bdd9d0-669e-4499-85a6-c7356271ed1a" /> <img width="20" height="20" alt="plant5" src="https://github.com/user-attachments/assets/b30e51b0-4dd4-481a-ac13-c30d046cfd9f" /> <img width="18" height="18" alt="fish5" src="https://github.com/user-attachments/assets/90b1cbc2-68b8-4179-8b4f-e462d8c3baf5" />  <img width="20" height="20" alt="pig" src="https://github.com/user-attachments/assets/7ea56f4c-64c5-48fd-9b63-432c98d596ef" /> <img width="20" height="20" alt="beetle4" src="https://github.com/user-attachments/assets/8402003c-7d21-40f4-ac2d-8df6b6868ff2" /> 
+
+
+
+
 
 
 </details>
