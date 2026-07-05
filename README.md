@@ -457,15 +457,19 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 # Gifs
 
-<br><br>
-<img width="540" height="303" alt="tumblr_dddb3ee97dc1e248079b3b9ff7295a5f_85cd1e8c_540" src="https://github.com/user-attachments/assets/7dbfe67f-1fe9-405f-b7c9-b8cf2dc48412" /> 
-<img width="20" height="20" alt="rdKJC7b" src="https://github.com/user-attachments/assets/e97720c8-14f6-4c46-81e7-d8f273d08dc9" /> 
-<img width="500" height="210" alt="tumblr_84891f6b5ec5c5661ac5b3b722bfc65a_fa6733cf_500" src="https://github.com/user-attachments/assets/42c2d7df-7a7d-49af-be80-e34f93166c9d" /> 
-<img width="540" height="405" alt="tumblr_58ecc53f6d9e9884ab373528ded15c0c_22d1204b_540" src="https://github.com/user-attachments/assets/efff3ed7-7967-4346-9ef3-0ba8fbe53922" /> 
-<img width="400" height="167" alt="tumblr_bf43c21784adcf3b45e874b4681a7fba_f68ab5a3_400" src="https://github.com/user-attachments/assets/36c2e009-8750-4fd7-9ddc-465b038a5138" /> 
-<img width="250" height="250" alt="tumblr_58a357860d32cb0824b36cbb1e847387_76285b84_250" src="https://github.com/user-attachments/assets/7584e827-f58e-4082-96f0-2155ec3f106c" />
-<img width="400" height="400" alt="760c91861a9a4bc8cf9062c6d024b0e3" src="https://github.com/user-attachments/assets/920ebf57-e2d6-4f22-8d91-89a70daf3c60" /> 
+<div align="center">
 
+<img width="540" height="303" alt="tumblr_dddb3ee97dc1e248079b3b9ff7295a5f_85cd1e8c_540" src="https://github.com/user-attachments/assets/7dbfe67f-1fe9-405f-b7c9-b8cf2dc48412" /> 
+<br>
+<img width="540" height="405" alt="tumblr_58ecc53f6d9e9884ab373528ded15c0c_22d1204b_540" src="https://github.com/user-attachments/assets/efff3ed7-7967-4346-9ef3-0ba8fbe53922" />
+<br>
+<img width="400" height="167" alt="tumblr_bf43c21784adcf3b45e874b4681a7fba_f68ab5a3_400" src="https://github.com/user-attachments/assets/36c2e009-8750-4fd7-9ddc-465b038a5138" /> 
+<br>
+<img width="400" height="400" alt="760c91861a9a4bc8cf9062c6d024b0e3" src="https://github.com/user-attachments/assets/920ebf57-e2d6-4f22-8d91-89a70daf3c60" /> 
+<br>
+<img width="250" height="250" alt="tumblr_58a357860d32cb0824b36cbb1e847387_76285b84_250" src="https://github.com/user-attachments/assets/7584e827-f58e-4082-96f0-2155ec3f106c" />
+<br>
+<img width="240" height="240" alt="giphy" src="https://github.com/user-attachments/assets/71a300f9-216e-4fe2-b415-3868d0f00a63" />
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
