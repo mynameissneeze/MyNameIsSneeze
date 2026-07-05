@@ -34,7 +34,7 @@ https://artfight.net/~MyNameIsSneeze
 
 <div align="center">
 
-# <img width="20" height="20" alt="star21" src="https://github.com/user-attachments/assets/d9f5a77c-f008-419c-9f76-7ee5e57a58fe" /> 🌸 Hey, I'm Sneeze!🌸<img width="20" height="20" alt="star21" src="https://github.com/user-attachments/assets/33900094-644b-426a-8032-c60590212c93" />
+# <img width="20" height="20" alt="star21" src="https://github.com/user-attachments/assets/d9f5a77c-f008-419c-9f76-7ee5e57a58fe" /> 🌸 Hey, I'm Sneeze!🌸 <img width="20" height="20" alt="star21" src="https://github.com/user-attachments/assets/33900094-644b-426a-8032-c60590212c93" />
 
 
 ₊˚⊹♡ Welcome to my little corner of the internet! ♡⊹˚₊
@@ -51,7 +51,8 @@ https://artfight.net/~MyNameIsSneeze
 
 
 <details>
-<summary> <img width="20" height="20" alt="apple3" src="https://github.com/user-attachments/assets/fbcd104f-6615-4e80-81c0-10b0d088a830" /> See my most commonly used PonyTown skins!⭐:</summary>
+<summary> <img width="20" height="20" alt="apple3" src="https://github.com/user-attachments/assets/fbcd104f-6615-4e80-81c0-10b0d088a830" /> See my most commonly used PonyTown skins!<img width="20" height="20" alt="wtAThJF" src="https://github.com/user-attachments/assets/d2c1e21c-aba5-4dfa-b98c-3490b498393b" />
+:</summary>
 
 <br>
 
@@ -107,15 +108,15 @@ https://artfight.net/~MyNameIsSneeze
 <img width="20" height="20" alt="pencil6" src="https://github.com/user-attachments/assets/c101e02d-5d99-4a60-a769-082e5864b853" /> Digital Artist • Character Creator • Cartoon Lover <img width="20" height="20" alt="book8" src="https://github.com/user-attachments/assets/8e36f0ec-6add-484a-86e2-b2e144f3eb9c" />
 
 
-<img width="20" height="20" alt="palette" src="https://github.com/user-attachments/assets/b07d8b1f-7807-469e-8954-3e1ea27fb16c" /> **Commissions:** OPEN  
+<img width="20" height="20" alt="palette" src="https://github.com/user-attachments/assets/b07d8b1f-7807-469e-8954-3e1ea27fb16c" /> **Commissions:** OPEN  <img width="20" height="20" alt="palette" src="https://github.com/user-attachments/assets/b07d8b1f-7807-469e-8954-3e1ea27fb16c" />
 
-<img width="20" height="20" alt="phone11" src="https://github.com/user-attachments/assets/7240478c-1977-4d5c-a2f5-04106e7f2bd0" />**DMs:** ALWAYS OPEN
+<img width="20" height="20" alt="phone11" src="https://github.com/user-attachments/assets/7240478c-1977-4d5c-a2f5-04106e7f2bd0" /> **DMs:** ALWAYS OPEN <img width="20" height="20" alt="phone11" src="https://github.com/user-attachments/assets/7240478c-1977-4d5c-a2f5-04106e7f2bd0" />
 
-<img width="20" height="20" alt="star87" src="https://github.com/user-attachments/assets/d9f53134-b061-499e-a67b-e9625cab752b" /> My username is **MyNameIsSneeze** on pretty much everything!
+<img width="20" height="20" alt="star87" src="https://github.com/user-attachments/assets/d9f53134-b061-499e-a67b-e9625cab752b" /> My username is **MyNameIsSneeze** on pretty much everything! <img width="20" height="20" alt="star87" src="https://github.com/user-attachments/assets/d9f53134-b061-499e-a67b-e9625cab752b" />
 
-<img width="32" height="29" alt="butterfly24" src="https://github.com/user-attachments/assets/5c579676-9f90-4f8e-a8ae-b95f0ccfd955" /> I can be a little quiet when meeting new people, but once I get comfortable I open up a lot.
+<img width="32" height="29" alt="butterfly24" src="https://github.com/user-attachments/assets/5c579676-9f90-4f8e-a8ae-b95f0ccfd955" /> I can be a little quiet when meeting new people, but once I get comfortable I open up a lot. <img width="32" height="29" alt="butterfly24" src="https://github.com/user-attachments/assets/5c579676-9f90-4f8e-a8ae-b95f0ccfd955" />
 
-<img width="20" height="20" alt="tv3" src="https://github.com/user-attachments/assets/885eacc9-b5fb-4967-bdf8-1fa164316215" /> I love introducing people to new movies and TV shows, especially animation, anime, indie cartoons, and horror films.
+<img width="20" height="20" alt="tv3" src="https://github.com/user-attachments/assets/885eacc9-b5fb-4967-bdf8-1fa164316215" /> I love introducing people to new movies and TV shows, especially animation, anime, indie cartoons, and horror films. <img width="20" height="20" alt="tv3" src="https://github.com/user-attachments/assets/885eacc9-b5fb-4967-bdf8-1fa164316215" />
 
 <img width="88" height="31" alt="furby" src="https://github.com/user-attachments/assets/5caeecd5-a09e-4c16-b98f-58bd1c6c4594" /> <img width="99" height="56" alt="127a8df72318d333d11ab24018ca46a1" src="https://github.com/user-attachments/assets/0876c57c-a311-4d4c-ad0b-fc7451c3e511" /> <img width="88" height="31" alt="7e9ab237a908760de13954b5bbcf5409" src="https://github.com/user-attachments/assets/17a822bb-d11e-4eb6-bc1a-6ffcc7684b8c" />
 
