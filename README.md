@@ -105,9 +105,6 @@ Cute & Weird Aesthetics
 
 <img width="200" height="164" alt="tumblr_ff6507cbc7544fc49ef31d39915978c1_f481016f_250" src="https://github.com/user-attachments/assets/19202a0c-3f8d-4943-9427-e6721ec8b127" />
 
-
-<img width="141" height="95" alt="tumblr_62a2c5caf2864327bae29a2f95ebcdbf_a29d3394_250" src="https://github.com/user-attachments/assets/ac951b13-b7b9-45e9-8eaa-4a33d094522e" />
-
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ⠀⠀⠀⋮⠀⠀⠀⠀⠀⠀⋮⠀⠀⠀⠀⠀⠀⋮
@@ -122,7 +119,7 @@ Cute & Weird Aesthetics
 
 ━━━━━━━━━━━━━━━━━━━━
 
-
+<img width="141" height="95" alt="tumblr_62a2c5caf2864327bae29a2f95ebcdbf_a29d3394_250" src="https://github.com/user-attachments/assets/ac951b13-b7b9-45e9-8eaa-4a33d094522e" />
 
 # 🌟✨ ALL ABOUT ME ✨🌟
 
