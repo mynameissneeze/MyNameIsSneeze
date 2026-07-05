@@ -184,23 +184,23 @@ Coraline • Alice in Wonderland • Spirited Away • Ponyo • Pom Poko • On
 
 
 
-## <img width="20" height="20" alt="tv" src="https://github.com/user-attachments/assets/63f05612-e961-44fb-b458-7c6b69b3a71b" /> Favorite Shows 
+## <img width="20" height="20" alt="tv" src="https://github.com/user-attachments/assets/63f05612-e961-44fb-b458-7c6b69b3a71b" /> Favorite Shows <img width="20" height="20" alt="tv" src="https://github.com/user-attachments/assets/63f05612-e961-44fb-b458-7c6b69b3a71b" />
 
 Adventure Time • Bee and PuppyCat • Gravity Falls • Futurama • Scott Pilgrim • My Little Pony • Moomin • South Park • Final Space • Aggretsuko • AHHH! Real Monsters • The Cuphead Show • Code Lyoko • Steven Universe • Star vs. the Forces of Evil • OK K.O.! • Infinity Train • Tuca & Bertie • The Amazing Digital Circus • Home Movies • China, IL • Clone High • Big Top Burger • MTV Downtown
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-## <img width="20" height="20" alt="tv7" src="https://github.com/user-attachments/assets/cb6a6f56-9181-4853-8e7d-8aad99dfb290" /> Favorite Anime 
+## <img width="20" height="20" alt="tv7" src="https://github.com/user-attachments/assets/cb6a6f56-9181-4853-8e7d-8aad99dfb290" /> Favorite Anime <img width="20" height="20" alt="tv7" src="https://github.com/user-attachments/assets/cb6a6f56-9181-4853-8e7d-8aad99dfb290" />
 
 xxxHolic • Durarara!! • Osomatsu-san • Deadman Wonderland • Mob Psycho 100 • Ouran High School Host Club • Soul Eater • Sgt. Frog • Lucky Star • Kakegurui • Nana • FLCL • Panty & Stocking • Bleach • Princess Tutu • Princess Jellyfish • Migi & Dali • Squid Girl • Life Lessons with Uramichi Oniisan • Nichijou • Dandadan
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-## <img width="20" height="20" alt="console5" src="https://github.com/user-attachments/assets/c6c51af7-a43f-4caf-8c72-e454e2509605" /> Favorite Games 
+## <img width="20" height="20" alt="console5" src="https://github.com/user-attachments/assets/c6c51af7-a43f-4caf-8c72-e454e2509605" /> Favorite Games <img width="20" height="20" alt="console5" src="https://github.com/user-attachments/assets/c6c51af7-a43f-4caf-8c72-e454e2509605" />
 
 Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by Daylight • The Classrooms • Five Nights at Freddy's • Grounded • The Forest • Lethal Company • Life Is Strange • Resident Evil • Saints Row • Raft • Stardew Valley • Webfishing • Fran Bow • Content Warning • 7 Days to Die • Bigfoot • Roblox • Skyrim • Yandere Simulator • Silent Hill • Hello Kitty Island Adventure • Kletka • Hitman • Degrees of Lewdity • Alice: Madness Returns • What Remains of Edith Finch • Reka • Schedule 1 • Wizard101 • Wobbledogs
 
-## <img width="20" height="20" alt="juice2" src="https://github.com/user-attachments/assets/2b0c8754-707c-4f2a-90c8-4ec4a1ab50d8" /> Favorite Foods & Drinks 
+## <img width="20" height="20" alt="juice2" src="https://github.com/user-attachments/assets/2b0c8754-707c-4f2a-90c8-4ec4a1ab50d8" /> Favorite Foods & Drinks <img width="20" height="20" alt="juice2" src="https://github.com/user-attachments/assets/2b0c8754-707c-4f2a-90c8-4ec4a1ab50d8" />
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 
