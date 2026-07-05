@@ -413,8 +413,8 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 
 <img width="133" height="133" alt="tumblr_91d35af063cdf46bd7fe875cce67ff4c_f0eb8c02_250" src="https://github.com/user-attachments/assets/9c538663-3dfa-4888-8540-20c0acff37c2" /> 
 <img width="136" height="136" alt="tumblr_e6f51cdb79f53479a81669a8013d117f_d48fd4ff_250" src="https://github.com/user-attachments/assets/04223acd-c454-495f-b07a-f8b9b46313bc" /> 
-<img width="104" height="100" alt="425d786dad80fa97cba1bf83c07a5405" src="https://github.com/user-attachments/assets/ce953d65-87ea-4f7d-aa5a-15e46c2835d9" />
 <img width="99" height="124" alt="tumblr_lg6itmL6Yk1qfu6o4o1_100" src="https://github.com/user-attachments/assets/9b95223c-a81e-4555-a905-3a799dcf3a30" /> 
+<img width="104" height="100" alt="425d786dad80fa97cba1bf83c07a5405" src="https://github.com/user-attachments/assets/ce953d65-87ea-4f7d-aa5a-15e46c2835d9" />
 <img width="68" height="106" alt="0b9f53e6daf61e20cb62e928a3161b8d" src="https://github.com/user-attachments/assets/82416830-4f4d-4b3f-ac80-0e4a081433a3" />
 <img width="100" height="100" alt="tumblr_cddde76324eb7f848a12d60a624bb0b3_6201e661_100" src="https://github.com/user-attachments/assets/bda4a764-175a-4b2d-a1a8-0ca6b4489119" /> 
 <img width="100" height="100" alt="tumblr_pyns0qkDNw1xmlb72o1_100" src="https://github.com/user-attachments/assets/9893ab6d-dc81-4a30-9d31-e3c2e379b2ae" />
@@ -429,6 +429,13 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="62" height="55" alt="b90fdf6f3749105ae712d37a1edcb466" src="https://github.com/user-attachments/assets/a6778a76-1831-4616-93c9-252430805ff5" />
 <img width="70" height="60" alt="tumblr_3a1010da86c68c3d4c4b727cdaf90103_0d4ad389_75" src="https://github.com/user-attachments/assets/6f74d8a0-d9d0-4ce1-9ad9-7e395b69837e" />
 <img width="60" height="60" alt="tumblr_a91f1ad2b33dbfd92a5b679509552d78_02ea9082_75" src="https://github.com/user-attachments/assets/47fef935-2b7e-4d9d-963e-955a7da394b8" />
+<img width="50" height="50" alt="9edeb6b9c90caa7456f06ef1ef1730c2" src="https://github.com/user-attachments/assets/1335c9f9-5e53-4fa2-a55f-6d5621d1f1f9" />
+<img width="42" height="61" alt="77cbeedf4a27317bc5fd479be65ef10b" src="https://github.com/user-attachments/assets/47310e2f-f4aa-4f49-8974-00b584b9489a" />
+<img width="50" height="41" alt="6a14c4f611fe47b2cd4737c1c1ba906f" src="https://github.com/user-attachments/assets/9a6af064-c08f-423f-b080-3afc414a4e71" />
+<img width="61" height="43" alt="56c12471788415687a78ed031d0044db" src="https://github.com/user-attachments/assets/43c5958a-e723-4cf5-9bc2-78034e4e6c00" />
+<img width="41" height="67" alt="2fcadc752a0b756a0c3bf16892d5ec7b" src="https://github.com/user-attachments/assets/8711854b-0fbc-4b34-918c-e522d055f452" />
+<img width="32" height="32" alt="46faef04405486f5907a2917435f641d" src="https://github.com/user-attachments/assets/3e7cfd81-eb2d-4310-bc63-35c8debbfd82" />
+
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 # Blinkies
@@ -442,6 +449,20 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="99" height="56" alt="nvdxuv" src="https://github.com/user-attachments/assets/13f152e5-9476-4b4a-b4e8-ef9562dc286a" /> 
 <img width="99" height="56" alt="vh26o1" src="https://github.com/user-attachments/assets/3d8a554d-2b22-4498-ad3c-c21827658c3c" /> 
 <img width="99" height="56" alt="this_is_how_i_feel_by_mr_stamp_d1333rt" src="https://github.com/user-attachments/assets/d1e15ea1-221e-4573-9f0b-2f4454c8da77" /> 
+<img width="99" height="56" alt="577f71b79734b1e3a697286fec9ccb9a" src="https://github.com/user-attachments/assets/fd89abfd-3a63-4ac1-9e7b-e8dee859ac86" />
+<img width="99" height="56" alt="a7b5791b797e8b94eeed6e96c5118d25" src="https://github.com/user-attachments/assets/44009ac6-cc94-41c4-83e4-fe46b1a21edc" />
+<img width="99" height="56" alt="78a89158dc2698f9a473df556c83179e" src="https://github.com/user-attachments/assets/0bcb0713-fd21-413a-a6ef-f90f78beecbd" />
+<img width="99" height="56" alt="b6fec6631bfc572b8c4f401fdc45282d" src="https://github.com/user-attachments/assets/b931f45d-a61f-4a01-932b-3485a85fe83b" />
+<img width="99" height="56" alt="43ac84b90aa2f46a9556192612b66e39" src="https://github.com/user-attachments/assets/e3b5529a-99d8-4ddb-a348-0ebc84a08e70" />
+<img width="99" height="55" alt="c93079bdbf935bc5171225fe6a2aef43" src="https://github.com/user-attachments/assets/dbc6d924-1a98-41c1-88cd-9e5b6dbef544" />
+<img width="99" height="55" alt="706a9b1554fb8baa9ef216cd041c6d6a" src="https://github.com/user-attachments/assets/3663cf9d-2969-4dff-b074-137e8631620b" />
+<img width="105" height="63" alt="ca5c7346e90ad517954d27f6da3a89ff" src="https://github.com/user-attachments/assets/f46561ed-0914-462d-8713-9267bac2c2f7" />
+<img width="99" height="56" alt="521ec1cffef08684880f7771795bcdce" src="https://github.com/user-attachments/assets/6732556d-0530-45eb-8fe5-98bc67dc878f" />
+<img width="99" height="56" alt="0165abd70ae92b0166e8d2fb2399d89f" src="https://github.com/user-attachments/assets/6ed57f34-bfeb-4999-8399-a6a12c336cb8" />
+<img width="99" height="56" alt="d0d3bd5d6f26ec8fdf450562c695638a" src="https://github.com/user-attachments/assets/9a51cd8d-8dac-4c62-86ef-adc0599482e9" />
+<img width="99" height="56" alt="2044b83b1ddced6281b4b0991bf28e99" src="https://github.com/user-attachments/assets/1a8c728e-6400-400e-84d9-309dd0507524" />
+
+
 <br>
 <img width="600" height="80" alt="a90d8b2a6146a54a5eaaa9fa4d8e0192" src="https://github.com/user-attachments/assets/3ed038e1-3ac6-4406-b1e9-a148287eaf73" />
 <img width="600" height="80" alt="05925e828b51e1c816af12a52190fa94" src="https://github.com/user-attachments/assets/19120809-ad88-401a-ab16-4c1145a8ebc1" />
@@ -465,6 +486,11 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="150" height="20" alt="3de7062de8d8d247961ec06b1aae3f57" src="https://github.com/user-attachments/assets/a31a4139-75d1-4500-b970-e93890c03f64" />
 <img width="150" height="20" alt="5ffd75603ffafca4edd3fcdb9690d7a5" src="https://github.com/user-attachments/assets/bafebce2-7a96-4133-9469-da9650c327e3" />
 <img width="150" height="20" alt="1b70d2b854c247911ac81782abebf591" src="https://github.com/user-attachments/assets/149c80fd-dd29-410c-a670-ddf99e22b11f" />
+<img width="150" height="20" alt="266c8e8347ac3800bb5b75a0cefae6f4" src="https://github.com/user-attachments/assets/e601a9e8-49d5-4945-ab74-44b4c78d5d60" />
+<img width="150" height="20" alt="cb1ebc2330e6683b0ab066c40e007c09" src="https://github.com/user-attachments/assets/62e17ea4-0482-448d-ade1-94c49641fd84" />
+<img width="150" height="20" alt="afaccf09998778ee16a38f05685a2bc1" src="https://github.com/user-attachments/assets/419c6a8a-c8a0-4f85-9aca-52d939dca79b" />
+<img width="150" height="20" alt="1090696997e4c7e6e9b2caa81bd3c8e7" src="https://github.com/user-attachments/assets/948ae2ea-baed-4230-a762-efca9d8360a1" />
+
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 # Gifs
