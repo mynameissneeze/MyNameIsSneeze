@@ -125,7 +125,7 @@ https://artfight.net/~MyNameIsSneeze
 
 <img width="90" height="90" alt="tumblr_f105062e73fd7c557ed24cb9fd96e393_3f30bbb9_100" src="https://github.com/user-attachments/assets/b35a4910-36ef-413c-b409-9ef75d876891" />
 
-# <img width="20" height="20" alt="disc" src="https://github.com/user-attachments/assets/a597e1ba-18e8-4374-a9b0-7242f47694a1" /> Currently Listening To 
+# <img width="20" height="20" alt="disc" src="https://github.com/user-attachments/assets/a597e1ba-18e8-4374-a9b0-7242f47694a1" /> Currently Listening To <img width="20" height="20" alt="disc" src="https://github.com/user-attachments/assets/a597e1ba-18e8-4374-a9b0-7242f47694a1" />
 
 ### 𝗡𝗼𝘄 𝗣𝗹𝗮𝘆𝗶𝗻𝗴
 
@@ -140,13 +140,11 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 ━━━━━━━━━━━━━━━━━━━━
 
-#  Let's Be Friends!
+# <img width="20" height="20" alt="HiM3Fxv" src="https://github.com/user-attachments/assets/0f8f7ae2-427c-4005-b35d-e6730e7e803c" /> Let's Be Friends! <img width="20" height="20" alt="HiM3Fxv" src="https://github.com/user-attachments/assets/0f8f7ae2-427c-4005-b35d-e6730e7e803c" />
 
-🌸 Feel free to reach out anytime!
+🎮 **Discord:** SneezeIsHere
 
-🎮 **Discord:** Ask me!
-
-💜 **I enjoy talking about**
+**I enjoy talking about** <img width="20" height="20" alt="pvbzJMc" src="https://github.com/user-attachments/assets/afd7ab61-f783-4ddd-9573-a9e0fe4918f7" />
 
 Animation • Anime • Horror Movies • Art & Character Design • Indie Games • Cartoons • Cute & Weird Aesthetics
 
