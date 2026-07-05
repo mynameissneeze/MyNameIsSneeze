@@ -293,6 +293,9 @@ Starbby • Luminfur
 
 <div align="center">
 
+
+<img width="540" height="63" alt="tumblr_fbb18f5ccaa80b32c5eee9b0387f2100_97631657_540" src="https://github.com/user-attachments/assets/fc7744df-963c-4e5a-ad79-63fac5df47db" />
+
        
 
 ──────────── ✦ ────────────
@@ -322,16 +325,23 @@ Starbby • Luminfur
 
 <div align="center">
 
->
-
 <br><br>
 
 
 </div>
 
+
+
+<img width="250" height="250" alt="tumblr_58a357860d32cb0824b36cbb1e847387_76285b84_250" src="https://github.com/user-attachments/assets/7584e827-f58e-4082-96f0-2155ec3f106c" />
+
+
+<img width="70" height="60" alt="tumblr_3a1010da86c68c3d4c4b727cdaf90103_0d4ad389_75" src="https://github.com/user-attachments/assets/6f74d8a0-d9d0-4ce1-9ad9-7e395b69837e" />
+
+<img width="136" height="136" alt="tumblr_e6f51cdb79f53479a81669a8013d117f_d48fd4ff_250" src="https://github.com/user-attachments/assets/04223acd-c454-495f-b07a-f8b9b46313bc" />
+
+<img width="90" height="90" alt="tumblr_076c534cee64fc9835c0fcd6a4c0dc53_b7ca815c_100" src="https://github.com/user-attachments/assets/b06bd79d-fd9b-46b1-8a86-8efed7ed2c84" />
+
+<img width="60" height="60" alt="tumblr_a91f1ad2b33dbfd92a5b679509552d78_02ea9082_75" src="https://github.com/user-attachments/assets/47fef935-2b7e-4d9d-963e-955a7da394b8" />
 </details>
-
-
-
 
 </div>
