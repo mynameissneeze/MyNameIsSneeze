@@ -1,5 +1,8 @@
 <div align="center">
 
+<img width="97" height="98" alt="tumblr_6e738a5eba545c1544589db0fa0a2f3a_186a76fc_100" src="https://github.com/user-attachments/assets/41e56b15-a5fa-4451-b84f-6c93e0e4bd11" />
+
+
 ### 🌟 ARTFIGHT 🌟
 https://artfight.net/~MyNameIsSneeze
 
@@ -43,6 +46,8 @@ https://artfight.net/~MyNameIsSneeze
 
 
 ━━━━━━━━━━━━━━━━━━━━
+
+<img width="90" height="90" alt="tumblr_f105062e73fd7c557ed24cb9fd96e393_3f30bbb9_100" src="https://github.com/user-attachments/assets/b35a4910-36ef-413c-b409-9ef75d876891" />
 
 # 🎧 Currently Listening To
 
@@ -89,6 +94,9 @@ Cartoons
 Cute & Weird Aesthetics
 
 ━━━━━━━━━━━━━━━━━━━━
+
+<img width="200" height="164" alt="tumblr_ff6507cbc7544fc49ef31d39915978c1_f481016f_250" src="https://github.com/user-attachments/assets/19202a0c-3f8d-4943-9427-e6721ec8b127" />
+
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
