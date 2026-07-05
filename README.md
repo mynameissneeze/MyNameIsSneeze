@@ -3,8 +3,12 @@
 <img width="97" height="98" alt="tumblr_6e738a5eba545c1544589db0fa0a2f3a_186a76fc_100" src="https://github.com/user-attachments/assets/41e56b15-a5fa-4451-b84f-6c93e0e4bd11" />
 
 
+
 ### 🌟 ARTFIGHT 🌟
 https://artfight.net/~MyNameIsSneeze
+
+<img width="250" height="150" alt="tumblr_0f45449880e2eb4f5a6e69dbc04175a1_a824b6f8_250" src="https://github.com/user-attachments/assets/b23ebfaf-241c-4afc-a3d7-d75589494d5c" />
+
 
 <br>
 
@@ -28,6 +32,10 @@ https://artfight.net/~MyNameIsSneeze
 
 <br>
  25 • Taken • She/Her • They/Them 
+
+ <img width="53" height="19" alt="tumblr_b0f0812c3fe5e3893a9c7c27d071daf5_45eff816_75" src="https://github.com/user-attachments/assets/ec4d7e41-34c3-4484-b72c-9e80a2af3728" /> <img width="88" height="18" alt="tumblr_620339d01e534fbe9c69e254adf56a27_5e64093c_100" src="https://github.com/user-attachments/assets/c54faa45-9726-4f73-bdaa-24abf241d431" />
+
+
 
 🍄🎨 Digital Artist • Character Creator • Cartoon Lover 🎨🍄
 
@@ -98,6 +106,8 @@ Cute & Weird Aesthetics
 <img width="200" height="164" alt="tumblr_ff6507cbc7544fc49ef31d39915978c1_f481016f_250" src="https://github.com/user-attachments/assets/19202a0c-3f8d-4943-9427-e6721ec8b127" />
 
 
+<img width="141" height="95" alt="tumblr_62a2c5caf2864327bae29a2f95ebcdbf_a29d3394_250" src="https://github.com/user-attachments/assets/ac951b13-b7b9-45e9-8eaa-4a33d094522e" />
+
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ⠀⠀⠀⋮⠀⠀⠀⠀⠀⠀⋮⠀⠀⠀⠀⠀⠀⋮
@@ -111,6 +121,8 @@ Cute & Weird Aesthetics
 ⠀⠀⠀⠀⠀⠀⠀☆
 
 ━━━━━━━━━━━━━━━━━━━━
+
+
 
 # 🌟✨ ALL ABOUT ME ✨🌟
 
@@ -136,6 +148,9 @@ Coraline • Alice in Wonderland • Spirited Away • Ponyo • Pom Poko • On
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
+<img width="57" height="51" alt="tumblr_eca496e4e28c6523a16b2641b6d2c656_7a897480_75" src="https://github.com/user-attachments/assets/3e70fdbf-e4d5-47f0-9f9e-da12788144df" />
+
+
 ## 📺💫 Favorite Shows 💫📺
 
 Adventure Time • Bee and PuppyCat • Gravity Falls • Futurama • Scott Pilgrim • My Little Pony • Moomin • South Park • Final Space • Aggretsuko • AHHH! Real Monsters • The Cuphead Show • Code Lyoko • Steven Universe • Star vs. the Forces of Evil • OK K.O.! • Infinity Train • Tuca & Bertie • The Amazing Digital Circus • Home Movies • China, IL • Clone High • Big Top Burger • MTV Downtown
@@ -153,6 +168,9 @@ xxxHolic • Durarara!! • Osomatsu-san • Deadman Wonderland • Mob Psycho 1
 Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by Daylight • The Classrooms • Five Nights at Freddy's • Grounded • The Forest • Lethal Company • Life Is Strange • Resident Evil • Saints Row • Raft • Stardew Valley • Webfishing • Fran Bow • Content Warning • 7 Days to Die • Bigfoot • Roblox • Skyrim • Yandere Simulator • Silent Hill • Hello Kitty Island Adventure • Kletka • Hitman • Degrees of Lewdity • Alice: Madness Returns • What Remains of Edith Finch • Reka • Schedule 1 • Wizard101 • Wobbledogs
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+
+<img width="360" height="360" alt="tumblr_fb4f0ad7a075c2de12f0be1c92135950_6e8feeeb_400" src="https://github.com/user-attachments/assets/f70228fc-2532-478d-86e9-d4fb231f094d" />
+
 
 ## 🍓🧋 Favorite Foods & Drinks 🧋🍓
 
@@ -273,5 +291,8 @@ Starbby • Luminfur
 ❄️ No Ice
 
 🍋 Extra Lemon
+
+<img width="101" height="72" alt="tumblr_92fa73c4478041cea3c30b92d7bb2f69_c1a5ee75_250" src="https://github.com/user-attachments/assets/6b54a5ed-8713-4a11-a5c8-71feaf54956b" />
+
 
 </div>
