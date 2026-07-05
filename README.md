@@ -207,7 +207,7 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <img width="99" height="56" alt="49f4af6ffce296ffe91f7e3c67f5634c" src="https://github.com/user-attachments/assets/0b03ab78-851f-414f-aaa0-dfb18b562ae6" /> <img width="99" height="56" alt="tumblr_cc48125e658008761381e8e0862d5a9a_f90860e0_250" src="https://github.com/user-attachments/assets/c6bb88e4-460f-4924-b7cc-1b0cd3663ae8" />
 
 
-<img width="20" height="20" alt="storm3" src="https://github.com/user-attachments/assets/41b76715-d5f5-47cb-847c-a768c5861ebe" /> Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries)
+<img width="20" height="20" alt="3uliWir" src="https://github.com/user-attachments/assets/61adc4a0-1ee9-401a-907b-f5a48b0b8c03" />  Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries)
 
 <img width="20" height="20" alt="cake32" src="https://github.com/user-attachments/assets/470332e6-f14b-4ece-98a2-4c6a47db2cf1" /> Pancakes
 
@@ -258,10 +258,12 @@ Sanrio • Squishmallows • Arizona Tea • Starbucks • Sugarbunnies
 
 Wild Spirit Driftwood Perfume • Chlorine • Smoke • Fire
 
-## 🐛🦋 Favorite Bugs 🦋🐛
+## <img width="20" height="20" alt="EFXvBxB" src="https://github.com/user-attachments/assets/1a8c27b9-c9f8-46da-b952-4a1e2de9a903" /> Favorite Bugs <img width="20" height="20" alt="EFXvBxB" src="https://github.com/user-attachments/assets/1a8c27b9-c9f8-46da-b952-4a1e2de9a903" />
+
  Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Jumping Spiders
 
-## ⚡🐾 Favorite Pokémon 🐾⚡
+##  Favorite Pokémon <img width="20" height="20" alt="Lou6bmV" src="https://github.com/user-attachments/assets/14435cb6-6442-4efb-b34e-c0f66c2d832f" />
+
 
 Snorlax • Hypno • Ditto • Miltank • Piplup • Buneary • Sawsbuck • Espurr • Mimikyu • Alcremie • Maushold • Oinkologne • Scream Tail
 
