@@ -291,6 +291,30 @@ Starbby • Luminfur
 
 <img width="101" height="72" alt="tumblr_92fa73c4478041cea3c30b92d7bb2f69_c1a5ee75_250" src="https://github.com/user-attachments/assets/6b54a5ed-8713-4a11-a5c8-71feaf54956b" />
 
+<div align="center">
+
+       
+
+──────────── ✦ ────────────
+
+
+🍓 GIF CORNER 🍓
+
+
+──────────── ✦ ────────────
+
+
+⭐ Blinkies ⭐
+⭐ Pixels ⭐
+⭐ Stamps ⭐
+⭐ Funny GIFs ⭐
+⭐ Hyperfixations ⭐
+
+
+
+
+</div>
+
 <details>
 <summary>🍓🎀 Click to Open My GIF Corner! 🎀🍓</summary>
 
@@ -298,19 +322,16 @@ Starbby • Luminfur
 
 <div align="center">
 
-<img src="Gifs/gif1.gif" width="150">
-<img src="Gifs/gif2.gif" width="150">
-<img src="Gifs/gif3.gif" width="150">
+>
 
 <br><br>
 
-<img src="Gifs/stamp1.png" width="88">
-<img src="Gifs/stamp2.png" width="88">
-<img src="Gifs/stamp3.png" width="88">
 
 </div>
 
 </details>
+
+
 
 
 </div>
