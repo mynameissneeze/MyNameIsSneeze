@@ -165,7 +165,11 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 ━━━━━━━━━━━━━━━━━━━━
 
-<img width="141" height="95" alt="tumblr_62a2c5caf2864327bae29a2f95ebcdbf_a29d3394_250" src="https://github.com/user-attachments/assets/ac951b13-b7b9-45e9-8eaa-4a33d094522e" />
+<img width="141" height="95" alt="tumblr_62a2c5caf2864327bae29a2f95ebcdbf_a29d3394_250" src="https://github.com/user-attachments/assets/ac951b13-b7b9-45e9-8eaa-4a33d094522e" /> 
+<img width="141" height="95" alt="51a2ab32b3ce677679681d18cfd6ae7e" src="https://github.com/user-attachments/assets/9f32009f-33d7-4cf2-8416-ff697a322e27" />
+<br> <br>
+<img width="141" height="95" alt="d160ab60e391050d73a61c4ea46db917" src="https://github.com/user-attachments/assets/0c37c4f6-f28d-451e-b719-d30f8167783f" />
+<img width="141" height="95" alt="4309e6a93dc181fd0cc0932b8b2cf34d" src="https://github.com/user-attachments/assets/39cae4ea-3084-4765-9d0f-e5a7046748da" />
 
 # <img width="20" height="20" alt="star99" src="https://github.com/user-attachments/assets/9c55968c-6dff-4a03-985f-378888bc64c7" /> ALL ABOUT ME <img width="20" height="20" alt="star99" src="https://github.com/user-attachments/assets/7bd34b51-9550-4a4c-8a3c-240ec8bfb1be" />
 
@@ -461,6 +465,8 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="99" height="56" alt="0165abd70ae92b0166e8d2fb2399d89f" src="https://github.com/user-attachments/assets/6ed57f34-bfeb-4999-8399-a6a12c336cb8" />
 <img width="99" height="56" alt="d0d3bd5d6f26ec8fdf450562c695638a" src="https://github.com/user-attachments/assets/9a51cd8d-8dac-4c62-86ef-adc0599482e9" />
 <img width="99" height="56" alt="2044b83b1ddced6281b4b0991bf28e99" src="https://github.com/user-attachments/assets/1a8c728e-6400-400e-84d9-309dd0507524" />
+<img width="99" height="56" alt="bcf764882334347539ffc22897363899" src="https://github.com/user-attachments/assets/9e61e33e-53fa-4756-a9ab-6a52a919e0b5" />
+
 
 
 <br>
@@ -510,7 +516,10 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="240" height="240" alt="giphy" src="https://github.com/user-attachments/assets/71a300f9-216e-4fe2-b415-3868d0f00a63" />
 <br>
 <img width="600" height="600" alt="ae0b2a06c3fe07a6532a732d062e51a1" src="https://github.com/user-attachments/assets/b6157773-8f96-4943-a356-11cfd2eb3f74" />
-
+<br>
+<img width="540" height="231" alt="92bae2613321f3808f7bffc0f986f980" src="https://github.com/user-attachments/assets/8b97384c-385b-4d76-a77f-ed7d893e1723" />
+<br>
+<img width="500" height="475" alt="620155c86b4f51c06ce7a55eb93c527c" src="https://github.com/user-attachments/assets/586f38fc-551d-4bfc-9d37-9d2c8452206b" />
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
