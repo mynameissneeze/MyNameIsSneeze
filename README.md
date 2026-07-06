@@ -459,10 +459,8 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="99" height="56" alt="a7b5791b797e8b94eeed6e96c5118d25" src="https://github.com/user-attachments/assets/44009ac6-cc94-41c4-83e4-fe46b1a21edc" />
 <img width="99" height="56" alt="78a89158dc2698f9a473df556c83179e" src="https://github.com/user-attachments/assets/0bcb0713-fd21-413a-a6ef-f90f78beecbd" />
 <img width="99" height="56" alt="b6fec6631bfc572b8c4f401fdc45282d" src="https://github.com/user-attachments/assets/b931f45d-a61f-4a01-932b-3485a85fe83b" />
-<img width="99" height="56" alt="43ac84b90aa2f46a9556192612b66e39" src="https://github.com/user-attachments/assets/e3b5529a-99d8-4ddb-a348-0ebc84a08e70" />
 <img width="99" height="55" alt="c93079bdbf935bc5171225fe6a2aef43" src="https://github.com/user-attachments/assets/dbc6d924-1a98-41c1-88cd-9e5b6dbef544" />
 <img width="105" height="63" alt="ca5c7346e90ad517954d27f6da3a89ff" src="https://github.com/user-attachments/assets/f46561ed-0914-462d-8713-9267bac2c2f7" />
-<img width="99" height="56" alt="521ec1cffef08684880f7771795bcdce" src="https://github.com/user-attachments/assets/6732556d-0530-45eb-8fe5-98bc67dc878f" />
 <img width="99" height="56" alt="d0d3bd5d6f26ec8fdf450562c695638a" src="https://github.com/user-attachments/assets/9a51cd8d-8dac-4c62-86ef-adc0599482e9" />
 <img width="99" height="56" alt="2044b83b1ddced6281b4b0991bf28e99" src="https://github.com/user-attachments/assets/1a8c728e-6400-400e-84d9-309dd0507524" />
 <img width="99" height="55" alt="fe77a32249a4c61028f73d3c6aa31446" src="https://github.com/user-attachments/assets/8e697648-693c-42c2-a959-107b62ccedf7" />
