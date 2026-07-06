@@ -177,6 +177,7 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
  ( ⸝⸝´꒳`⸝⸝)
  
  <img width="210" height="32" alt="ed62e06d576c7f349cc2a7f0930bf820" src="https://github.com/user-attachments/assets/a0bb67cd-2921-4414-a0e4-ec287a19f040" />
+
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## 🎬🍿 Favorite Films 🍿🎬
@@ -242,6 +243,7 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 
 <img width="711" height="39" alt="abd19ae69251e3c22cddbf2a07f91371" src="https://github.com/user-attachments/assets/06d66942-dec6-4355-a2ec-4bf753bd3394" />
+
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 <img width="360" height="360" alt="tumblr_fb4f0ad7a075c2de12f0be1c92135950_6e8feeeb_400" src="https://github.com/user-attachments/assets/f70228fc-2532-478d-86e9-d4fb231f094d" />
@@ -472,8 +474,15 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="99" height="55" alt="fe77a32249a4c61028f73d3c6aa31446" src="https://github.com/user-attachments/assets/8e697648-693c-42c2-a959-107b62ccedf7" />
 <img width="99" height="56" alt="94aa81e962de01ffa01f8e51142ab0d1" src="https://github.com/user-attachments/assets/f0292bc8-ce87-4b36-8e27-bd3d2bba4df3" />
 <img width="99" height="56" alt="bcf764882334347539ffc22897363899" src="https://github.com/user-attachments/assets/9e61e33e-53fa-4756-a9ab-6a52a919e0b5" />
+<img width="99" height="55" alt="furby_1" src="https://github.com/user-attachments/assets/6b0df199-d41e-41d1-9785-2ad98b044ca9" />
+<img width="300" height="40" alt="0235-rainbowstar" src="https://github.com/user-attachments/assets/02a82b3b-1cc5-4854-9f3f-d071b666c477" />
+<img width="99" height="56" alt="silent_hill" src="https://github.com/user-attachments/assets/a80b67f3-cd0e-4787-b719-05ef04649749" />
+<img width="99" height="56" alt="futurama" src="https://github.com/user-attachments/assets/6ec6865a-cb1e-424f-8620-4f75b3dde433" />
+<img width="99" height="56" alt="twilight" src="https://github.com/user-attachments/assets/8efcdb90-7064-437f-88f5-c54991bfaa7b" />
+<img width="99" height="56" alt="Scottkiss" src="https://github.com/user-attachments/assets/d02b70da-8872-4ef6-a15d-7d3720610757" />
+<img width="100" height="58" alt="playground" src="https://github.com/user-attachments/assets/1ada739a-9890-48a1-85f9-f72aad471ee0" />
 
-<img width="600" height="80" alt="wally" src="https://github.com/user-attachments/assets/08efacb1-d51f-490f-a30f-57669963e49f" />
+
 <br>
 <img width="600" height="80" alt="a90d8b2a6146a54a5eaaa9fa4d8e0192" src="https://github.com/user-attachments/assets/3ed038e1-3ac6-4406-b1e9-a148287eaf73" />
 <br>
