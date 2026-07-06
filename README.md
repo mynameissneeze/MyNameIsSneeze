@@ -186,12 +186,6 @@ Coraline • Alice in Wonderland • Spirited Away • Ponyo • Pom Poko • On
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-<img width="57" height="51" alt="tumblr_eca496e4e28c6523a16b2641b6d2c656_7a897480_75" src="https://github.com/user-attachments/assets/3e70fdbf-e4d5-47f0-9f9e-da12788144df" />
-
-<img width="100" height="57" alt="tumblr_1ba80809ef3f61b6190a3ed05a4edb47_f2c5ce32_250" src="https://github.com/user-attachments/assets/87dcb80d-93cc-4f33-b442-84e4f2c7062d" /> <img width="101" height="57" alt="konata2" src="https://github.com/user-attachments/assets/394340af-af28-4436-92bd-45f18ec31aa7" />
-
-
-
 ## <img width="20" height="20" alt="tv" src="https://github.com/user-attachments/assets/63f05612-e961-44fb-b458-7c6b69b3a71b" /> Favorite Shows <img width="20" height="20" alt="tv" src="https://github.com/user-attachments/assets/63f05612-e961-44fb-b458-7c6b69b3a71b" />
 
 Adventure Time • Bee and PuppyCat • Gravity Falls • Futurama • Scott Pilgrim • My Little Pony • Moomin • South Park • Final Space • Aggretsuko • AHHH! Real Monsters • The Cuphead Show • Code Lyoko • Steven Universe • Star vs. the Forces of Evil • OK K.O.! • Infinity Train • Tuca & Bertie • The Amazing Digital Circus • Home Movies • China, IL • Clone High • Big Top Burger • MTV Downtown
@@ -481,6 +475,7 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="99" height="56" alt="twilight" src="https://github.com/user-attachments/assets/8efcdb90-7064-437f-88f5-c54991bfaa7b" />
 <img width="99" height="56" alt="Scottkiss" src="https://github.com/user-attachments/assets/d02b70da-8872-4ef6-a15d-7d3720610757" />
 <img width="100" height="58" alt="playground" src="https://github.com/user-attachments/assets/1ada739a-9890-48a1-85f9-f72aad471ee0" />
+<img width="99" height="56" alt="tumblr_cc1951f016e4515160a735e64786dd18_54530c61_100" src="https://github.com/user-attachments/assets/66195029-b67f-4a3f-9f62-be885cf087a6" />
 
 
 <br>
@@ -556,6 +551,8 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="540" height="231" alt="92bae2613321f3808f7bffc0f986f980" src="https://github.com/user-attachments/assets/8b97384c-385b-4d76-a77f-ed7d893e1723" />
 <br>
 <img width="500" height="475" alt="620155c86b4f51c06ce7a55eb93c527c" src="https://github.com/user-attachments/assets/586f38fc-551d-4bfc-9d37-9d2c8452206b" />
+<br>
+<img width="500" height="273" alt="giphy" src="https://github.com/user-attachments/assets/739ba524-bf8e-4adb-9938-ab55c521b4f3" />
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
