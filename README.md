@@ -3,6 +3,8 @@
 <img width="80" height="15" alt="3062eda6d78e2b85a37a868fdd939c3a" src="https://github.com/user-attachments/assets/35508dce-4a8e-48e6-9278-68be4225d490" />
 
 <div align="center">
+
+ 
 ## Scroll down to see my Gif/Blinkie collection 
 
 
@@ -469,7 +471,6 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="99" height="56" alt="94aa81e962de01ffa01f8e51142ab0d1" src="https://github.com/user-attachments/assets/f0292bc8-ce87-4b36-8e27-bd3d2bba4df3" />
 <img width="99" height="56" alt="bcf764882334347539ffc22897363899" src="https://github.com/user-attachments/assets/9e61e33e-53fa-4756-a9ab-6a52a919e0b5" />
 <img width="99" height="55" alt="furby_1" src="https://github.com/user-attachments/assets/6b0df199-d41e-41d1-9785-2ad98b044ca9" />
-<img width="300" height="40" alt="0235-rainbowstar" src="https://github.com/user-attachments/assets/02a82b3b-1cc5-4854-9f3f-d071b666c477" />
 <img width="99" height="56" alt="silent_hill" src="https://github.com/user-attachments/assets/a80b67f3-cd0e-4787-b719-05ef04649749" />
 <img width="99" height="56" alt="futurama" src="https://github.com/user-attachments/assets/6ec6865a-cb1e-424f-8620-4f75b3dde433" />
 <img width="99" height="56" alt="twilight" src="https://github.com/user-attachments/assets/8efcdb90-7064-437f-88f5-c54991bfaa7b" />
@@ -489,6 +490,7 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <br>
 <img width="400" height="60" alt="katamari" src="https://github.com/user-attachments/assets/846959e9-f055-44b8-a21c-cd3ad57a6ee9" />
 <br>
+<img width="300" height="40" alt="0235-rainbowstar" src="https://github.com/user-attachments/assets/02a82b3b-1cc5-4854-9f3f-d071b666c477" />
 <br>
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
