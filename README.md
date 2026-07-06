@@ -176,6 +176,7 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
  ( ⸝⸝´꒳`⸝⸝)
  
+ <img width="210" height="32" alt="ed62e06d576c7f349cc2a7f0930bf820" src="https://github.com/user-attachments/assets/a0bb67cd-2921-4414-a0e4-ec287a19f040" />
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## 🎬🍿 Favorite Films 🍿🎬
@@ -239,6 +240,8 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <img width="20" height="20" alt="bubble" src="https://github.com/user-attachments/assets/d33c7c99-3338-4157-997e-0555a2db5523" /> Boba Tea
 
+
+<img width="711" height="39" alt="abd19ae69251e3c22cddbf2a07f91371" src="https://github.com/user-attachments/assets/06d66942-dec6-4355-a2ec-4bf753bd3394" />
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 <img width="360" height="360" alt="tumblr_fb4f0ad7a075c2de12f0be1c92135950_6e8feeeb_400" src="https://github.com/user-attachments/assets/f70228fc-2532-478d-86e9-d4fb231f094d" />
@@ -341,6 +344,7 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="100" height="50" alt="3178941d1b9b2cbc8b8db13e6b3a6b1c" src="https://github.com/user-attachments/assets/56f47c60-97f3-4b4f-8466-7c7b055d1f95" /> 
 <img width="65" height="45" alt="tumblr_74a1cfb096439badd55ac08a3baaf8ab_3ee3bf42_75" src="https://github.com/user-attachments/assets/dd18b1ce-4d1a-4798-addc-7ecbe6bdbcff" /> 
 <img width="36" height="33" alt="4849f35a2b74c5b1ab5342293d667d9a" src="https://github.com/user-attachments/assets/adbbb5b0-dc80-451b-be5d-f7b39b1a2b91" />
+<img width="35" height="35" alt="37e817e9b11c8fa31ad9967b2e2b81e1" src="https://github.com/user-attachments/assets/dea8789b-19a9-400b-a94f-f408fe12ee47" />
 <img width="21" height="34" alt="631346e5dc7bcbeabf2a725116963810" src="https://github.com/user-attachments/assets/4d1bf873-bb7c-4971-b8e9-4462a1b3e7d2" />
 <img width="27" height="26" alt="5c7e5bef30a89d8f6f3ac19156673c0f" src="https://github.com/user-attachments/assets/026b5513-2e38-467f-92a4-752899600c8b" />
 <img width="20" height="20" alt="bunny47" src="https://github.com/user-attachments/assets/a2bdd9d0-669e-4499-85a6-c7356271ed1a" /> 
@@ -466,6 +470,8 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="99" height="56" alt="d0d3bd5d6f26ec8fdf450562c695638a" src="https://github.com/user-attachments/assets/9a51cd8d-8dac-4c62-86ef-adc0599482e9" />
 <img width="99" height="56" alt="2044b83b1ddced6281b4b0991bf28e99" src="https://github.com/user-attachments/assets/1a8c728e-6400-400e-84d9-309dd0507524" />
 <img width="99" height="56" alt="bcf764882334347539ffc22897363899" src="https://github.com/user-attachments/assets/9e61e33e-53fa-4756-a9ab-6a52a919e0b5" />
+<img width="99" height="55" alt="fe77a32249a4c61028f73d3c6aa31446" src="https://github.com/user-attachments/assets/8e697648-693c-42c2-a959-107b62ccedf7" />
+<img width="99" height="56" alt="94aa81e962de01ffa01f8e51142ab0d1" src="https://github.com/user-attachments/assets/f0292bc8-ce87-4b36-8e27-bd3d2bba4df3" />
 
 
 
@@ -496,6 +502,21 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="150" height="20" alt="cb1ebc2330e6683b0ab066c40e007c09" src="https://github.com/user-attachments/assets/62e17ea4-0482-448d-ade1-94c49641fd84" />
 <img width="150" height="20" alt="afaccf09998778ee16a38f05685a2bc1" src="https://github.com/user-attachments/assets/419c6a8a-c8a0-4f85-9aca-52d939dca79b" />
 <img width="150" height="20" alt="1090696997e4c7e6e9b2caa81bd3c8e7" src="https://github.com/user-attachments/assets/948ae2ea-baed-4230-a762-efca9d8360a1" />
+<img width="150" height="20" alt="smile" src="https://github.com/user-attachments/assets/ad19b69c-936b-4cda-a185-f1c04f8953f3" />
+<img width="150" height="20" alt="regretevator" src="https://github.com/user-attachments/assets/6528e860-a700-49f5-9e0c-78a72f295fb7" />
+<img width="150" height="20" alt="i-pirate-movies" src="https://github.com/user-attachments/assets/1a6970de-7f2f-4b52-aecf-102c19231085" />
+<img width="400" height="60" alt="katamari" src="https://github.com/user-attachments/assets/846959e9-f055-44b8-a21c-cd3ad57a6ee9" />
+<img width="150" height="20" alt="b00bies" src="https://github.com/user-attachments/assets/58f13e75-a7f2-4afa-a801-a5a7a01aad4d" />
+<img width="150" height="20" alt="msi" src="https://github.com/user-attachments/assets/7924be0f-34aa-43e8-b400-b0a4daccb237" />
+<img width="150" height="20" alt="Sd-Sebastian-loves-you" src="https://github.com/user-attachments/assets/f2a75252-8c05-4c5d-b611-afcb278535c3" />
+<img width="498" height="77" alt="hoodies" src="https://github.com/user-attachments/assets/6204396d-5e0c-46ee-8042-68b5e88183d6" />
+<img width="150" height="20" alt="neversolevedcube" src="https://github.com/user-attachments/assets/da9b4b1f-4e45-47fe-a8e6-c316bb1fbe62" />
+<img width="150" height="20" alt="multicolor" src="https://github.com/user-attachments/assets/56c2f596-f482-45ad-9a5b-0fd4394b7eee" />
+<img width="600" height="80" alt="wally" src="https://github.com/user-attachments/assets/08efacb1-d51f-490f-a30f-57669963e49f" />
+<img width="150" height="20" alt="imgonna" src="https://github.com/user-attachments/assets/46a5f2b7-85f2-4795-9577-d5b90c7484c0" />
+<img width="300" height="40" alt="0190-hittingfloor" src="https://github.com/user-attachments/assets/1ca47ab5-a6f4-4a23-8753-99aed3a296be" />
+<img width="150" height="30" alt="peepy" src="https://github.com/user-attachments/assets/774327f8-ab05-496a-9cf2-298a62a4640a" />
+<img width="150" height="20" alt="artistblinkie" src="https://github.com/user-attachments/assets/b73199c4-19a4-4340-a6ab-a92bca4c63f4" />
 
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
@@ -524,3 +545,4 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
 <div align="center">
+
