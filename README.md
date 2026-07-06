@@ -57,31 +57,27 @@ https://artfight.net/~MyNameIsSneeze
 
 
 <img width="236" height="244" alt="tumblr_7bf57a43da37e88dfeff08cbe8081091_36555f5a_250" src="https://github.com/user-attachments/assets/69cc83b8-264e-4bba-9d82-cdd080aa7c0b" />
-
 <img width="240" height="228" alt="tumblr_659f8ac4b8f631d9211eb4973f50b058_93596b2f_250" src="https://github.com/user-attachments/assets/f89cc244-6282-495a-b842-e3b39eb7274a" />
-
 <img width="224" height="216" alt="tumblr_1d77c54fdf5c698509c44bab93eaf89b_c7846511_250" src="https://github.com/user-attachments/assets/5eea0202-6cdf-4763-99d1-e00cf0a0508d" />
 
+<br>
+
 <img width="240" height="236" alt="tumblr_f822cf30d89a7d7dbafdbde787e11666_0c7ef8a6_250" src="https://github.com/user-attachments/assets/bf28ae68-8f4a-4af5-a7f9-afde36c61df4" />
-
 <img width="184" height="236" alt="tumblr_278aad3762f8765ec118a577e848c39e_6b12155c_250" src="https://github.com/user-attachments/assets/5203f75a-f822-4e22-a582-7e248fe6ad22" />
-
 <img width="200" height="184" alt="tumblr_829d61517120a9123e31f48b002fc02a_81faec75_250" src="https://github.com/user-attachments/assets/e9ddaf7b-1c3d-4250-9432-e2bf0e66927e" />
 
+<br>
+
 <img width="216" height="248" alt="tumblr_31595a9ce5a350e338d2849e44252f60_1730af43_250" src="https://github.com/user-attachments/assets/dde05b9e-db43-455f-bbca-fad24ae686b8" />
-
 <img width="232" height="240" alt="tumblr_b8ad31b0a4261802f9dd6a2165e6b1f1_5216da44_250" src="https://github.com/user-attachments/assets/769dd08c-48b4-47be-bf10-4aa254a4efac" />
-
 <img width="212" height="244" alt="tumblr_1703837aeec1b13a79aeb045f54c9e62_fa33f807_250" src="https://github.com/user-attachments/assets/4b178c8e-a623-4d0e-a570-bb01e4b7dfc3" />
 
+<br>
+
 <img width="188" height="256" alt="tumblr_0e5b401b52af470297b2829acbe0fdef_3253d52a_250" src="https://github.com/user-attachments/assets/2a9afa40-6bab-411a-b2a9-dbe1c0b08706" />
-
 <img width="212" height="260" alt="tumblr_f209ca1b90e922aed6d28901b2bddea2_9a34c770_250" src="https://github.com/user-attachments/assets/b34e7c2f-6825-4679-b9f8-455c5d5ea872" />
-
 <img width="212" height="248" alt="tumblr_7d86e6024c5c42bed45b9e4fc4e87fb7_3b99774c_250" src="https://github.com/user-attachments/assets/9da51183-add4-4e68-8b73-42cf04549dfb" />
-
 <img width="228" height="276" alt="tumblr_3cd0b20409903ab5b83542e04df24c1f_f6dfd6a0_250" src="https://github.com/user-attachments/assets/3a08b59f-a154-4133-abb6-79ec2d3025f1" />
-
 
 </details>
 
