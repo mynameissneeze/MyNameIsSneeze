@@ -471,20 +471,21 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="99" height="56" alt="2044b83b1ddced6281b4b0991bf28e99" src="https://github.com/user-attachments/assets/1a8c728e-6400-400e-84d9-309dd0507524" />
 <img width="99" height="55" alt="fe77a32249a4c61028f73d3c6aa31446" src="https://github.com/user-attachments/assets/8e697648-693c-42c2-a959-107b62ccedf7" />
 <img width="99" height="56" alt="94aa81e962de01ffa01f8e51142ab0d1" src="https://github.com/user-attachments/assets/f0292bc8-ce87-4b36-8e27-bd3d2bba4df3" />
-
-<br>
-
 <img width="99" height="56" alt="bcf764882334347539ffc22897363899" src="https://github.com/user-attachments/assets/9e61e33e-53fa-4756-a9ab-6a52a919e0b5" />
 
-
+<img width="600" height="80" alt="wally" src="https://github.com/user-attachments/assets/08efacb1-d51f-490f-a30f-57669963e49f" />
 <br>
 <img width="600" height="80" alt="a90d8b2a6146a54a5eaaa9fa4d8e0192" src="https://github.com/user-attachments/assets/3ed038e1-3ac6-4406-b1e9-a148287eaf73" />
+<br>
 <img width="600" height="80" alt="05925e828b51e1c816af12a52190fa94" src="https://github.com/user-attachments/assets/19120809-ad88-401a-ab16-4c1145a8ebc1" />
+<br>
 <img width="498" height="65" alt="15cf83a76d69f7e15e26a5d672d66b39" src="https://github.com/user-attachments/assets/e778bdcc-bfc2-474a-8957-c60f66007575" />
-<img width="600" height="80" alt="wally" src="https://github.com/user-attachments/assets/08efacb1-d51f-490f-a30f-57669963e49f" />
+<br>
 <img width="498" height="77" alt="hoodies" src="https://github.com/user-attachments/assets/6204396d-5e0c-46ee-8042-68b5e88183d6" />
+<br>
 <img width="400" height="60" alt="katamari" src="https://github.com/user-attachments/assets/846959e9-f055-44b8-a21c-cd3ad57a6ee9" />
-
+<br>
+<br>
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 # Smaller Blinkies
