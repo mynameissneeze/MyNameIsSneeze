@@ -461,15 +461,23 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="99" height="56" alt="b6fec6631bfc572b8c4f401fdc45282d" src="https://github.com/user-attachments/assets/b931f45d-a61f-4a01-932b-3485a85fe83b" />
 <img width="99" height="56" alt="43ac84b90aa2f46a9556192612b66e39" src="https://github.com/user-attachments/assets/e3b5529a-99d8-4ddb-a348-0ebc84a08e70" />
 <img width="99" height="55" alt="c93079bdbf935bc5171225fe6a2aef43" src="https://github.com/user-attachments/assets/dbc6d924-1a98-41c1-88cd-9e5b6dbef544" />
-<img width="99" height="55" alt="706a9b1554fb8baa9ef216cd041c6d6a" src="https://github.com/user-attachments/assets/3663cf9d-2969-4dff-b074-137e8631620b" />
 <img width="105" height="63" alt="ca5c7346e90ad517954d27f6da3a89ff" src="https://github.com/user-attachments/assets/f46561ed-0914-462d-8713-9267bac2c2f7" />
 <img width="99" height="56" alt="521ec1cffef08684880f7771795bcdce" src="https://github.com/user-attachments/assets/6732556d-0530-45eb-8fe5-98bc67dc878f" />
-<img width="99" height="56" alt="0165abd70ae92b0166e8d2fb2399d89f" src="https://github.com/user-attachments/assets/6ed57f34-bfeb-4999-8399-a6a12c336cb8" />
 <img width="99" height="56" alt="d0d3bd5d6f26ec8fdf450562c695638a" src="https://github.com/user-attachments/assets/9a51cd8d-8dac-4c62-86ef-adc0599482e9" />
 <img width="99" height="56" alt="2044b83b1ddced6281b4b0991bf28e99" src="https://github.com/user-attachments/assets/1a8c728e-6400-400e-84d9-309dd0507524" />
 <img width="99" height="55" alt="fe77a32249a4c61028f73d3c6aa31446" src="https://github.com/user-attachments/assets/8e697648-693c-42c2-a959-107b62ccedf7" />
 <img width="99" height="56" alt="94aa81e962de01ffa01f8e51142ab0d1" src="https://github.com/user-attachments/assets/f0292bc8-ce87-4b36-8e27-bd3d2bba4df3" />
 <img width="99" height="56" alt="bcf764882334347539ffc22897363899" src="https://github.com/user-attachments/assets/9e61e33e-53fa-4756-a9ab-6a52a919e0b5" />
+<img width="198" height="112" alt="tumblr_81f13d6e48c4f1d21dbbed539c6579c8_e9c4deff_250" src="https://github.com/user-attachments/assets/e699b764-7286-491e-80a3-f1f5ee11367c" />
+<img width="99" height="56" alt="tumblr_aded84ad3f7f918f1065d81fbbde1e52_217cac91_100" src="https://github.com/user-attachments/assets/70493958-68fd-4efe-8553-7b82a45646e1" />
+<img width="99" height="56" alt="tumblr_d096eb67cd6d562cec59c51ca0ec629e_c6aeeb07_100" src="https://github.com/user-attachments/assets/c96438ec-04de-460c-9535-c4347a5f94ad" />
+<img width="400" height="53" alt="tumblr_e60a70c36e11c012c42751bd194b7e57_4c716472_400" src="https://github.com/user-attachments/assets/9afe871f-a692-4c34-9599-23250411b31d" />
+
+
+<img width="99" height="56" alt="tumblr_56a724fe8c8e0477ccdd4140eb727418_27eba87f_100" src="https://github.com/user-attachments/assets/6aa4aca7-b429-4e02-99e9-82ef479b6f2c" />
+
+<img width="99" height="56" alt="tumblr_b8cda2df3951688b0685ef28fd3f1cac_aac74205_100" src="https://github.com/user-attachments/assets/7806e0fc-8955-4904-b205-bebf150ba90c" />
+
 <img width="99" height="55" alt="furby_1" src="https://github.com/user-attachments/assets/6b0df199-d41e-41d1-9785-2ad98b044ca9" />
 <img width="99" height="56" alt="silent_hill" src="https://github.com/user-attachments/assets/a80b67f3-cd0e-4787-b719-05ef04649749" />
 <img width="99" height="56" alt="futurama" src="https://github.com/user-attachments/assets/6ec6865a-cb1e-424f-8620-4f75b3dde433" />
@@ -492,11 +500,14 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <br>
 <img width="300" height="40" alt="0235-rainbowstar" src="https://github.com/user-attachments/assets/02a82b3b-1cc5-4854-9f3f-d071b666c477" />
 <br>
+<img width="400" height="54" alt="tumblr_fcc49e5925062a3aeb7edf3a9bc2593e_0635dc00_400" src="https://github.com/user-attachments/assets/1df839bb-866d-4f4f-9291-a86ebf145845" />
+
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 # Smaller Blinkies
 
 <img width="88" height="31" alt="u239b4" src="https://github.com/user-attachments/assets/676a27f6-48b2-437e-9b7f-8d6d2f6289fe" /> 
+<img width="150" height="20" alt="tumblr_4078d65fea6821cd72ca12b9d0171f22_ddabf5b7_250" src="https://github.com/user-attachments/assets/5c022a8f-e3cd-45cb-9a68-a825ecb08ef1" />
 <img width="88" height="31" alt="strawberry" src="https://github.com/user-attachments/assets/152ba778-81bb-4426-acf7-13a633b7f7b1" /> 
 <img width="88" height="31" alt="reshirii" src="https://github.com/user-attachments/assets/6b9d1c37-412d-410b-874e-95821b0d3e99" /> 
 <img width="88" height="31" alt="imhigh" src="https://github.com/user-attachments/assets/0644a81f-f791-4c97-8dfa-daf741882622" />
@@ -512,7 +523,15 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="150" height="20" alt="266c8e8347ac3800bb5b75a0cefae6f4" src="https://github.com/user-attachments/assets/e601a9e8-49d5-4945-ab74-44b4c78d5d60" />
 <img width="150" height="20" alt="cb1ebc2330e6683b0ab066c40e007c09" src="https://github.com/user-attachments/assets/62e17ea4-0482-448d-ade1-94c49641fd84" />
 <img width="150" height="20" alt="afaccf09998778ee16a38f05685a2bc1" src="https://github.com/user-attachments/assets/419c6a8a-c8a0-4f85-9aca-52d939dca79b" />
+<img width="150" height="20" alt="tumblr_909abbc13dab3929ae96b2dc1e77fb8b_d91135c9_250" src="https://github.com/user-attachments/assets/5c61263c-f62c-407a-8951-60bf74df71a6" />
+<img width="150" height="20" alt="tumblr_d38c51a63241eaaf565eb517455cfaba_675146cf_250" src="https://github.com/user-attachments/assets/0a265b4d-abdc-48a1-b67a-5b5f7c4e9c02" />
+
 <img width="150" height="20" alt="1090696997e4c7e6e9b2caa81bd3c8e7" src="https://github.com/user-attachments/assets/948ae2ea-baed-4230-a762-efca9d8360a1" />
+<img width="150" height="20" alt="tumblr_a4cca1232b1f15b791c5e7d5b6eaf7d5_a7f539d2_250" src="https://github.com/user-attachments/assets/267d3ffa-8053-4cb6-ac58-f5cf1f982dc4" />
+
+<img width="150" height="20" alt="tumblr_1c40cb7bc85d3d69e94df4bba35192ec_8be032ff_250" src="https://github.com/user-attachments/assets/d171bde3-3186-4275-b1d3-e61a92cedf67" />
+<img width="150" height="20" alt="tumblr_6525a398522f84e18ed61940ceb018e8_6e9f0ac5_250" src="https://github.com/user-attachments/assets/9291e02c-71e0-4ef0-bed2-76eb9711892d" />
+
 <img width="150" height="20" alt="smile" src="https://github.com/user-attachments/assets/ad19b69c-936b-4cda-a185-f1c04f8953f3" />
 <img width="150" height="20" alt="regretevator" src="https://github.com/user-attachments/assets/6528e860-a700-49f5-9e0c-78a72f295fb7" />
 <img width="150" height="20" alt="i-pirate-movies" src="https://github.com/user-attachments/assets/1a6970de-7f2f-4b52-aecf-102c19231085" />
