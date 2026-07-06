@@ -49,40 +49,58 @@ https://artfight.net/~MyNameIsSneeze
 <img width="540" height="32" alt="tumblr_52b4c107a413fda41692d64a186f53ed_50f43d7e_540" src="https://github.com/user-attachments/assets/0722659f-a665-4b4c-887d-4a0cda0ff027" />
 
 <details>
- <summary> <img width="20" height="20" alt="apple3" src="https://github.com/user-attachments/assets/fbcd104f-6615-4e80-81c0-10b0d088a830" /> See my most commonly used PonyTown skins!<img width="20" height="20" alt="wtAThJF" src="https://github.com/user-attachments/assets/d2c1e21c-aba5-4dfa-b98c-3490b498393b" />
-:</summary>
+<summary>
+<img src="https://github.com/user-attachments/assets/fbcd104f-6615-4e80-81c0-10b0d088a830" width="20">
+See my most commonly used PonyTown skins!
+<img src="https://github.com/user-attachments/assets/d2c1e21c-aba5-4dfa-b98c-3490b498393b" width="20">
+</summary>
 
+<br>
 
 <div align="center">
 
+<!-- Row 1 -->
+<img src="https://github.com/user-attachments/assets/69cc83b8-264e-4bba-9d82-cdd080aa7c0b" width="200">
+&nbsp;
+<img src="https://github.com/user-attachments/assets/f89cc244-6282-495a-b842-e3b39eb7274a" width="200">
+&nbsp;
+<img src="https://github.com/user-attachments/assets/5eea0202-6cdf-4763-99d1-e00cf0a0508d" width="200">
 
-<img width="236" height="244" alt="tumblr_7bf57a43da37e88dfeff08cbe8081091_36555f5a_250" src="https://github.com/user-attachments/assets/69cc83b8-264e-4bba-9d82-cdd080aa7c0b" />
-<img width="240" height="228" alt="tumblr_659f8ac4b8f631d9211eb4973f50b058_93596b2f_250" src="https://github.com/user-attachments/assets/f89cc244-6282-495a-b842-e3b39eb7274a" />
-<img width="224" height="216" alt="tumblr_1d77c54fdf5c698509c44bab93eaf89b_c7846511_250" src="https://github.com/user-attachments/assets/5eea0202-6cdf-4763-99d1-e00cf0a0508d" />
+<br><br>
 
-<br>
+<!-- Row 2 -->
+<img src="https://github.com/user-attachments/assets/bf28ae68-8f4a-4af5-a7f9-afde36c61df4" width="200">
+&nbsp;
+<img src="https://github.com/user-attachments/assets/5203f75a-f822-4e22-a582-7e248fe6ad22" width="200">
+&nbsp;
+<img src="https://github.com/user-attachments/assets/e9ddaf7b-1c3d-4250-9432-e2bf0e66927e" width="200">
 
-<img width="240" height="236" alt="tumblr_f822cf30d89a7d7dbafdbde787e11666_0c7ef8a6_250" src="https://github.com/user-attachments/assets/bf28ae68-8f4a-4af5-a7f9-afde36c61df4" />
-<img width="184" height="236" alt="tumblr_278aad3762f8765ec118a577e848c39e_6b12155c_250" src="https://github.com/user-attachments/assets/5203f75a-f822-4e22-a582-7e248fe6ad22" />
-<img width="200" height="184" alt="tumblr_829d61517120a9123e31f48b002fc02a_81faec75_250" src="https://github.com/user-attachments/assets/e9ddaf7b-1c3d-4250-9432-e2bf0e66927e" />
+<br><br>
 
-<br>
+<!-- Row 3 -->
+<img src="https://github.com/user-attachments/assets/dde05b9e-db43-455f-bbca-fad24ae686b8" width="200">
+&nbsp;
+<img src="https://github.com/user-attachments/assets/769dd08c-48b4-47be-bf10-4aa254a4efac" width="200">
+&nbsp;
+<img src="https://github.com/user-attachments/assets/4b178c8e-a623-4d0e-a570-bb01e4b7dfc3" width="200">
 
-<img width="216" height="248" alt="tumblr_31595a9ce5a350e338d2849e44252f60_1730af43_250" src="https://github.com/user-attachments/assets/dde05b9e-db43-455f-bbca-fad24ae686b8" />
-<img width="232" height="240" alt="tumblr_b8ad31b0a4261802f9dd6a2165e6b1f1_5216da44_250" src="https://github.com/user-attachments/assets/769dd08c-48b4-47be-bf10-4aa254a4efac" />
-<img width="212" height="244" alt="tumblr_1703837aeec1b13a79aeb045f54c9e62_fa33f807_250" src="https://github.com/user-attachments/assets/4b178c8e-a623-4d0e-a570-bb01e4b7dfc3" />
+<br><br>
 
-<br>
+<!-- Row 4 -->
+<img src="https://github.com/user-attachments/assets/2a9afa40-6bab-411a-b2a9-dbe1c0b08706" width="200">
+&nbsp;
+<img src="https://github.com/user-attachments/assets/b34e7c2f-6825-4679-b9f8-455c5d5ea872" width="200">
+&nbsp;
+<img src="https://github.com/user-attachments/assets/9da51183-add4-4e68-8b73-42cf04549dfb" width="200">
 
-<img width="188" height="256" alt="tumblr_0e5b401b52af470297b2829acbe0fdef_3253d52a_250" src="https://github.com/user-attachments/assets/2a9afa40-6bab-411a-b2a9-dbe1c0b08706" />
-<img width="212" height="260" alt="tumblr_f209ca1b90e922aed6d28901b2bddea2_9a34c770_250" src="https://github.com/user-attachments/assets/b34e7c2f-6825-4679-b9f8-455c5d5ea872" />
-<img width="212" height="248" alt="tumblr_7d86e6024c5c42bed45b9e4fc4e87fb7_3b99774c_250" src="https://github.com/user-attachments/assets/9da51183-add4-4e68-8b73-42cf04549dfb" />
-<img width="228" height="276" alt="tumblr_3cd0b20409903ab5b83542e04df24c1f_f6dfd6a0_250" src="https://github.com/user-attachments/assets/3a08b59f-a154-4133-abb6-79ec2d3025f1" />
+<br><br>
+
+<!-- Last Pony -->
+<img src="https://github.com/user-attachments/assets/3a08b59f-a154-4133-abb6-79ec2d3025f1" width="200">
+
+</div>
 
 </details>
-
-<div align="center">
-
 
 <br>
  25 • Taken • She/Her • They/Them 
