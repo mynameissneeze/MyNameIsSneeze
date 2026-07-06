@@ -479,7 +479,9 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="600" height="80" alt="a90d8b2a6146a54a5eaaa9fa4d8e0192" src="https://github.com/user-attachments/assets/3ed038e1-3ac6-4406-b1e9-a148287eaf73" />
 <img width="600" height="80" alt="05925e828b51e1c816af12a52190fa94" src="https://github.com/user-attachments/assets/19120809-ad88-401a-ab16-4c1145a8ebc1" />
 <img width="498" height="65" alt="15cf83a76d69f7e15e26a5d672d66b39" src="https://github.com/user-attachments/assets/e778bdcc-bfc2-474a-8957-c60f66007575" />
-
+<img width="600" height="80" alt="wally" src="https://github.com/user-attachments/assets/08efacb1-d51f-490f-a30f-57669963e49f" />
+<img width="498" height="77" alt="hoodies" src="https://github.com/user-attachments/assets/6204396d-5e0c-46ee-8042-68b5e88183d6" />
+<img width="400" height="60" alt="katamari" src="https://github.com/user-attachments/assets/846959e9-f055-44b8-a21c-cd3ad57a6ee9" />
 
 
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
@@ -505,14 +507,11 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="150" height="20" alt="smile" src="https://github.com/user-attachments/assets/ad19b69c-936b-4cda-a185-f1c04f8953f3" />
 <img width="150" height="20" alt="regretevator" src="https://github.com/user-attachments/assets/6528e860-a700-49f5-9e0c-78a72f295fb7" />
 <img width="150" height="20" alt="i-pirate-movies" src="https://github.com/user-attachments/assets/1a6970de-7f2f-4b52-aecf-102c19231085" />
-<img width="400" height="60" alt="katamari" src="https://github.com/user-attachments/assets/846959e9-f055-44b8-a21c-cd3ad57a6ee9" />
 <img width="150" height="20" alt="b00bies" src="https://github.com/user-attachments/assets/58f13e75-a7f2-4afa-a801-a5a7a01aad4d" />
 <img width="150" height="20" alt="msi" src="https://github.com/user-attachments/assets/7924be0f-34aa-43e8-b400-b0a4daccb237" />
 <img width="150" height="20" alt="Sd-Sebastian-loves-you" src="https://github.com/user-attachments/assets/f2a75252-8c05-4c5d-b611-afcb278535c3" />
-<img width="498" height="77" alt="hoodies" src="https://github.com/user-attachments/assets/6204396d-5e0c-46ee-8042-68b5e88183d6" />
 <img width="150" height="20" alt="neversolevedcube" src="https://github.com/user-attachments/assets/da9b4b1f-4e45-47fe-a8e6-c316bb1fbe62" />
 <img width="150" height="20" alt="multicolor" src="https://github.com/user-attachments/assets/56c2f596-f482-45ad-9a5b-0fd4394b7eee" />
-<img width="600" height="80" alt="wally" src="https://github.com/user-attachments/assets/08efacb1-d51f-490f-a30f-57669963e49f" />
 <img width="150" height="20" alt="imgonna" src="https://github.com/user-attachments/assets/46a5f2b7-85f2-4795-9577-d5b90c7484c0" />
 <img width="300" height="40" alt="0190-hittingfloor" src="https://github.com/user-attachments/assets/1ca47ab5-a6f4-4a23-8753-99aed3a296be" />
 <img width="150" height="30" alt="peepy" src="https://github.com/user-attachments/assets/774327f8-ab05-496a-9cf2-298a62a4640a" />
