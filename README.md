@@ -351,75 +351,104 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <img width="360" height="360" alt="tumblr_fb4f0ad7a075c2de12f0be1c92135950_6e8feeeb_400" src="https://github.com/user-attachments/assets/f70228fc-2532-478d-86e9-d4fb231f094d" />
 
-## <img width="20" height="20" alt="lqrOvBt" src="https://github.com/user-attachments/assets/3c43736d-d86f-47c1-8ca4-2f2bd6b1834a" />  Favorite Music / Artists <img width="20" height="20" alt="lqrOvBt" src="https://github.com/user-attachments/assets/3c43736d-d86f-47c1-8ca4-2f2bd6b1834a" /> 
- 
-Gorillaz • Studio Killers • Caravan Palace • Jack Stauber • Tom Cardy • Jakey • Glaze • The Living Tombstone • Femtanyl • Rare Americans • Sia • girl in red • Vocaloid • Daughter • Mindless Self Indulgence
+<div align="center">
 
-## <img width="20" height="20" alt="g3JmCi0" src="https://github.com/user-attachments/assets/a2870703-7cb3-4e88-852f-7dea0cd46b6e" /> Favorite Artists <img width="20" height="20" alt="g3JmCi0" src="https://github.com/user-attachments/assets/a2870703-7cb3-4e88-852f-7dea0cd46b6e" /> 
+<img width="101" src="https://github.com/user-attachments/assets/6b54a5ed-8713-4a11-a5c8-71feaf54956b">
 
-Zalinki • Lisa Frank • Zach Hadel • Chris O'Neill • Amy Brown
+<img width="540" src="https://github.com/user-attachments/assets/fc7744df-963c-4e5a-ad79-63fac5df47db">
 
-## <img width="20" height="20" alt="Xq773u8" src="https://github.com/user-attachments/assets/9e482c5e-5201-41c0-a7d5-435b7d0337ed" /> Favorite Books / Comics <img width="20" height="20" alt="Xq773u8" src="https://github.com/user-attachments/assets/9e482c5e-5201-41c0-a7d5-435b7d0337ed" />
+</div>
 
-Life Is Strange • Scott Pilgrim
+---
 
-##   <img width="20" height="20" alt="2rpoJ9c" src="https://github.com/user-attachments/assets/ed55ebc2-1026-4585-803f-3f84995e39ee" /> Favorite Brands <img width="20" height="20" alt="pSATbKG" src="https://github.com/user-attachments/assets/dc434305-cf2b-4aaf-9b5d-f08d5a3909e2" /> 
+## <img width="20" src="https://github.com/user-attachments/assets/3c43736d-d86f-47c1-8ca4-2f2bd6b1834a"> Favorite Music / Artists <img width="20" src="https://github.com/user-attachments/assets/3c43736d-d86f-47c1-8ca4-2f2bd6b1834a">
 
+🎵 Gorillaz • Studio Killers • Caravan Palace • Jack Stauber • Tom Cardy • Jakey • Glaze • The Living Tombstone • Femtanyl • Rare Americans • Sia • girl in red • Vocaloid • Daughter • Mindless Self Indulgence
 
-Sanrio • Squishmallows • Arizona Tea • Starbucks • Sugarbunnies
+---
 
-## <img width="20" height="20" alt="GTPnwxJ" src="https://github.com/user-attachments/assets/caa11849-a4f0-4370-8897-c7405b3deaf8" /> Favorite Smells <img width="20" height="20" alt="GTPnwxJ" src="https://github.com/user-attachments/assets/caa11849-a4f0-4370-8897-c7405b3deaf8" />
+## <img width="20" src="https://github.com/user-attachments/assets/a2870703-7cb3-4e88-852f-7dea0cd46b6e"> Favorite Artists <img width="20" src="https://github.com/user-attachments/assets/a2870703-7cb3-4e88-852f-7dea0cd46b6e">
 
-Wild Spirit Driftwood Perfume • Chlorine • Smoke • Fire
+🎨 Zalinki • Lisa Frank • Zach Hadel • Chris O'Neill • Amy Brown
 
-## <img width="20" height="20" alt="EFXvBxB" src="https://github.com/user-attachments/assets/1a8c27b9-c9f8-46da-b952-4a1e2de9a903" /> Favorite Bugs <img width="20" height="20" alt="EFXvBxB" src="https://github.com/user-attachments/assets/1a8c27b9-c9f8-46da-b952-4a1e2de9a903" />
+---
 
- Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Jumping Spiders
+## <img width="20" src="https://github.com/user-attachments/assets/9e482c5e-5201-41c0-a7d5-435b7d0337ed"> Favorite Books / Comics <img width="20" src="https://github.com/user-attachments/assets/9e482c5e-5201-41c0-a7d5-435b7d0337ed">
 
-## <img width="20" height="20" alt="7mhiaS4" src="https://github.com/user-attachments/assets/255e9bd9-f5dd-410b-81dd-124a641910d5" />  Favorite Pokémon <img width="20" height="20" alt="Lou6bmV" src="https://github.com/user-attachments/assets/14435cb6-6442-4efb-b34e-c0f66c2d832f" />
+📚 Life Is Strange • Scott Pilgrim
 
+---
 
-Snorlax • Hypno • Ditto • Miltank • Piplup • Buneary • Sawsbuck • Espurr • Mimikyu • Alcremie • Maushold • Oinkologne • Scream Tail
+## <img width="20" src="https://github.com/user-attachments/assets/ed55ebc2-1026-4585-803f-3f84995e39ee"> Favorite Brands <img width="20" src="https://github.com/user-attachments/assets/dc434305-cf2b-4aaf-9b5d-f08d5a3909e2">
 
-## <img width="20" height="20" alt="sh0Wueo" src="https://github.com/user-attachments/assets/f3b8bcfb-6b5d-4b82-b2fa-f22c05de1fb6" /> Favorite Idol <img width="20" height="20" alt="sh0Wueo" src="https://github.com/user-attachments/assets/f3b8bcfb-6b5d-4b82-b2fa-f22c05de1fb6" />
+🛍️ Sanrio • Squishmallows • Arizona Tea • Starbucks • Sugarbunnies
 
-Jungkook
+---
 
-##  <img width="20" height="20" alt="Yvhie7a" src="https://github.com/user-attachments/assets/fd4287d1-0591-4d04-8065-b101a41e308d" /> Favorite Roblox Creators <img width="20" height="20" alt="Yvhie7a" src="https://github.com/user-attachments/assets/fd4287d1-0591-4d04-8065-b101a41e308d" />
+## <img width="20" src="https://github.com/user-attachments/assets/caa11849-a4f0-4370-8897-c7405b3deaf8"> Favorite Smells <img width="20" src="https://github.com/user-attachments/assets/caa11849-a4f0-4370-8897-c7405b3deaf8">
 
+🌊 Wild Spirit Driftwood Perfume • Chlorine • Smoke • Fire
 
-Starbby • Luminfur
+---
 
-## <img width="20" height="20" alt="hyLdyyr" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7" /> Aesthetics <img width="20" height="20" alt="hyLdyyr" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7" />
+## <img width="20" src="https://github.com/user-attachments/assets/1a8c27b9-c9f8-46da-b952-4a1e2de9a903"> Favorite Bugs <img width="20" src="https://github.com/user-attachments/assets/1a8c27b9-c9f8-46da-b952-4a1e2de9a903">
 
- Harajuku • Frutiger Aero • Webcore
+🦋 Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Jumping Spiders
 
-## <img width="20" height="20" alt="S89ceBR" src="https://github.com/user-attachments/assets/752f14ca-5544-408c-a55a-734a732b3425" /> Phobias <img width="20" height="20" alt="S89ceBR" src="https://github.com/user-attachments/assets/752f14ca-5544-408c-a55a-734a732b3425" />
+---
 
+## <img width="20" src="https://github.com/user-attachments/assets/255e9bd9-f5dd-410b-81dd-124a641910d5"> Favorite Pokémon <img width="20" src="https://github.com/user-attachments/assets/14435cb6-6442-4efb-b34e-c0f66c2d832f">
 
+⚡ Snorlax • Hypno • Ditto • Miltank • Piplup • Buneary • Sawsbuck • Espurr • Mimikyu • Alcremie • Maushold • Oinkologne • Scream Tail
 
- Thalassophobia • Trypophobia • Acrophobia • Scopophobia • Megalophobia
+---
 
-## <img width="20" height="20" alt="s3N3imw" src="https://github.com/user-attachments/assets/462dadd9-db08-4dbd-a089-f6a096787850" /> Favorite Animal Crossing Villager ## <img width="20" height="20" alt="s3N3imw" src="https://github.com/user-attachments/assets/462dadd9-db08-4dbd-a089-f6a096787850" />
-**Pierce**
+## <img width="20" src="https://github.com/user-attachments/assets/f3b8bcfb-6b5d-4b82-b2fa-f22c05de1fb6"> Favorite Idol <img width="20" src="https://github.com/user-attachments/assets/f3b8bcfb-6b5d-4b82-b2fa-f22c05de1fb6">
 
-## <img width="20" height="20" alt="coffee22" src="https://github.com/user-attachments/assets/dc9b342b-6a61-4095-b016-64d53fd9fea8" /> Starbucks Order
- Trenta Iced Coffee
- Extra Sweet Cream
- Four Pumps White Mocha
- One Shot Espresso
+💜 Jungkook
 
-Passion Iced Tea Lemonade
-No Ice Extra 
-Lemon
+---
 
-<img width="101" height="72" alt="tumblr_92fa73c4478041cea3c30b92d7bb2f69_c1a5ee75_250" src="https://github.com/user-attachments/assets/6b54a5ed-8713-4a11-a5c8-71feaf54956b" />
+## <img width="20" src="https://github.com/user-attachments/assets/fd4287d1-0591-4d04-8065-b101a41e308d"> Favorite Roblox Creators <img width="20" src="https://github.com/user-attachments/assets/fd4287d1-0591-4d04-8065-b101a41e308d">
+
+🎮 Starbby • Luminfur
+
+---
+
+## <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7"> Aesthetics <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7">
+
+🌈 Harajuku • Frutiger Aero • Webcore
+
+---
+
+## <img width="20" src="https://github.com/user-attachments/assets/752f14ca-5544-408c-a55a-734a732b3425"> Phobias <img width="20" src="https://github.com/user-attachments/assets/752f14ca-5544-408c-a55a-734a732b3425">
+
+😰 Thalassophobia • Trypophobia • Acrophobia • Scopophobia • Megalophobia
+
+---
+
+## <img width="20" src="https://github.com/user-attachments/assets/462dadd9-db08-4dbd-a089-f6a096787850"> Favorite Animal Crossing Villager <img width="20" src="https://github.com/user-attachments/assets/462dadd9-db08-4dbd-a089-f6a096787850">
+
+🐦 **Pierce**
+
+---
+
+## <img width="20" src="https://github.com/user-attachments/assets/dc9b342b-6a61-4095-b016-64d53fd9fea8"> Starbucks Order <img width="20" src="https://github.com/user-attachments/assets/dc9b342b-6a61-4095-b016-64d53fd9fea8">
+
+☕ **Trenta Iced Coffee**
+- Extra Sweet Cream
+- Four Pumps White Mocha
+- One Shot Espresso
+
+🍋 **Passion Iced Tea Lemonade**
+- No Ice
+- Extra Lemon
 
 <div align="center">
 
+<img width="540" src="https://github.com/user-attachments/assets/fc7744df-963c-4e5a-ad79-63fac5df47db">
 
-<img width="540" height="63" alt="tumblr_fbb18f5ccaa80b32c5eee9b0387f2100_97631657_540" src="https://github.com/user-attachments/assets/fc7744df-963c-4e5a-ad79-63fac5df47db" />
-
+</div>
        
 
 ──────────── ✦ ────────────
