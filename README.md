@@ -2,6 +2,7 @@
 
 <br>
 
+
 <img width="115" height="29" alt="tumblr_7d8287820f49cfff17e4488b50dc5385_3a5348f4_250" src="https://github.com/user-attachments/assets/f339ae61-9a7f-4f4e-9bfe-5383a21ecc6b" />
 
 <br>
@@ -607,7 +608,7 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <br>
 <img width="150" height="20" alt="dd5ffi6-cc568e0b-1257-4b41-aec8-ceb6cc0548da" src="https://github.com/user-attachments/assets/66a76fbc-d21e-4324-aa3d-5022aff2cb22" />
-
+<img width="150" height="20" alt="tumblr_d3615cc187f6253cf271db2d12a53aa0_94a43c38_250" src="https://github.com/user-attachments/assets/bb28c57b-26c6-4a43-a217-5617ae298860" />
 <img width="150" height="20" alt="tumblr_dec8c868dfa20b1ba116946197433669_a73e0a12_250" src="https://github.com/user-attachments/assets/4b902d03-3d4d-4e3e-bbcb-1dc398261d6f" />
 <img width="150" height="20" alt="tumblr_b4d8011566dfed738dcb5dee2fd3a774_d115860c_250" src="https://github.com/user-attachments/assets/07332cd7-1cc7-4fc8-8669-c612e13e0568" />
 <img width="150" height="20" alt="tumblr_bd95c499bd743e0404c4ee3aa93fd4da_d8392702_250" src="https://github.com/user-attachments/assets/5372b6f6-1043-428b-9742-adfca9b2ea65" />
@@ -669,6 +670,9 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <img width="300" height="40" alt="0235-rainbowstar" src="https://github.com/user-attachments/assets/02a82b3b-1cc5-4854-9f3f-d071b666c477" />
 <br>
 <img width="400" height="54" alt="tumblr_fcc49e5925062a3aeb7edf3a9bc2593e_0635dc00_400" src="https://github.com/user-attachments/assets/1df839bb-866d-4f4f-9291-a86ebf145845" />
+<br>
+<img width="540" height="139" alt="tumblr_e1277071bbf532037c8d4e836016a9de_be44230b_540" src="https://github.com/user-attachments/assets/46da5c9e-8dbf-4162-85dd-a30c925cd6c1" />
+
 </details>
 
 ---
@@ -687,6 +691,10 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <!-- Stamps -->
 
 </div>
+<img width="99" height="56" alt="tumblr_dfdad60a3f7bc8f629eae288a2e115af_8fcdbf86_100" src="https://github.com/user-attachments/assets/8d895282-fb39-44da-984f-e55881022a24" />
+<img width="99" height="56" alt="tumblr_3281f011ef027e35ff0d19fcb0b96ee4_df3afd3c_100" src="https://github.com/user-attachments/assets/342011ab-5fde-49d3-b5f2-d573c6d3b346" />
+<img width="99" height="56" alt="tumblr_13cdc5ff7ac65260eb3083239d0ef59c_15c7bfd6_100" src="https://github.com/user-attachments/assets/165feba2-86dc-445d-839b-8b4c38bbb98a" />
+<img width="105" height="59" alt="tumblr_1ada45ce984681a5783a4fb59bd046fa_77fd526b_250" src="https://github.com/user-attachments/assets/eac36d90-a8a7-461e-8d3e-f159df83c9c4" />
 <img width="99" height="55" alt="tumblr_e4858f90f2dfa9f82670dd180c79ff33_d9555bc5_100" src="https://github.com/user-attachments/assets/4e3b8a53-4736-487f-8ab1-983ea9f46fbc" />
 <img width="100" height="58" alt="c5685ef4" src="https://github.com/user-attachments/assets/5dcd1b8a-ff18-4abf-ac52-720ce5ec6e17" />
 <img width="99" height="56" alt="tumblr_6e3c4b4fa9de5bb28a332525d16abc40_534ca8db_250" src="https://github.com/user-attachments/assets/3e395ae1-57f6-46c5-85f5-12d69ba9ae96" />
@@ -841,15 +849,20 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <img width="234" height="200" alt="200" src="https://github.com/user-attachments/assets/2a570b35-6f08-4bb6-8efa-a6cc20ee770d" />
 
-<br>
-
 <img width="222" height="200" alt="200" src="https://github.com/user-attachments/assets/b224f077-862b-4ec1-90bb-608ac030f786" />
 
 <br>
 
 <img width="480" height="480" alt="giphy" src="https://github.com/user-attachments/assets/58211099-47a3-4c4f-9286-8c6f3afb65d3" />
 
+<br>
 
+<img width="100" height="100" alt="tumblr_f8b76e6b18e8bf2ad25162ff827d138e_fa0b7f11_100" src="https://github.com/user-attachments/assets/66f11b2f-163a-4f60-ae2a-e08ee1d08557" />
+<img width="100" height="100" alt="tumblr_ae7ece750fd16d5d0a9e8895f2118a60_51362d57_100" src="https://github.com/user-attachments/assets/e682ded2-7727-4ef0-9cf7-6a9f7a4020c8" />
+
+<br>
+
+<img width="200" height="200" alt="tumblr_704c55827e395e31cb5ba8ea9049d290_f6476c88_250" src="https://github.com/user-attachments/assets/38e9456a-9120-45d6-a65d-4d0694ac9b94" />
 
 
 </details>
