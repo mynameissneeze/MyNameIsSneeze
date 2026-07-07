@@ -414,6 +414,10 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <img width="20" height="20" alt="674246e4f2aa504d8e10988a1d2a8fea" src="https://github.com/user-attachments/assets/35765a7e-4f75-4037-9d74-9647b6a92b74" />
 <img width="20" height="20" alt="3db9ed832a4384b52d75a1f3d864a4cf" src="https://github.com/user-attachments/assets/c1cefbc2-ae4c-4250-8a11-4f211d659181" /> 
 <img width="20" height="20" alt="dd7a5c715d81e955b2c6f9339b01dc56" src="https://github.com/user-attachments/assets/38a5ff16-865b-498f-9462-7d5e6d06b332" /> 
+<img width="20" height="20" alt="tumblr_5fa2e6a72fb1578060a6ee29a02c2ed3_f77b8891_75" src="https://github.com/user-attachments/assets/0fdf37f1-2485-4ce1-8db0-e76494e250f5" />
+<img width="20" height="20" alt="b7ZOSjY" src="https://github.com/user-attachments/assets/0ac73f6d-dbe7-435a-82c0-ae5a240282f6" />
+<img width="20" height="20" alt="ohhw3ek" src="https://github.com/user-attachments/assets/2b1bcd27-7ae8-46cf-8b6f-16acee27e80a" />
+
 </div>
 
 <div align="center">
@@ -613,6 +617,11 @@ FAVICONS <img width="20" height="20" alt="aQzs1e6" src="https://github.com/user-
 <br>
 <img width="500" height="273" alt="giphy" src="https://github.com/user-attachments/assets/739ba524-bf8e-4adb-9938-ab55c521b4f3" />
 
+<div align="center">
+
+<img src="https://64.media.tumblr.com/4fde25a0e3ad3a647ee63c3a2d7dd3e6/8e26c760daf1b998-0a/s1280x1920/74802abe3a15918c30bb7bdbe6052e8c1fab8c64.gif" width="250">
+
+</div>
 -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
 <div align="center">
