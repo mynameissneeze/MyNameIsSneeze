@@ -265,8 +265,13 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 <br><br>
 
-<img src="https://github.com/user-attachments/assets/ac951b13-b7b9-45e9-8eaa-4a33d094522e" width="145">
-
+<a href="https://youtube.com/playlist?list=PLNmbST1519bJZDVvHOTdZ-dnjgpLMFCFv&si=FlTddEscSPxKyjT4">
+  <img
+    src="https://github.com/user-attachments/assets/ac951b13-b7b9-45e9-8eaa-4a33d094522e"
+    width="145"
+    alt="My YouTube Playlist"
+  >
+</a>
 <img src="https://github.com/user-attachments/assets/9f32009f-33d7-4cf2-8416-ff697a322e27" width="145">
 
 <br><br>
