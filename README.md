@@ -608,8 +608,10 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <div align="center">
 
 <!-- Normal sized -->
-<img width="150" height="20" alt="c64" src="https://github.com/user-attachments/assets/cfe26081-72f3-4d2e-b5c1-1c4192d05149" />
+<img width="150" height="20" alt="v66" src="https://github.com/user-attachments/assets/ef71de47-4d31-4ee1-b036-4592a689b531" />
 
+<img width="150" height="20" alt="c64" src="https://github.com/user-attachments/assets/cfe26081-72f3-4d2e-b5c1-1c4192d05149" />
+<img width="150" height="20" alt="e81" src="https://github.com/user-attachments/assets/692585db-7506-42a5-a1c2-819cd7667012" />
 <img width="150" height="20" alt="dfow7my-756f7e46-bd34-417e-8161-3c268e28a615" src="https://github.com/user-attachments/assets/b95ff0b8-32a9-4862-96ba-7677abf1124d" />
 <img width="150" height="20" alt="dd5ffi6-cc568e0b-1257-4b41-aec8-ceb6cc0548da" src="https://github.com/user-attachments/assets/66a76fbc-d21e-4324-aa3d-5022aff2cb22" />
 <img width="150" height="20" alt="tumblr_d3615cc187f6253cf271db2d12a53aa0_94a43c38_250" src="https://github.com/user-attachments/assets/bb28c57b-26c6-4a43-a217-5617ae298860" />
@@ -735,6 +737,7 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <!-- Stamps -->
 
 </div>
+<img width="99" height="56" alt="djh35vg-2994eab6-ee8c-4bb2-ada8-54fb429d07fb" src="https://github.com/user-attachments/assets/d2fd4016-2ac5-4b5b-b683-80b6f109d1c4" />
 <img width="101" height="57" alt="buttons" src="https://github.com/user-attachments/assets/92537da2-1c9c-421c-ad21-9a9deae84378" />
 <img width="99" height="56" alt="gorillaz" src="https://github.com/user-attachments/assets/e280d986-dc88-4588-bfbf-74358a2e389c" />
 <img width="99" height="56" alt="flubtershy" src="https://github.com/user-attachments/assets/e91319e9-dcdc-439b-8594-da0521bf609b" />
