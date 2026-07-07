@@ -707,13 +707,11 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <br>
 
-
-</div>
-</div>
-
 </details>
 
 <br>
+
+<div align="center">
 
 <details>
 <summary>
@@ -810,7 +808,7 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <details>
 <summary>
   
-### 🖼️ Pixels
+## 🖼️ Pixels
 
 </summary>
 
@@ -855,7 +853,7 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <details>
 <summary>
 
-### 🎞️ Favorite GIFs
+## 🎞️ Favorite GIFs
 
 </summary>
 
@@ -923,7 +921,7 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <details>
 <summary>
 
-### 🍄 Random Internet Things
+## 🍄 Random Internet Things
 
 </summary>
 
