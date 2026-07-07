@@ -656,25 +656,49 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <img width="150" height="20" alt="artistblinkie" src="https://github.com/user-attachments/assets/b73199c4-19a4-4340-a6ab-a92bca4c63f4" />
 <div align="center">
 
-<!-- Small -->
+<div align="center">
 
-<img src="https://github.com/user-attachments/assets/b878c802-f292-4bfb-ad7a-4b3a89bc7043" width="250">
+<!-- 200x30 -->
 
-<br>
-
-<img src="https://github.com/user-attachments/assets/774327f8-ab05-496a-9cf2-298a62a4640a" width="250">
+<img width="200" height="30" alt="harhar" src="https://github.com/user-attachments/assets/5e3d777a-6c8f-4ba5-ad6d-f8eae6e4ccb5" />
 
 <br>
 
-<!-- Medium -->
+<!-- 150x20 Blinkies -->
 
-<img src="https://github.com/user-attachments/assets/1ca47ab5-a6f4-4a23-8753-99aed3a296be" width="300">
-&nbsp;
-<img src="https://github.com/user-attachments/assets/02a82b3b-1cc5-4854-9f3f-d071b666c477" width="300">
+<img width="150" height="20" alt="screwyouguys" src="https://github.com/user-attachments/assets/acbd6bc0-871d-4065-87bd-103372e8cfcf" /><img width="150" height="20" alt="msi" src="https://github.com/user-attachments/assets/26951be3-7366-475f-9285-abec2f7b8a82" />
+<img width="150" height="20" alt="creepy-cute" src="https://github.com/user-attachments/assets/5c2e5451-32f0-4b4d-bdd9-e122677c9163" /><img width="150" height="20" alt="yourwife" src="https://github.com/user-attachments/assets/b3160ad3-94b8-49b1-b612-2742abf865e1" />
+<img width="150" height="20" alt="uncool" src="https://github.com/user-attachments/assets/9fad8f80-d50e-4cdd-a5ee-04afa488987b" /><img width="150" height="20" alt="blinkiecollector" src="https://github.com/user-attachments/assets/475cc4a7-9353-4e2e-a4ed-d17ee8e2d2aa" />
+
+<!-- Put the rest of your 150x20 blinkies here -->
 
 <br>
 
-<!-- Large -->
+<!-- Taller Blinkies -->
+
+<img width="150" height="28" alt="fuzzyworm" src="https://github.com/user-attachments/assets/73394572-b24a-4ad0-96a1-88b6fed5e684" /><img width="150" height="30" alt="bee" src="https://github.com/user-attachments/assets/79937292-8492-4a6f-afcb-2b8e7a124d98" />
+
+<br>
+
+<!-- 300x40 -->
+
+<img width="300" height="40" alt="dreaming" src="https://github.com/user-attachments/assets/c77b6e1a-8f06-44cc-a9ed-71b0cda54021" />
+
+<br>
+
+<!-- Small Graphics -->
+
+<img src="https://github.com/user-attachments/assets/b878c802-f292-4bfb-ad7a-4b3a89bc7043" width="250"><img src="https://github.com/user-attachments/assets/774327f8-ab05-496a-9cf2-298a62a4640a" width="250">
+
+<br>
+
+<!-- Medium Graphics -->
+
+<img src="https://github.com/user-attachments/assets/1ca47ab5-a6f4-4a23-8753-99aed3a296be" width="300"><img src="https://github.com/user-attachments/assets/02a82b3b-1cc5-4854-9f3f-d071b666c477" width="300">
+
+<br>
+
+<!-- Large Graphics -->
 
 <img src="https://github.com/user-attachments/assets/9afe871f-a692-4c34-9599-23250411b31d" width="400">
 
@@ -692,26 +716,21 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <br>
 
-<!-- Wide Banner Gallery -->
+<!-- Wide Gallery -->
 
-<img src="https://github.com/user-attachments/assets/3ed038e1-3ac6-4406-b1e9-a148287eaf73" width="245">
-&nbsp;
-
-<img src="https://github.com/user-attachments/assets/19120809-ad88-401a-ab16-4c1145a8ebc1" width="245">
+<img src="https://github.com/user-attachments/assets/3ed038e1-3ac6-4406-b1e9-a148287eaf73" width="245"><img src="https://github.com/user-attachments/assets/19120809-ad88-401a-ab16-4c1145a8ebc1" width="245">
 
 <br>
 
-<img src="https://github.com/user-attachments/assets/e778bdcc-bfc2-474a-8957-c60f66007575" width="245">
-&nbsp;
-
-<img src="https://github.com/user-attachments/assets/6204396d-5e0c-46ee-8042-68b5e88183d6" width="245">
+<img src="https://github.com/user-attachments/assets/e778bdcc-bfc2-474a-8957-c60f66007575" width="245"><img src="https://github.com/user-attachments/assets/6204396d-5e0c-46ee-8042-68b5e88183d6" width="245">
 
 <br>
+
+<!-- Final Banner -->
 
 <img src="https://github.com/user-attachments/assets/46da5c9e-8dbf-4162-85dd-a30c925cd6c1" width="500">
 
-
-
+</div>
 </div>
 
 </details>
