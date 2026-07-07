@@ -508,7 +508,6 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <!-- Your Favicons Here -->
 
 </div>
-<img width="20" height="20" alt="mZ6AqYW" src="https://github.com/user-attachments/assets/87d6ca78-befb-4470-bce8-b36440d8eac1" />
 <img width="25" height="55" alt="9394a8a4cdf507926f78cf4a58a0b56f" src="https://github.com/user-attachments/assets/d5ba0ccc-9d97-4143-9b4d-3d5d6f589193" /> 
 <img width="32" height="59" alt="tumblr_32bfdf3536f6bee847f357d6177e4bc0_68108c7e_75" src="https://github.com/user-attachments/assets/d557abe7-26c1-46e4-85b9-73c0d97acd75" /> 
 <img width="100" height="50" alt="3178941d1b9b2cbc8b8db13e6b3a6b1c" src="https://github.com/user-attachments/assets/56f47c60-97f3-4b4f-8466-7c7b055d1f95" /> 
@@ -577,6 +576,7 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <img width="20" height="20" alt="ohhw3ek" src="https://github.com/user-attachments/assets/2b1bcd27-7ae8-46cf-8b6f-16acee27e80a" />
 <img width="20" height="20" alt="tumblr_267e78df5cd5bbcf8b47a7ce84ca3894_c3efa980_75" src="https://github.com/user-attachments/assets/c75eb7e5-35d7-4999-954d-0ab59efcb68c" />
 <img width="20" height="20" alt="tumblr_429013d727540331a17b12420ed750eb_483d6041_75" src="https://github.com/user-attachments/assets/bef4be67-c4ac-4c9b-ac49-cb26417fe937" />
+<img width="20" height="20" alt="mZ6AqYW" src="https://github.com/user-attachments/assets/87d6ca78-befb-4470-bce8-b36440d8eac1" />
 
 </details>
 
@@ -591,7 +591,7 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <div align="center">
 
-<!-- Blinkies -->
+<!-- Stardew layer -->
 
 </div>
 <img width="88" height="31" alt="u239b4" src="https://github.com/user-attachments/assets/676a27f6-48b2-437e-9b7f-8d6d2f6289fe" /> 
@@ -608,7 +608,8 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <div align="center">
 
-<!-- 150x20 Blinkies -->
+<!-- Normal sized -->
+<img width="150" height="20" alt="c64" src="https://github.com/user-attachments/assets/cfe26081-72f3-4d2e-b5c1-1c4192d05149" />
 
 <img width="150" height="20" alt="dfow7my-756f7e46-bd34-417e-8161-3c268e28a615" src="https://github.com/user-attachments/assets/b95ff0b8-32a9-4862-96ba-7677abf1124d" />
 <img width="150" height="20" alt="dd5ffi6-cc568e0b-1257-4b41-aec8-ceb6cc0548da" src="https://github.com/user-attachments/assets/66a76fbc-d21e-4324-aa3d-5022aff2cb22" />
@@ -650,25 +651,24 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <img width="150" height="20" alt="multicolor" src="https://github.com/user-attachments/assets/56c2f596-f482-45ad-9a5b-0fd4394b7eee" />
 <img width="150" height="20" alt="imgonna" src="https://github.com/user-attachments/assets/46a5f2b7-85f2-4795-9577-d5b90c7484c0" />
 <img width="150" height="20" alt="artistblinkie" src="https://github.com/user-attachments/assets/b73199c4-19a4-4340-a6ab-a92bca4c63f4" />
-
-<br>
-
-<!-- 150x28 -->
 <img width="150" height="28" alt="fuzzyworm" src="https://github.com/user-attachments/assets/73394572-b24a-4ad0-96a1-88b6fed5e684" />
+<img width="150" height="20" alt="wafflehouse" src="https://github.com/user-attachments/assets/604118f0-2803-46c5-9094-d1b7a93d2799" />
+<img width="150" height="20" alt="space" src="https://github.com/user-attachments/assets/bffe8ef8-ea0e-4f96-8df0-731d12f4f1ea" />
+
 
 <br>
 
-<!-- 150x30 -->
+<!-- bee layer -->
 <img width="150" height="30" alt="bee" src="https://github.com/user-attachments/assets/79937292-8492-4a6f-afcb-2b8e7a124d98" />
 
 <br>
 
-<!-- 200x30 -->
+<!-- Har har har layer -->
 <img width="200" height="30" alt="harhar" src="https://github.com/user-attachments/assets/5e3d777a-6c8f-4ba5-ad6d-f8eae6e4ccb5" />
 
 <br>
 
-<!-- 245 -->
+<!-- Yippier layer -->
 <img src="https://github.com/user-attachments/assets/3ed038e1-3ac6-4406-b1e9-a148287eaf73" width="245">
 <img src="https://github.com/user-attachments/assets/19120809-ad88-401a-ab16-4c1145a8ebc1" width="245">
 <img src="https://github.com/user-attachments/assets/e778bdcc-bfc2-474a-8957-c60f66007575" width="245">
@@ -676,30 +676,39 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <br>
 
-<!-- 250 -->
+<!-- Peepy layer -->
 <img src="https://github.com/user-attachments/assets/774327f8-ab05-496a-9cf2-298a62a4640a" width="250">
 
 <br>
+<!-- Pismo sized -->
 
 <img width="300" height="40" alt="dreaming" src="https://github.com/user-attachments/assets/c77b6e1a-8f06-44cc-a9ed-71b0cda54021" />
 
 <br>
+<!-- stick your dick in the DVD slot layer -->
+
 <img src="https://github.com/user-attachments/assets/b878c802-f292-4bfb-ad7a-4b3a89bc7043" width="250">
 <br>
+
+<!-- fuck my life layer -->
 
 <img src="https://github.com/user-attachments/assets/1ca47ab5-a6f4-4a23-8753-99aed3a296be" width="300">
 <br>
 <img src="https://github.com/user-attachments/assets/02a82b3b-1cc5-4854-9f3f-d071b666c477" width="300">
 
 <br>
+<!-- digital artist layer -->
 
 <img src="https://github.com/user-attachments/assets/9afe871f-a692-4c34-9599-23250411b31d" width="400">
 <img src="https://github.com/user-attachments/assets/846959e9-f055-44b8-a21c-cd3ad57a6ee9" width="400">
 <img src="https://github.com/user-attachments/assets/1df839bb-866d-4f4f-9291-a86ebf145845" width="400">
 <br>
+<!-- Teeth/Cig layer -->
 
 <img width="400" height="40" alt="tumblr_2928c37fe192b268f5021b16d6b642ee_3a87651e_400" src="https://github.com/user-attachments/assets/2ab538bf-f661-49b5-ab87-bce7e1b4fdd0" />
 <br>
+<!-- problem intrest layer -->
+
 <img src="https://github.com/user-attachments/assets/46da5c9e-8dbf-4162-85dd-a30c925cd6c1" width="500">
 
 </div>
@@ -727,6 +736,9 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <!-- Stamps -->
 
 </div>
+<img width="101" height="57" alt="buttons" src="https://github.com/user-attachments/assets/92537da2-1c9c-421c-ad21-9a9deae84378" />
+<img width="99" height="56" alt="gorillaz" src="https://github.com/user-attachments/assets/e280d986-dc88-4588-bfbf-74358a2e389c" />
+<img width="99" height="56" alt="flubtershy" src="https://github.com/user-attachments/assets/e91319e9-dcdc-439b-8594-da0521bf609b" />
 <img width="99" height="56" alt="pantonestardust" src="https://github.com/user-attachments/assets/6dfc500f-c20e-4c99-9dc1-03619b184d72" />
 <img width="99" height="56" alt="noise" src="https://github.com/user-attachments/assets/3ede64ca-48c5-4217-8f22-0c4a39247694" />
 <img width="99" height="56" alt="water2" src="https://github.com/user-attachments/assets/71268483-9b3c-44a1-ae57-1c82dc613c2a" />
@@ -787,6 +799,8 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <img width="99" height="56" alt="tumblr_8a66216d5866b23144f916a3d961bbed_a08ccd28_250" src="https://github.com/user-attachments/assets/31d7fe61-b85c-4ab7-8722-5dba30b02892" />
 <img width="99" height="56" alt="tumblr_4e076d7f8864c478527091d64ad38a39_97c75b6f_250" src="https://github.com/user-attachments/assets/424ee2a9-e654-477b-ad50-68cb86be0bec" />
 <img width="99" height="56" alt="tumblr_9425adfb36600ff04b9bb5e813b92f8f_b3f36f44_250" src="https://github.com/user-attachments/assets/7bed24c9-6161-4a26-9125-6646ddd2ac73" />
+
+<!-- slightly larger (Burger cult layer) -->
 
 <br>
 <a href="https://ko-fi.com/mynameissneeze">
