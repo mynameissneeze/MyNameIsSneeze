@@ -55,7 +55,13 @@ https://artfight.net/~MyNameIsSneeze
 
 ૮ ˶ᵔ ᵕ ᵔ˶ ა
 
-<img src="https://github.com/user-attachments/assets/41e56b15-a5fa-4451-b84f-6c93e0e4bd11" width="95">
+<a href="https://youtube.com/playlist?list=PLL0kUUHCSZA6VQjBcZ8TJ-tshEMyPsSt6&si=mheDu97ucl2WdxPQ">
+  <img
+    src="https://github.com/user-attachments/assets/41e56b15-a5fa-4451-b84f-6c93e0e4bd11"
+    width="95"
+    alt="YouTube Playlist"
+  >
+</a>
 
 ### ₊˚⊹♡ Welcome to my little corner of the internet! ♡⊹˚₊
 
