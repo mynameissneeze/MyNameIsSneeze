@@ -580,8 +580,6 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 </details>
 
-
-
 <details>
 <summary>
 
@@ -607,7 +605,6 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <img width="88" height="31" alt="button1" src="https://github.com/user-attachments/assets/794663ec-6f8a-4c3b-b1ed-ded6c3e2f261" />
 
 <br>
-<img width="400" height="40" alt="tumblr_2928c37fe192b268f5021b16d6b642ee_3a87651e_400" src="https://github.com/user-attachments/assets/2ab538bf-f661-49b5-ab87-bce7e1b4fdd0" />
 <img width="150" height="20" alt="dd5ffi6-cc568e0b-1257-4b41-aec8-ceb6cc0548da" src="https://github.com/user-attachments/assets/66a76fbc-d21e-4324-aa3d-5022aff2cb22" />
 <img width="150" height="20" alt="tumblr_d3615cc187f6253cf271db2d12a53aa0_94a43c38_250" src="https://github.com/user-attachments/assets/bb28c57b-26c6-4a43-a217-5617ae298860" />
 <img width="150" height="20" alt="tumblr_dec8c868dfa20b1ba116946197433669_a73e0a12_250" src="https://github.com/user-attachments/assets/4b902d03-3d4d-4e3e-bbcb-1dc398261d6f" />
@@ -681,6 +678,10 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <br>
 
+<img width="400" height="40" alt="tumblr_2928c37fe192b268f5021b16d6b642ee_3a87651e_400" src="https://github.com/user-attachments/assets/2ab538bf-f661-49b5-ab87-bce7e1b4fdd0" />
+
+<br>
+
 <!-- Wide Banner Gallery -->
 
 <img src="https://github.com/user-attachments/assets/3ed038e1-3ac6-4406-b1e9-a148287eaf73" width="245">
@@ -699,7 +700,17 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <img src="https://github.com/user-attachments/assets/46da5c9e-8dbf-4162-85dd-a30c925cd6c1" width="500">
 
+
+
 </div>
+
+</details>
+
+<br>
+
+<details>
+<summary>
+
 ## 🌸 STAMPS 🌸
 
 </summary>
@@ -772,17 +783,19 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
     width="139"
     height="79"
     alt="Support me on Ko-fi"
+
   >
 </a>
-</details>
 
 </div>
+
+</details>
 
 <br>
 
 <details>
 <summary>
-
+  
 ### 🖼️ Pixels
 
 </summary>
