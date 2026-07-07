@@ -690,8 +690,14 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <img width="99" height="56" alt="tumblr_cc1951f016e4515160a735e64786dd18_54530c61_100" src="https://github.com/user-attachments/assets/66195029-b67f-4a3f-9f62-be885cf087a6" />
 <img width="99" height="56" alt="94aa81e962de01ffa01f8e51142ab0d1" src="https://github.com/user-attachments/assets/f0292bc8-ce87-4b36-8e27-bd3d2bba4df3" />
 <br>
-<img width="139" height="79" alt="tumblr_f62daebd6156ae832acee210900cd7ea_7c81d43c_250" src="https://github.com/user-attachments/assets/8f57c2c1-c501-49b7-aed6-12c43af0652f" />
-
+<a href="https://ko-fi.com/mynameissneeze">
+  <img
+    src="https://github.com/user-attachments/assets/8f57c2c1-c501-49b7-aed6-12c43af0652f"
+    width="139"
+    height="79"
+    alt="Support me on Ko-fi"
+  >
+</a>
 </details>
 
 </div>
