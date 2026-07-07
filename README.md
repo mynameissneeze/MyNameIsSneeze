@@ -130,67 +130,126 @@ https://artfight.net/~MyNameIsSneeze
 ╰───────────────୨ৎ───────────────╯
 
 </div>
+<div align="center">
 
- <img width="53" height="19" alt="tumblr_b0f0812c3fe5e3893a9c7c27d071daf5_45eff816_75" src="https://github.com/user-attachments/assets/ec4d7e41-34c3-4484-b72c-9e80a2af3728" /> <img width="88" height="18" alt="tumblr_620339d01e534fbe9c69e254adf56a27_5e64093c_100" src="https://github.com/user-attachments/assets/c54faa45-9726-4f73-bdaa-24abf241d431" />
+<img src="https://github.com/user-attachments/assets/ec4d7e41-34c3-4484-b72c-9e80a2af3728">
+<img src="https://github.com/user-attachments/assets/c54faa45-9726-4f73-bdaa-24abf241d431">
 
+<br><br>
 
-<img width="150" height="20" alt="dfrp0zf-51c211b8-09e8-4515-ad19-a00138ea9d39" src="https://github.com/user-attachments/assets/1ddd9970-c4b7-4006-abff-6d0068a72b60" /> <img width="150" height="20" alt="dhv495y-d7d65a83-1606-4fe8-9c96-afdbfa83bcb7" src="https://github.com/user-attachments/assets/d7b137ac-d968-40df-ab4a-c26c83bf8c48" /> <img width="150" height="20" alt="dftk7tf-38630b21-239f-49f9-a589-efef849b8452" src="https://github.com/user-attachments/assets/a91d216f-3118-47ab-b0e4-c5a5c6efb856" /> <img width="150" height="20" alt="dhf6w26-c43af21e-9d2d-4945-bc84-56d8e16e0b49" src="https://github.com/user-attachments/assets/77858cfc-a89c-46bf-b220-2f3fb6190ed0" /> <img width="150" height="20" alt="dh9tkcf-e88a9637-f922-4682-968f-62c414b6fcd6" src="https://github.com/user-attachments/assets/09ed7640-7d48-4fb9-a38c-da685a866b6b" /> <img width="150" height="20" alt="dg7ox8m-81eccb07-0639-4b14-b85c-23287198d379" src="https://github.com/user-attachments/assets/d2552cb3-dcce-48b9-8f8b-b5b6ab6aec54" />
+<img src="https://github.com/user-attachments/assets/1ddd9970-c4b7-4006-abff-6d0068a72b60" width="145">
+<img src="https://github.com/user-attachments/assets/d7b137ac-d968-40df-ab4a-c26c83bf8c48" width="145">
+<img src="https://github.com/user-attachments/assets/a91d216f-3118-47ab-b0e4-c5a5c6efb856" width="145">
 
+<br>
 
+<img src="https://github.com/user-attachments/assets/77858cfc-a89c-46bf-b220-2f3fb6190ed0" width="145">
+<img src="https://github.com/user-attachments/assets/09ed7640-7d48-4fb9-a38c-da685a866b6b" width="145">
+<img src="https://github.com/user-attachments/assets/d2552cb3-dcce-48b9-8f8b-b5b6ab6aec54" width="145">
 
-<img width="20" height="20" alt="pencil6" src="https://github.com/user-attachments/assets/c101e02d-5d99-4a60-a769-082e5864b853" /> Digital Artist • Character Creator • Cartoon Lover <img width="20" height="20" alt="book8" src="https://github.com/user-attachments/assets/8e36f0ec-6add-484a-86e2-b2e144f3eb9c" />
+<br><br>
 
+╭───────────────୨ৎ───────────────╮
 
-<img width="20" height="20" alt="palette" src="https://github.com/user-attachments/assets/b07d8b1f-7807-469e-8954-3e1ea27fb16c" /> **Commissions:** OPEN  <img width="20" height="20" alt="palette" src="https://github.com/user-attachments/assets/b07d8b1f-7807-469e-8954-3e1ea27fb16c" />
+### ✦ A little about me ✦
 
-<img width="20" height="20" alt="phone11" src="https://github.com/user-attachments/assets/7240478c-1977-4d5c-a2f5-04106e7f2bd0" /> **DMs:** ALWAYS OPEN <img width="20" height="20" alt="phone11" src="https://github.com/user-attachments/assets/7240478c-1977-4d5c-a2f5-04106e7f2bd0" />
+╰───────────────୨ৎ───────────────╯
 
-<img width="20" height="20" alt="star87" src="https://github.com/user-attachments/assets/d9f53134-b061-499e-a67b-e9625cab752b" /> My username is **MyNameIsSneeze** on pretty much everything! <img width="20" height="20" alt="star87" src="https://github.com/user-attachments/assets/d9f53134-b061-499e-a67b-e9625cab752b" />
+🖍️ **Digital Artist** • **Character Creator** • **Cartoon Lover** 📚
 
-<img width="32" height="29" alt="butterfly24" src="https://github.com/user-attachments/assets/5c579676-9f90-4f8e-a8ae-b95f0ccfd955" /> I can be a little quiet when meeting new people, but once I get comfortable I open up a lot. <img width="32" height="29" alt="butterfly24" src="https://github.com/user-attachments/assets/5c579676-9f90-4f8e-a8ae-b95f0ccfd955" />
+<br>
 
-<img width="20" height="20" alt="tv3" src="https://github.com/user-attachments/assets/885eacc9-b5fb-4967-bdf8-1fa164316215" /> I love introducing people to new movies and TV shows, especially animation, anime, indie cartoons, and horror films. <img width="20" height="20" alt="tv3" src="https://github.com/user-attachments/assets/885eacc9-b5fb-4967-bdf8-1fa164316215" />
+🎨 **Commissions:** **OPEN**
 
-<img width="88" height="31" alt="furby" src="https://github.com/user-attachments/assets/5caeecd5-a09e-4c16-b98f-58bd1c6c4594" /> <img width="99" height="56" alt="127a8df72318d333d11ab24018ca46a1" src="https://github.com/user-attachments/assets/0876c57c-a311-4d4c-ad0b-fc7451c3e511" /> <img width="88" height="31" alt="7e9ab237a908760de13954b5bbcf5409" src="https://github.com/user-attachments/assets/17a822bb-d11e-4eb6-bc1a-6ffcc7684b8c" />
+📱 **DMs:** **ALWAYS OPEN**
 
-━━━━━━━━━━━━━━━━━━━━
+⭐ You'll usually find me as **MyNameIsSneeze** on just about every platform!
 
-# <img width="20" height="20" alt="HiM3Fxv" src="https://github.com/user-attachments/assets/0f8f7ae2-427c-4005-b35d-e6730e7e803c" /> Let's Be Friends! <img width="20" height="20" alt="HiM3Fxv" src="https://github.com/user-attachments/assets/0f8f7ae2-427c-4005-b35d-e6730e7e803c" />
+🦋 I'm a little shy at first, but once I get comfortable I love chatting and making new friends.
 
-<img width="150" height="20" alt="223979qnh6dwmabq" src="https://github.com/user-attachments/assets/f81531f2-5136-40ea-8c36-dd7dfc01e797" />  <img width="32" height="32" alt="0338572ed590f27da9d446d311569137" src="https://github.com/user-attachments/assets/73e9e35a-6b2d-413a-a62c-648125d438c2" />  <img width="150" height="20" alt="aereea (6)" src="https://github.com/user-attachments/assets/1406a629-0d90-4545-bf28-2239e2729b29" />
+📺 I absolutely love introducing people to new movies, animation, anime, indie cartoons, and horror films!
 
-✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧
+<br>
 
-<img width="100" height="50" alt="talk_to_me__d_by_silvvy_d34668b" src="https://github.com/user-attachments/assets/5c21a496-d6a9-47bb-8200-1d47c0d0b04e" /> <img width="99" height="56" alt="id86oi" src="https://github.com/user-attachments/assets/7aefb153-423c-44f1-82cc-588e4e0c1e5d" />
+<img src="https://github.com/user-attachments/assets/5caeecd5-a09e-4c16-b98f-58bd1c6c4594">
 
+<img src="https://github.com/user-attachments/assets/0876c57c-a311-4d4c-ad0b-fc7451c3e511">
 
+<img src="https://github.com/user-attachments/assets/17a822bb-d11e-4eb6-bc1a-6ffcc7684b8c">
 
-🎮 **Discord:** SneezeIsHere
+<br><br>
 
-**I enjoy talking about** <img width="20" height="20" alt="pvbzJMc" src="https://github.com/user-attachments/assets/afd7ab61-f783-4ddd-9573-a9e0fe4918f7" />
+╭────────────────────୨ৎ────────────────────╮
 
-Animation • Anime • Horror Movies • Art & Character Design • Indie Games • Cartoons • Cute & Weird Aesthetics
+# 💌 𝓛𝓮𝓽'𝓼 𝓑𝓮 𝓕𝓻𝓲𝓮𝓷𝓭𝓼!
 
-━━━━━━━━━━━━━━━━━━━━
+╰────────────────────୨ৎ────────────────────╯
 
-<img width="90" height="90" alt="tumblr_f105062e73fd7c557ed24cb9fd96e393_3f30bbb9_100" src="https://github.com/user-attachments/assets/b35a4910-36ef-413c-b409-9ef75d876891" />
+<img src="https://github.com/user-attachments/assets/f81531f2-5136-40ea-8c36-dd7dfc01e797" width="145">
 
-# <img width="20" height="20" alt="disc" src="https://github.com/user-attachments/assets/a597e1ba-18e8-4374-a9b0-7242f47694a1" /> Currently Listening To <img width="20" height="20" alt="disc" src="https://github.com/user-attachments/assets/a597e1ba-18e8-4374-a9b0-7242f47694a1" />
+<img src="https://github.com/user-attachments/assets/73e9e35a-6b2d-413a-a62c-648125d438c2" width="32">
 
-### 𝗡𝗼𝘄 𝗣𝗹𝗮𝘆𝗶𝗻𝗴
+<img src="https://github.com/user-attachments/assets/1406a629-0d90-4545-bf28-2239e2729b29" width="145">
 
-━━━━●─────
+<br><br>
 
-ㅤ◁ㅤ ❚❚ ㅤ▷
+<div align="center">
 
-ᴠᴏʟᴜᴍᴇ : ▮▮▮▮▮▮▯▯▯
+✩₊˚.⋆☾⋆⁺₊✧ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆ ✧₊⁺⋆☾⋆.˚₊✩
 
-🎵 Spotify  
+<br><br>
+
+<img src="https://github.com/user-attachments/assets/5c21a496-d6a9-47bb-8200-1d47c0d0b04e">
+
+<img src="https://github.com/user-attachments/assets/7aefb153-423c-44f1-82cc-588e4e0c1e5d">
+
+<br><br>
+
+╭────────────────────୨ৎ────────────────────╮
+
+## 💌 𝓒𝓸𝓶𝓮 𝓢𝓪𝔂 𝓗𝓲!
+
+╰────────────────────୨ৎ────────────────────╯
+
+🎮 **Discord:** `SneezeIsHere`
+
+<br>
+
+### 🌸 I love talking about...
+
+🎨 Animation • 🎌 Anime • 👻 Horror
+
+🖌️ Character Design • 🎮 Indie Games
+
+📺 Cartoons • 🍄 Cute & Weird Aesthetics
+
+<br><br>
+
+⊹₊ ⋆ ⟡ ⋆ ₊⊹
+
+<img src="https://github.com/user-attachments/assets/b35a4910-36ef-413c-b409-9ef75d876891" width="90">
+
+# 🎧 𝓝𝓸𝔀 𝓟𝓵𝓪𝔂𝓲𝓷𝓰 🎧
+
+### ♪ Currently Listening To ♪
+
+━━━━●────────────
+
+◁ ❚❚ ▷
+
+**Volume:** ▮▮▮▮▮▮▯▯▯
+
+<br>
+
+🎵 **Spotify Playlist**
+
 https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
-━━━━━━━━━━━━━━━━━━━━
+<br><br>
 
-<img width="200" height="164" alt="tumblr_ff6507cbc7544fc49ef31d39915978c1_f481016f_250" src="https://github.com/user-attachments/assets/19202a0c-3f8d-4943-9427-e6721ec8b127" />
+<img src="https://github.com/user-attachments/assets/19202a0c-3f8d-4943-9427-e6721ec8b127" width="200">
+
+<br><br>
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
@@ -204,22 +263,31 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 ⠀⠀⠀⠀⠀⠀⠀☆
 
-━━━━━━━━━━━━━━━━━━━━
+<br><br>
 
-<img width="141" height="95" alt="tumblr_62a2c5caf2864327bae29a2f95ebcdbf_a29d3394_250" src="https://github.com/user-attachments/assets/ac951b13-b7b9-45e9-8eaa-4a33d094522e" /> 
-<img width="141" height="95" alt="51a2ab32b3ce677679681d18cfd6ae7e" src="https://github.com/user-attachments/assets/9f32009f-33d7-4cf2-8416-ff697a322e27" />
-<br> <br>
-<img width="141" height="95" alt="d160ab60e391050d73a61c4ea46db917" src="https://github.com/user-attachments/assets/0c37c4f6-f28d-451e-b719-d30f8167783f" />
-<img width="141" height="95" alt="4309e6a93dc181fd0cc0932b8b2cf34d" src="https://github.com/user-attachments/assets/39cae4ea-3084-4765-9d0f-e5a7046748da" />
+<img src="https://github.com/user-attachments/assets/ac951b13-b7b9-45e9-8eaa-4a33d094522e" width="145">
 
-# <img width="20" height="20" alt="star99" src="https://github.com/user-attachments/assets/9c55968c-6dff-4a03-985f-378888bc64c7" /> ALL ABOUT ME <img width="20" height="20" alt="star99" src="https://github.com/user-attachments/assets/7bd34b51-9550-4a4c-8a3c-240ec8bfb1be" />
+<img src="https://github.com/user-attachments/assets/9f32009f-33d7-4cf2-8416-ff697a322e27" width="145">
 
+<br><br>
 
- ( ⸝⸝´꒳`⸝⸝)
- 
- <img width="210" height="32" alt="ed62e06d576c7f349cc2a7f0930bf820" src="https://github.com/user-attachments/assets/a0bb67cd-2921-4414-a0e4-ec287a19f040" />
+<img src="https://github.com/user-attachments/assets/0c37c4f6-f28d-451e-b719-d30f8167783f" width="145">
 
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+<img src="https://github.com/user-attachments/assets/39cae4ea-3084-4765-9d0f-e5a7046748da" width="145">
+
+<br><br>
+
+╭──────────────────୨ৎ──────────────────╮
+
+# ⭐ 𝓐𝓵𝓵 𝓐𝓫𝓸𝓾𝓽 𝓜𝓮 ⭐
+
+### ( ⸝⸝´꒳`⸝⸝)
+
+╰──────────────────୨ৎ──────────────────╯
+
+<img src="https://github.com/user-attachments/assets/a0bb67cd-2921-4414-a0e4-ec287a19f040" width="210">
+
+</div>
 
 ## 🎬🍿 Favorite Films 🍿🎬
 
