@@ -248,7 +248,8 @@ https://artfight.net/~MyNameIsSneeze
 
 # 🎧 𝓝𝓸𝔀 𝓟𝓵𝓪𝔂𝓲𝓷𝓰 🎧
 
-### ♪ Currently Listening To ♪
+### <img width="20" height="20" alt="tumblr_2b16be31d23217d73a1b4e3d797c020c_ad302865_75" src="https://github.com/user-attachments/assets/bac2ba31-06ac-4de1-8cce-d5511ed54479" />  Currently Listening To <img width="20" height="20" alt="tumblr_2b16be31d23217d73a1b4e3d797c020c_ad302865_75" src="https://github.com/user-attachments/assets/bac2ba31-06ac-4de1-8cce-d5511ed54479" />
+
 
 ━━━━●────────────
 
