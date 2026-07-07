@@ -608,11 +608,8 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <img width="200" height="30" alt="harhar" src="https://github.com/user-attachments/assets/5e3d777a-6c8f-4ba5-ad6d-f8eae6e4ccb5" />
 <img width="150" height="20" alt="screwyouguys" src="https://github.com/user-attachments/assets/acbd6bc0-871d-4065-87bd-103372e8cfcf" />
 <img width="150" height="20" alt="msi" src="https://github.com/user-attachments/assets/26951be3-7366-475f-9285-abec2f7b8a82" />
-<img width="99" height="56" alt="no-signal" src="https://github.com/user-attachments/assets/c74776da-d782-43ed-97c3-ade94035517b" />
-<img width="99" height="55" alt="sharp-edges" src="https://github.com/user-attachments/assets/b34de35c-5765-41dd-8d62-80273d148835" />
 <img width="150" height="20" alt="creepy-cute" src="https://github.com/user-attachments/assets/5c2e5451-32f0-4b4d-bdd9-e122677c9163" />
 <img width="150" height="20" alt="yourwife" src="https://github.com/user-attachments/assets/b3160ad3-94b8-49b1-b612-2742abf865e1" />
-
 <img width="150" height="20" alt="uncool" src="https://github.com/user-attachments/assets/9fad8f80-d50e-4cdd-a5ee-04afa488987b" />
 <img width="150" height="28" alt="fuzzyworm" src="https://github.com/user-attachments/assets/73394572-b24a-4ad0-96a1-88b6fed5e684" />
 <img width="150" height="30" alt="bee" src="https://github.com/user-attachments/assets/79937292-8492-4a6f-afcb-2b8e7a124d98" />
@@ -735,6 +732,8 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <!-- Stamps -->
 
 </div>
+<img width="99" height="56" alt="no-signal" src="https://github.com/user-attachments/assets/c74776da-d782-43ed-97c3-ade94035517b" />
+<img width="99" height="55" alt="sharp-edges" src="https://github.com/user-attachments/assets/b34de35c-5765-41dd-8d62-80273d148835" />
 <img width="99" height="56" alt="tumblr_d3639f6d6b60db691eaa7bd425bad2e5_60d70c9b_100" src="https://github.com/user-attachments/assets/b65035a9-f74d-419b-b1dc-376a94288b0f" />
 <img width="99" height="56" alt="tumblr_dfdad60a3f7bc8f629eae288a2e115af_8fcdbf86_100" src="https://github.com/user-attachments/assets/8d895282-fb39-44da-984f-e55881022a24" />
 <img width="99" height="56" alt="tumblr_3281f011ef027e35ff0d19fcb0b96ee4_df3afd3c_100" src="https://github.com/user-attachments/assets/342011ab-5fde-49d3-b5f2-d573c6d3b346" />
