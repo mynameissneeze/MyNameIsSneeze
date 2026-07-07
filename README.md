@@ -28,6 +28,12 @@
 https://artfight.net/~MyNameIsSneeze
 </a>
 
+<br>
+
+<img width="73" height="32" alt="stamp_fossils" src="https://github.com/user-attachments/assets/d0be86a9-9326-46f8-8fbd-2773c4d5b095" />
+<img width="73" height="32" alt="stamp_comedy" src="https://github.com/user-attachments/assets/60671502-3b43-49b0-bc6c-32f191060e93" />
+
+
 <br><br>
 
 <img src="https://github.com/user-attachments/assets/b23ebfaf-241c-4afc-a3d7-d75589494d5c" width="260">
@@ -676,6 +682,7 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <!-- Stamps -->
 
 </div>
+<img width="100" height="58" alt="c5685ef4" src="https://github.com/user-attachments/assets/5dcd1b8a-ff18-4abf-ac52-720ce5ec6e17" />
 <img width="99" height="56" alt="tumblr_6e3c4b4fa9de5bb28a332525d16abc40_534ca8db_250" src="https://github.com/user-attachments/assets/3e395ae1-57f6-46c5-85f5-12d69ba9ae96" />
 <img width="99" height="54" alt="spacehey-chesnok" src="https://github.com/user-attachments/assets/92c1c212-4d44-4abd-9953-343d0fd147c2" />
 <img width="99" height="56" alt="gir" src="https://github.com/user-attachments/assets/cf15a312-443f-4722-ba6b-7291493b0ea0" />
