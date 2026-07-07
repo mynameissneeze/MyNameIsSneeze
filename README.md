@@ -452,7 +452,6 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 # <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9"> GIF CORNER <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
 
-<img width="230" src="https://github.com/user-attachments/assets/123e1379-d829-47bd-8982-28c272e45ce3">
 
 ### ✦ Blinkies • Pixels • Stamps • Funny GIFs • Hyperfixations ✦
 
@@ -695,12 +694,14 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 </details>
 
----
+</div>
+
+<br>
 
 <details>
 <summary>
 
-## 🖼️ PIXELS 🖼️
+### 🖼️ Pixels
 
 </summary>
 
@@ -708,19 +709,20 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <div align="center">
 
-<!-- Pixels -->
+<img src="https://github.com/user-attachments/assets/d3a1c3f4-e22c-4b68-ad23-9cf10624f8de" width="260">
+
+<img src="https://github.com/user-attachments/assets/739ba524-bf8e-4adb-9938-ab55c521b4f3" width="260">
 
 </div>
-<img width="250" height="200" alt="tumblr_d93abd3dc31c9f1ab0765c13acd95b3b_b047ff46_250" src="https://github.com/user-attachments/assets/d3a1c3f4-e22c-4b68-ad23-9cf10624f8de" />
-<img width="500" height="273" alt="giphy" src="https://github.com/user-attachments/assets/739ba524-bf8e-4adb-9938-ab55c521b4f3" />
+
 </details>
 
----
+<br>
 
 <details>
 <summary>
 
-## 🎞️ FAVORITE GIFS 🎞️
+### 🎞️ Favorite GIFs
 
 </summary>
 
@@ -728,31 +730,42 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <div align="center">
 
-<!-- GIFS -->
+<img src="https://github.com/user-attachments/assets/ea97e0e1-9ccf-4371-b836-7c732d8e40a5" width="220">
+
+<br>
+
+<img src="https://64.media.tumblr.com/4fde25a0e3ad3a647ee63c3a2d7dd3e6/8e26c760daf1b998-0a/s1280x1920/74802abe3a15918c30bb7bdbe6052e8c1fab8c64.gif" width="220">
+
+<br><br>
+
+<img src="https://github.com/user-attachments/assets/7dbfe67f-1fe9-405f-b7c9-b8cf2dc48412" width="450">
+
+<br><br>
+
+<img src="https://github.com/user-attachments/assets/efff3ed7-7967-4346-9ef3-0ba8fbe53922" width="450">
+
+<br><br>
+
+<img src="https://github.com/user-attachments/assets/36c2e009-8750-4fd7-9ddc-465b038a5138" width="340">
+
+<br><br>
+
+<img src="https://github.com/user-attachments/assets/920ebf57-e2d6-4f22-8d91-89a70daf3c60" width="220">
+
+<img src="https://github.com/user-attachments/assets/7584e827-f58e-4082-96f0-2155ec3f106c" width="220">
+
+<img src="https://github.com/user-attachments/assets/71a300f9-216e-4fe2-b415-3868d0f00a63" width="220">
 
 </div>
-<img width="250" height="240" alt="tumblr_a31157b20f1f61844eba57a4883a788a_0ac82a79_250" src="https://github.com/user-attachments/assets/ea97e0e1-9ccf-4371-b836-7c732d8e40a5" />
-<div align="center">
-<img src="https://64.media.tumblr.com/4fde25a0e3ad3a647ee63c3a2d7dd3e6/8e26c760daf1b998-0a/s1280x1920/74802abe3a15918c30bb7bdbe6052e8c1fab8c64.gif" width="250">
-<img width="540" height="303" alt="tumblr_dddb3ee97dc1e248079b3b9ff7295a5f_85cd1e8c_540" src="https://github.com/user-attachments/assets/7dbfe67f-1fe9-405f-b7c9-b8cf2dc48412" /> 
-<br>
-<img width="540" height="405" alt="tumblr_58ecc53f6d9e9884ab373528ded15c0c_22d1204b_540" src="https://github.com/user-attachments/assets/efff3ed7-7967-4346-9ef3-0ba8fbe53922" />
-<br>
-<img width="400" height="167" alt="tumblr_bf43c21784adcf3b45e874b4681a7fba_f68ab5a3_400" src="https://github.com/user-attachments/assets/36c2e009-8750-4fd7-9ddc-465b038a5138" /> 
-<br>
-<img width="400" height="400" alt="760c91861a9a4bc8cf9062c6d024b0e3" src="https://github.com/user-attachments/assets/920ebf57-e2d6-4f22-8d91-89a70daf3c60" /> 
-<br>
-<img width="250" height="250" alt="tumblr_58a357860d32cb0824b36cbb1e847387_76285b84_250" src="https://github.com/user-attachments/assets/7584e827-f58e-4082-96f0-2155ec3f106c" />
-<br>
-<img width="240" height="240" alt="giphy" src="https://github.com/user-attachments/assets/71a300f9-216e-4fe2-b415-3868d0f00a63" />
+
 </details>
 
----
+<br>
 
 <details>
 <summary>
 
-## 🍄 RANDOM INTERNET THINGS 🍄
+### 🍄 Random Internet Things
 
 </summary>
 
@@ -760,17 +773,18 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <div align="center">
 
-<!-- Random Stuff -->
+<i>More coming soon...</i>
 
 </div>
 
 </details>
 
-<div align="center">
-
-<img width="540" src="https://github.com/user-attachments/assets/fc7744df-963c-4e5a-ad79-63fac5df47db">
-
--ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
+<br><br>
 
 <div align="center">
 
+<img src="https://github.com/user-attachments/assets/fc7744df-963c-4e5a-ad79-63fac5df47db" width="540">
+
+</div>
+
+-ˋˏ✄──────────────────────────────────────────────────────────────
