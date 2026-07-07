@@ -769,6 +769,11 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <br>
 
+<img width="200" height="200" alt="200w" src="https://github.com/user-attachments/assets/1fd5e597-7df5-4420-a86b-56aa7c740b76" />
+
+<br>
+
+<img width="480" height="480" alt="giphy" src="https://github.com/user-attachments/assets/b37e789c-e5f6-496c-b36f-f2b46e421902" />
 
 
 </div>
@@ -818,6 +823,21 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 </div>
 
 <img width="233" height="300" alt="tumblr_361a33ee1c90d1af4dc58494e39919e4_052e195b_250" src="https://github.com/user-attachments/assets/432ab211-ffee-488f-bc47-acda9f5d1257" />
+
+<br>
+
+<img width="234" height="200" alt="200" src="https://github.com/user-attachments/assets/2a570b35-6f08-4bb6-8efa-a6cc20ee770d" />
+
+<br>
+
+<img width="222" height="200" alt="200" src="https://github.com/user-attachments/assets/b224f077-862b-4ec1-90bb-608ac030f786" />
+
+<br>
+
+<img width="480" height="480" alt="giphy" src="https://github.com/user-attachments/assets/58211099-47a3-4c4f-9286-8c6f3afb65d3" />
+
+
+
 
 </details>
 
