@@ -30,7 +30,13 @@ https://artfight.net/~MyNameIsSneeze
 
 <img src="https://github.com/user-attachments/assets/e1171ea3-ee29-4cc8-9a8d-4c3688b7d51e" width="150">
 <img src="https://github.com/user-attachments/assets/fe562e8c-776a-4bed-94ab-ac36bcc3c4d6" width="150">
-<img src="https://github.com/user-attachments/assets/6630cde2-a56e-4c48-b0c5-b787e1e3f230" width="150">
+<a href="https://mynameissneeze.straw.page">
+  <img
+    src="https://github.com/user-attachments/assets/6630cde2-a56e-4c48-b0c5-b787e1e3f230"
+    width="150"
+    alt="Visit my Strawpage"
+  >
+</a>
 <img src="https://github.com/user-attachments/assets/1d8af808-d7d3-46f9-9025-589b89d28dec" width="150">
 
 <br><br>
