@@ -1,57 +1,84 @@
 <div align="center">
 
-<img width="80" height="15" alt="3062eda6d78e2b85a37a868fdd939c3a" src="https://github.com/user-attachments/assets/35508dce-4a8e-48e6-9278-68be4225d490" />
+<img src="https://github.com/user-attachments/assets/35508dce-4a8e-48e6-9278-68be4225d490" width="80">
 
-<div align="center">
+<br><br>
 
- 
-## Scroll down to see my Gif/Blinkie collection 
+╭──────────────────────୨ৎ──────────────────────╮
 
+### ✦ Scroll down to explore my GIF & Blinkie Collection! ✦
 
-</div>
-<img width="150" height="20" alt="tumblr_31e10898bb344c6f0c7043d6e0fd4ffc_06630a2a_250" src="https://github.com/user-attachments/assets/b6f95b16-55e4-43c7-acf0-b9458d726a3b" /> 
+╰──────────────────────୨ৎ──────────────────────╯
 
+<img src="https://github.com/user-attachments/assets/b6f95b16-55e4-43c7-acf0-b9458d726a3b" width="170">
 
-<div align="center">
+<br><br>
 
-### <img width="20" height="20" alt="star119" src="https://github.com/user-attachments/assets/168f001a-41a0-4ad5-9b52-53ee99a6aaba" /> ARTFIGHT <img width="20" height="20" alt="star119" src="https://github.com/user-attachments/assets/edb21f66-25fa-4ef4-8ac7-f8475b114d1d" />
+⋆｡˚ ☁︎ ˚｡⋆
 
+## ⭐ ARTFIGHT ⭐
+
+<a href="https://artfight.net/~MyNameIsSneeze">
 https://artfight.net/~MyNameIsSneeze
+</a>
 
-<img width="250" height="150" alt="tumblr_0f45449880e2eb4f5a6e69dbc04175a1_a824b6f8_250" src="https://github.com/user-attachments/assets/b23ebfaf-241c-4afc-a3d7-d75589494d5c" />
+<br><br>
 
+<img src="https://github.com/user-attachments/assets/b23ebfaf-241c-4afc-a3d7-d75589494d5c" width="260">
 
-<br>
+<br><br>
 
-<img width="150" height="20" alt="typo-queen" src="https://github.com/user-attachments/assets/e1171ea3-ee29-4cc8-9a8d-4c3688b7d51e" /> <img width="150" height="20" alt="anotherloser" src="https://github.com/user-attachments/assets/fe562e8c-776a-4bed-94ab-ac36bcc3c4d6" /> <img width="150" height="20" alt="strawpage" src="https://github.com/user-attachments/assets/6630cde2-a56e-4c48-b0c5-b787e1e3f230" /> <img width="150" height="20" alt="pcaddict" src="https://github.com/user-attachments/assets/1d8af808-d7d3-46f9-9025-589b89d28dec" />
+<img src="https://github.com/user-attachments/assets/e1171ea3-ee29-4cc8-9a8d-4c3688b7d51e" width="150">
+<img src="https://github.com/user-attachments/assets/fe562e8c-776a-4bed-94ab-ac36bcc3c4d6" width="150">
+<img src="https://github.com/user-attachments/assets/6630cde2-a56e-4c48-b0c5-b787e1e3f230" width="150">
+<img src="https://github.com/user-attachments/assets/1d8af808-d7d3-46f9-9025-589b89d28dec" width="150">
 
+<br><br>
 
-<img width="99" height="56" alt="m6eczo" src="https://github.com/user-attachments/assets/96ed7429-caf5-41f0-8db0-f5cdf29d852d" /> <img width="88" height="31" alt="pothead" src="https://github.com/user-attachments/assets/7f8801cf-3e9b-403b-ad79-9d813f061675" /> <img width="99" height="56" alt="shy__but_happy_to_talk_by_crownstamps_d7odi2r" src="https://github.com/user-attachments/assets/e81f9281-e9d3-446f-9a00-d4ee55b84d20" />
+<img src="https://github.com/user-attachments/assets/96ed7429-caf5-41f0-8db0-f5cdf29d852d">
+<img src="https://github.com/user-attachments/assets/7f8801cf-3e9b-403b-ad79-9d813f061675">
+<img src="https://github.com/user-attachments/assets/e81f9281-e9d3-446f-9a00-d4ee55b84d20">
 
+<br><br>
 
-<img width="184" height="240" alt="tumblr_958e615e5126700be627af8b16fa97fe_13dc9f8f_250" src="https://github.com/user-attachments/assets/c7f2ed9b-67e0-44a7-bb1a-b8208245ca7a" /> <img width="468" height="60" alt="tumblr_12342d34c673899a328a6ed5b29fa314_e3ac842d_500" src="https://github.com/user-attachments/assets/19790c59-202e-49d9-86a7-5fd0610b7046" /> <img width="184" height="240" alt="tumblr_b50ff649c4e931a33473a54dc9ce8bd7_cbad83d1_250" src="https://github.com/user-attachments/assets/48a9e2bd-55bf-4629-b2f7-36356b3df9a2" />
+<img src="https://github.com/user-attachments/assets/c7f2ed9b-67e0-44a7-bb1a-b8208245ca7a" width="170">
 
+<img src="https://github.com/user-attachments/assets/19790c59-202e-49d9-86a7-5fd0610b7046" width="430">
+
+<img src="https://github.com/user-attachments/assets/48a9e2bd-55bf-4629-b2f7-36356b3df9a2" width="170">
+
+<br><br>
+
+⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
+
+# 🌸 𝓗𝓮𝔂, 𝓘'𝓶 𝓢𝓷𝓮𝓮𝔃𝓮! 🌸
+
+૮ ˶ᵔ ᵕ ᵔ˶ ა
+
+<img src="https://github.com/user-attachments/assets/41e56b15-a5fa-4451-b84f-6c93e0e4bd11" width="95">
+
+### ₊˚⊹♡ Welcome to my little corner of the internet! ♡⊹˚₊
+
+🍓 🐇 🍄 ⭐ ☁️ 🎀 🦋
 
 <div align="center">
 
-# <img width="20" height="20" alt="star21" src="https://github.com/user-attachments/assets/d9f5a77c-f008-419c-9f76-7ee5e57a58fe" /> 🌸 Hey, I'm Sneeze!🌸 <img width="20" height="20" alt="star21" src="https://github.com/user-attachments/assets/33900094-644b-426a-8032-c60590212c93" />
+<img src="https://github.com/user-attachments/assets/0722659f-a665-4b4c-887d-4a0cda0ff027" width="540">
 
+<br><br>
 
-<img width="97" height="98" alt="tumblr_6e738a5eba545c1544589db0fa0a2f3a_186a76fc_100" src="https://github.com/user-attachments/assets/41e56b15-a5fa-4451-b84f-6c93e0e4bd11" /> 
-<div align="center">
+╭───────────────୨ৎ───────────────╮
 
+### 🐴 𝓜𝔂 𝓟𝓸𝓷𝔂𝓣𝓸𝔀𝓷 𝓢𝓴𝓲𝓷𝓼 🐴
 
-₊˚⊹♡ Welcome to my little corner of the internet! ♡⊹˚₊
+₊˚⊹♡ Click below to see my most-used skins! ♡⊹˚₊
 
-
- <div align="center">
-
-<img width="540" height="32" alt="tumblr_52b4c107a413fda41692d64a186f53ed_50f43d7e_540" src="https://github.com/user-attachments/assets/0722659f-a665-4b4c-887d-4a0cda0ff027" />
+╰───────────────୨ৎ───────────────╯
 
 <details>
 <summary>
 <img src="https://github.com/user-attachments/assets/fbcd104f-6615-4e80-81c0-10b0d088a830" width="20">
-See my most commonly used PonyTown skins!
+<b>Open My PonyTown Collection!</b>
 <img src="https://github.com/user-attachments/assets/d2c1e21c-aba5-4dfa-b98c-3490b498393b" width="20">
 </summary>
 
@@ -59,52 +86,50 @@ See my most commonly used PonyTown skins!
 
 <div align="center">
 
-<!-- Row 1 -->
-<img src="https://github.com/user-attachments/assets/69cc83b8-264e-4bba-9d82-cdd080aa7c0b" width="200">
-&nbsp;
-<img src="https://github.com/user-attachments/assets/f89cc244-6282-495a-b842-e3b39eb7274a" width="200">
-&nbsp;
-<img src="https://github.com/user-attachments/assets/5eea0202-6cdf-4763-99d1-e00cf0a0508d" width="200">
+<!-- 🌸 Row 1 -->
+<img src="https://github.com/user-attachments/assets/69cc83b8-264e-4bba-9d82-cdd080aa7c0b" width="195">
+<img src="https://github.com/user-attachments/assets/f89cc244-6282-495a-b842-e3b39eb7274a" width="195">
+<img src="https://github.com/user-attachments/assets/5eea0202-6cdf-4763-99d1-e00cf0a0508d" width="195">
 
 <br><br>
 
-<!-- Row 2 -->
-<img src="https://github.com/user-attachments/assets/bf28ae68-8f4a-4af5-a7f9-afde36c61df4" width="200">
-&nbsp;
-<img src="https://github.com/user-attachments/assets/5203f75a-f822-4e22-a582-7e248fe6ad22" width="200">
-&nbsp;
-<img src="https://github.com/user-attachments/assets/e9ddaf7b-1c3d-4250-9432-e2bf0e66927e" width="200">
+<!-- 🌸 Row 2 -->
+<img src="https://github.com/user-attachments/assets/bf28ae68-8f4a-4af5-a7f9-afde36c61df4" width="195">
+<img src="https://github.com/user-attachments/assets/5203f75a-f822-4e22-a582-7e248fe6ad22" width="195">
+<img src="https://github.com/user-attachments/assets/e9ddaf7b-1c3d-4250-9432-e2bf0e66927e" width="195">
 
 <br><br>
 
-<!-- Row 3 -->
-<img src="https://github.com/user-attachments/assets/dde05b9e-db43-455f-bbca-fad24ae686b8" width="200">
-&nbsp;
-<img src="https://github.com/user-attachments/assets/769dd08c-48b4-47be-bf10-4aa254a4efac" width="200">
-&nbsp;
-<img src="https://github.com/user-attachments/assets/4b178c8e-a623-4d0e-a570-bb01e4b7dfc3" width="200">
+<!-- 🌸 Row 3 -->
+<img src="https://github.com/user-attachments/assets/dde05b9e-db43-455f-bbca-fad24ae686b8" width="195">
+<img src="https://github.com/user-attachments/assets/769dd08c-48b4-47be-bf10-4aa254a4efac" width="195">
+<img src="https://github.com/user-attachments/assets/4b178c8e-a623-4d0e-a570-bb01e4b7dfc3" width="195">
 
 <br><br>
 
-<!-- Row 4 -->
-<img src="https://github.com/user-attachments/assets/2a9afa40-6bab-411a-b2a9-dbe1c0b08706" width="200">
-&nbsp;
-<img src="https://github.com/user-attachments/assets/b34e7c2f-6825-4679-b9f8-455c5d5ea872" width="200">
-&nbsp;
-<img src="https://github.com/user-attachments/assets/9da51183-add4-4e68-8b73-42cf04549dfb" width="200">
+<!-- 🌸 Row 4 -->
+<img src="https://github.com/user-attachments/assets/2a9afa40-6bab-411a-b2a9-dbe1c0b08706" width="195">
+<img src="https://github.com/user-attachments/assets/b34e7c2f-6825-4679-b9f8-455c5d5ea872" width="195">
+<img src="https://github.com/user-attachments/assets/9da51183-add4-4e68-8b73-42cf04549dfb" width="195">
 
 <br><br>
 
-<!-- Last Pony -->
-<img src="https://github.com/user-attachments/assets/3a08b59f-a154-4133-abb6-79ec2d3025f1" width="200">
+<!-- 🌸 Last Row -->
+<img src="https://github.com/user-attachments/assets/3a08b59f-a154-4133-abb6-79ec2d3025f1" width="195">
 
 </div>
 
 </details>
 
-<br>
- 25 • Taken • She/Her • They/Them 
+<br><br>
 
+╭───────────────୨ৎ───────────────╮
+
+💜 **25** • 💍 **Taken** • 🌸 **She / Her** • ✨ **They / Them**
+
+╰───────────────୨ৎ───────────────╯
+
+</div>
 
  <img width="53" height="19" alt="tumblr_b0f0812c3fe5e3893a9c7c27d071daf5_45eff816_75" src="https://github.com/user-attachments/assets/ec4d7e41-34c3-4484-b72c-9e80a2af3728" /> <img width="88" height="18" alt="tumblr_620339d01e534fbe9c69e254adf56a27_5e64093c_100" src="https://github.com/user-attachments/assets/c54faa45-9726-4f73-bdaa-24abf241d431" />
 
