@@ -361,21 +361,11 @@ Minecraft • PonyTown • Cookie Run: Kingdom • Cult of the Lamb • Dead by 
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-## 🎨 Favorite Artists 🎨
-
-Zalinki • Lisa Frank • Zach Hadel • Chris O'Neill • Amy Brown
-
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
-
 ## 📚 Favorite Books & Comics 📚
 
 Life Is Strange • Scott Pilgrim
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
-
-## 🛍️ Favorite Brands 🛍️
-
-Sanrio • Squishmallows • Arizona Tea • Starbucks • Sugarbunnies
 
 
 <img width="99" height="56" alt="49f4af6ffce296ffe91f7e3c67f5634c" src="https://github.com/user-attachments/assets/0b03ab78-851f-414f-aaa0-dfb18b562ae6" /> <img width="99" height="56" alt="tumblr_cc48125e658008761381e8e0862d5a9a_f90860e0_250" src="https://github.com/user-attachments/assets/c6bb88e4-460f-4924-b7cc-1b0cd3663ae8" />
