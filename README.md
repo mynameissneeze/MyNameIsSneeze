@@ -964,7 +964,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 </td>
 </tr>
 
-
 <tr>
 <td align="center">
 <img src="https://github.com/user-attachments/assets/efff3ed7-7967-4346-9ef3-0ba8fbe53922" width="180">
@@ -979,7 +978,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 </td>
 </tr>
 
-
 <tr>
 <td align="center">
 <img src="https://github.com/user-attachments/assets/71a300f9-216e-4fe2-b415-3868d0f00a63" width="180">
@@ -993,7 +991,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img src="https://github.com/user-attachments/assets/2a570b35-6f08-4bb6-8efa-a6cc20ee770d" width="180">
 </td>
 </tr>
-
 
 <tr>
 <td align="center">
@@ -1010,7 +1007,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 </td>
 </tr>
 
-
 <tr>
 <td align="center">
 <img src="https://github.com/user-attachments/assets/38e9456a-9120-45d6-a65d-4d0694ac9b94" width="180">
@@ -1024,7 +1020,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img src="https://github.com/user-attachments/assets/fd9dbb70-0f1c-4978-a0e8-694e7b92c597" width="180">
 </td>
 </tr>
-
 
 <tr>
 <td align="center">
@@ -1040,7 +1035,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 </td>
 </tr>
 
-
 <tr>
 <td align="center">
 <img src="https://github.com/user-attachments/assets/b8402b97-736c-4e8f-bde8-e92e600c8d3b" width="250">
@@ -1051,16 +1045,15 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 </td>
 
 <td align="center">
+<img src="https://github.com/user-attachments/assets/0849cfb9-cf80-4060-940a-15ca29942546" width="220">
 </td>
 </tr>
-
-<img width="480" height="480" alt="0a2ebdbcbe313d804966ce9c2c8c3078" src="https://github.com/user-attachments/assets/0849cfb9-cf80-4060-940a-15ca29942546" />
-
-
 
 </table>
 
 </div>
+
+<br>
 
 <br>
 
