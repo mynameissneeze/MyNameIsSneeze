@@ -1065,13 +1065,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 <summary><h2>🖼️ Pixels</h2></summary>
 
-<img width="448" height="288" alt="a132a51a08b9102f1ac41d551a26f6d1" src="https://github.com/user-attachments/assets/63a10c65-ad83-461a-834d-146f10cfe2b1" />
-
-<img width="1080" height="1080" alt="b31682f8c0fe89d77a64b0cc74eccbbe" src="https://github.com/user-attachments/assets/60d84cf7-584f-443b-9363-047fd3dd563f" />
-
-<img width="540" height="342" alt="a08cb34d84a1d8f60a6a34987975aeb2" src="https://github.com/user-attachments/assets/8e193c16-6514-4371-b938-7495cec40a30" />
-
-<img width="540" height="490" alt="5fd7544ab24b3578cf0589d4dc53df61" src="https://github.com/user-attachments/assets/02413531-92f2-4afc-b459-96b872700fbf" />
 
 <br>
 
@@ -1152,6 +1145,31 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <td align="center">
 <img src="https://media.thuvien.org/photo/13887/image/5da4ae914d5b3dbed2ab790fe99ef0f7.gif" width="180">
 </td>
+
+<td align="center">
+<img <img width="448" height="288" alt="a132a51a08b9102f1ac41d551a26f6d1" src="https://github.com/user-attachments/assets/63a10c65-ad83-461a-834d-146f10cfe2b1" />
+  </td>
+
+</tr>
+
+<tr>
+
+<td align="center">
+<img src="https://github.com/user-attachments/assets/60d84cf7-584f-443b-9363-047fd3dd563f" width="220">
+</td>
+
+<td align="center">
+<img <img width="540" height="342" alt="a08cb34d84a1d8f60a6a34987975aeb2" src="https://github.com/user-attachments/assets/8e193c16-6514-4371-b938-7495cec40a30" />
+  </td>
+
+<td align="center">
+<img <img width="540" height="490" alt="5fd7544ab24b3578cf0589d4dc53df61" src="https://github.com/user-attachments/assets/02413531-92f2-4afc-b459-96b872700fbf" />
+  </td>
+
+
+</tr>
+
+<tr>
 
 <td></td>
 
