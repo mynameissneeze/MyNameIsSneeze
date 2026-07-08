@@ -337,132 +337,155 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 </div>
 
+# 🌟✨ ALL ABOUT ME ✨🌟
+
+## 🌟✨ Special Interests ✨🌟
+
+AHHH!! Real Monsters • My Little Pony • Hello Kitty • Mushrooms • Rabbits • Stars
+
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+
 ## 🎬🍿 Favorite Films 🍿🎬
 
 Coraline • Alice in Wonderland • Spirited Away • Ponyo • Pom Poko • Only Yesterday • The Night Is Short, Walk on Girl • Win or Lose • Ride Your Wave • Your Name • A Silent Voice • Thirteen Ghosts • Signs • Hereditary • Willy's Wonderland • The Witch • The Autopsy of Jane Doe • Scary Stories to Tell in the Dark • Silent Hill • Creep • Skinamarink • The Visit • As Above, So Below • The Blair Witch Project • Hell House LLC • Grave Encounters • Last Shift • The Ritual • The Possession
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-## <img width="20" height="20" alt="tv" src="https://github.com/user-attachments/assets/63f05612-e961-44fb-b458-7c6b69b3a71b" /> Favorite Shows <img width="20" height="20" alt="tv" src="https://github.com/user-attachments/assets/63f05612-e961-44fb-b458-7c6b69b3a71b" />
+## 📺💫 Favorite Shows 💫📺
 
 Adventure Time • Bee and PuppyCat • Gravity Falls • Futurama • Scott Pilgrim • My Little Pony • Moomin • South Park • Final Space • Aggretsuko • AHHH!! Real Monsters • The Cuphead Show • Code Lyoko • Steven Universe • Star vs. the Forces of Evil • OK K.O.! • Infinity Train • Tuca & Bertie • The Amazing Digital Circus • Home Movies • China, IL • Clone High • Big Top Burger • MTV Downtown • Poppe the Performer
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-## <img width="20" height="20" alt="tv7" src="https://github.com/user-attachments/assets/cb6a6f56-9181-4853-8e7d-8aad99dfb290" /> Favorite Anime <img width="20" height="20" alt="tv7" src="https://github.com/user-attachments/assets/cb6a6f56-9181-4853-8e7d-8aad99dfb290" />
+## 🎌💥 Favorite Anime 💥🎌
 
 xxxHolic • Durarara!! • Osomatsu-san • Deadman Wonderland • Mob Psycho 100 • Ouran High School Host Club • Soul Eater • Sgt. Frog • Lucky Star • Kakegurui • Nana • FLCL • Panty & Stocking • Bleach • Princess Tutu • Princess Jellyfish • Migi & Dali • Squid Girl • Life Lessons with Uramichi Oniisan • Nichijou • Dandadan
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-## <img width="20" height="20" alt="console5" src="https://github.com/user-attachments/assets/c6c51af7-a43f-4caf-8c72-e454e2509605" /> Favorite Games <img width="20" height="20" alt="console5" src="https://github.com/user-attachments/assets/c6c51af7-a43f-4caf-8c72-e454e2509605" />
+## 🎮🕹️ Favorite Games 🕹️🎮
 
 Minecraft • PonyTown • Cookie Run: Kingdom • Cult of the Lamb • Dead by Daylight • The Classrooms • Five Nights at Freddy's • Grounded • The Forest • Lethal Company • Life Is Strange • Resident Evil • Saints Row • Raft • Stardew Valley • Webfishing • Fran Bow • Content Warning • 7 Days to Die • Bigfoot • Roblox • Skyrim • Yandere Simulator • Silent Hill • Hello Kitty Island Adventure • Kletka • Hitman • Degrees of Lewdity • Alice: Madness Returns • What Remains of Edith Finch • Reka • Schedule 1 • Wizard101 • Wobbledogs
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-## 📚 Favorite Books & Comics 📚
-
-Life Is Strange • Scott Pilgrim
-
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
-
-
-<img width="99" height="56" alt="49f4af6ffce296ffe91f7e3c67f5634c" src="https://github.com/user-attachments/assets/0b03ab78-851f-414f-aaa0-dfb18b562ae6" /> <img width="99" height="56" alt="tumblr_cc48125e658008761381e8e0862d5a9a_f90860e0_250" src="https://github.com/user-attachments/assets/c6bb88e4-460f-4924-b7cc-1b0cd3663ae8" />
-
-<img width="20" height="20" alt="3uliWir" src="https://github.com/user-attachments/assets/61adc4a0-1ee9-401a-907b-f5a48b0b8c03" /> 
+## 🍓🧋 Favorite Foods & Drinks 🧋🍓
 
 Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries) • Pancakes • Buldak Ramen • Arizona Tea (Herbal Tonic, Green Tea, Half & Half) • Muffins • Matcha • French Toast • Aussie Lemonade • Donuts • Iced Coffee • Tea • Lemon & Lime • Boba Tea
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
-
-<img width="360" height="360" alt="tumblr_fb4f0ad7a075c2de12f0be1c92135950_6e8feeeb_400" src="https://github.com/user-attachments/assets/f70228fc-2532-478d-86e9-d4fb231f094d" />
-
-<div align="center">
-
-<img width="101" src="https://github.com/user-attachments/assets/6b54a5ed-8713-4a11-a5c8-71feaf54956b">
-
-</div>
 
 ---
-## <img width="20" src="https://github.com/user-attachments/assets/3c43736d-d86f-47c1-8ca4-2f2bd6b1834a"> Favorite Music / Artists <img width="20" src="https://github.com/user-attachments/assets/3c43736d-d86f-47c1-8ca4-2f2bd6b1834a">
+
+## 🎶🖤 Favorite Music / Artists 🖤🎶
 
 🎵 Gorillaz • Studio Killers • Caravan Palace • Jack Stauber • Tom Cardy • Jakey • Glaze • The Living Tombstone • Femtanyl • Rare Americans • Sia • girl in red • Vocaloid • Daughter • Mindless Self Indulgence
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/a2870703-7cb3-4e88-852f-7dea0cd46b6e"> Favorite Artists <img width="20" src="https://github.com/user-attachments/assets/a2870703-7cb3-4e88-852f-7dea0cd46b6e">
+## 🎨🖌️ Favorite Artists 🖌️🎨
 
 🎨 Zalinki • Lisa Frank • Zach Hadel • Chris O'Neill • Amy Brown
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/ed55ebc2-1026-4585-803f-3f84995e39ee"> Favorite Brands <img width="20" src="https://github.com/user-attachments/assets/dc434305-cf2b-4aaf-9b5d-f08d5a3909e2">
+## 📚🖊️ Favorite Books / Comics 🖊️📚
+
+Life Is Strange • Scott Pilgrim
+
+---
+
+## 🛍️🌸 Favorite Brands / Companies 🌸🛍️
 
 🛍️ Sanrio • Squishmallows • Arizona Tea • Starbucks • Sugarbunnies
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/caa11849-a4f0-4370-8897-c7405b3deaf8"> Favorite Smells <img width="20" src="https://github.com/user-attachments/assets/caa11849-a4f0-4370-8897-c7405b3deaf8">
+## 👃🌊 Favorite Smells 🌊👃
 
-🌊 Wild Spirit Driftwood Perfume • Chlorine (Pools) • Smoke • Fire
+🌊 Wild Spirit Driftwood Perfume • Chlorine (Pools) • Smoke / Fire
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/1a8c27b9-c9f8-46da-b952-4a1e2de9a903"> Favorite Animals & Creatures <img width="20" src="https://github.com/user-attachments/assets/1a8c27b9-c9f8-46da-b952-4a1e2de9a903">
+## 🐾 Favorite Animals & Creatures 🐾
 
 🐇 Rabbits • Bunnies • Hares • Deer • Pigs • Opossums • Possums • Hermit Crabs • Jackalopes • Mothman • Forest Spirits • Fairies • Yokai • Ghosts • Will-o'-Wisps • Mushroom People • Cryptids
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/1a8c27b9-c9f8-46da-b952-4a1e2de9a903"> Favorite Bugs <img width="20" src="https://github.com/user-attachments/assets/1a8c27b9-c9f8-46da-b952-4a1e2de9a903">
+## 🐛🦋 Favorite Bugs 🦋🐛
 
-🦋 Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Empusidae • Hymenopodidae • Jumping Spiders • Snails • Slugs
+🦋 Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Empusidae Mantises • Hymenopodidae Mantises • Jumping Spiders • Snails • Slugs
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/255e9bd9-f5dd-410b-81dd-124a641910d5"> Favorite Pokémon <img width="20" src="https://github.com/user-attachments/assets/14435cb6-6442-4efb-b34e-c0f66c2d832f">
+## ⚡🐾 Favorite Pokémon 🐾⚡
 
 ⚡ Snorlax • Hypno • Ditto • Miltank • Piplup • Buneary • Sawsbuck • Espurr • Mimikyu • Alcremie • Maushold • Oinkologne • Scream Tail
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/f3b8bcfb-6b5d-4b82-b2fa-f22c05de1fb6"> Favorite Idol <img width="20" src="https://github.com/user-attachments/assets/f3b8bcfb-6b5d-4b82-b2fa-f22c05de1fb6">
+## 🎤💜 Favorite Idol 💜🎤
 
 💜 Jungkook
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/fd4287d1-0591-4d04-8065-b101a41e308d"> Favorite Roblox Creators <img width="20" src="https://github.com/user-attachments/assets/fd4287d1-0591-4d04-8065-b101a41e308d">
+## 🎮✨ Favorite Roblox Creators ✨🎮
 
 🎮 Starbby • Luminfur
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7"> Favorite Aesthetics <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7">
+## 🌐 Favorite Websites 🌐
+
+PonyTown • Art Fight • Twitter/X • GitHub • Spotify • Pinterest
+
+---
+
+## 🎨🌈 Favorite Aesthetics 🌈🎨
 
 🌈 Harajuku • Frutiger Aero • Dreamcore • Webcore • Weirdcore • Kidcore • Pastelcore
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7"> Favorite Colors <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7">
+## 🎨 Favorite Colors 🎨
 
-💜 Electric Purple • Purple • Lavender • Pink • Dusty Pink • Electric Blue • Sage Green • Moss Green • Forest Green • Cream • Brown • Burgundy • Mustard Yellow • Midnight Blue
+💜 Sage Green • Moss Green • Forest Green • Cream • Brown • Dusty Pink • Lavender • Electric Purple • Electric Blue • Pink • Burgundy • Mustard Yellow • Midnight Blue
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/752f14ca-5544-408c-a55a-734a732b3425"> Phobias <img width="20" src="https://github.com/user-attachments/assets/752f14ca-5544-408c-a55a-734a732b3425">
+## 😰⚠️ Phobias ⚠️😰
 
 😰 Thalassophobia • Trypophobia • Acrophobia • Scopophobia • Megalophobia
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/462dadd9-db08-4dbd-a089-f6a096787850"> Favorite Animal Crossing Villager <img width="20" src="https://github.com/user-attachments/assets/462dadd9-db08-4dbd-a089-f6a096787850">
+## 🌦️ Favorite Weather & Seasons 🌦️
+
+🌧️ Weather: Rain • Fog • Thunderstorms • Overcast Skies • Snowy Nights
+
+🍂 Seasons: Autumn • Spring
+
+---
+
+## 🎃 Favorite Holidays 🎃
+
+Halloween • Christmas • Valentine's Day • April Fool's Day
+
+---
+
+## 📺 Favorite YouTubers 📺
+
+Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh • penguinz0 • antimattermorty
+
+---
+
+## 🐦 Favorite Animal Crossing Villager 🐦
 
 🐦 Pierce
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/dc9b342b-6a61-4095-b016-64d53fd9fea8"> Starbucks Orders <img width="20" src="https://github.com/user-attachments/assets/dc9b342b-6a61-4095-b016-64d53fd9fea8">
+## ☕ Starbucks Orders ☕
 
 ☕ **Trenta Iced Coffee**
 - Extra Sweet Cream
@@ -473,6 +496,31 @@ Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries) • Pancakes • Buld
 - No Ice
 - Extra Lemon
 
+---
+
+## 🧷 Fun Facts 🧷
+
+- I draw almost exclusively with my finger.
+- I'm completely self-taught.
+- I love creating original characters and writing lore for them.
+- I make way too many OCs.
+- I absolutely love cartoons, animation, anime, and indie shows.
+- Character design is my favorite thing to draw.
+- Mushrooms instantly make anything cooler.
+- Rabbits are my favorite animal.
+- Purple is one of my favorite colors.
+- I collect GIFs, blinkies, stamps, pixels, and old web graphics.
+- I spend way too much time decorating my profiles.
+- Most of my OCs have way too much lore.
+- You'll usually find me playing PonyTown, Roblox, or Stardew Valley.
+- I'm usually drinking iced coffee, tea, or a Red Bull while drawing.
+- I almost always have music playing while I draw.
+- I love discovering obscure cartoons, horror movies, and indie games.
+- My favorite part of making OCs is giving them detailed backstories.
+- I enjoy making cozy little corners of the internet that feel like old-school personal websites.
+- I love making new friends, even though I'm shy at first.
+- I can talk about animation, horror, cartoons, character design, and my OCs for hours.
+- My favorite aesthetic is anything cute, spooky, nostalgic, colorful, or weird.
 ---
 
 
@@ -980,6 +1028,10 @@ Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries) • Pancakes • Buld
 <br>
 
 <img width="400" height="154" alt="bb5426c7d6dfa8b35199874c8d3420a1" src="https://github.com/user-attachments/assets/b8402b97-736c-4e8f-bde8-e92e600c8d3b" />
+
+<br>
+
+<img width="360" height="360" alt="tumblr_fb4f0ad7a075c2de12f0be1c92135950_6e8feeeb_400" src="https://github.com/user-attachments/assets/f70228fc-2532-478d-86e9-d4fb231f094d" />
 
 </details>
 
