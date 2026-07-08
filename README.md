@@ -2,6 +2,9 @@
 
 <br>
 
+## <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9"> Current Hyperfixations <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
+
+🍄 AHHH!! Real Monsters • 🦄 My Little Pony • watching animated shows/movies • 🎨 Drawing OCs • 🐴 PonyTown • 🎮 Roblox • ✨ Collecting GIFs, Blinkies & Stamps
 
 <br>
 
@@ -327,6 +330,13 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 </div>
 
+
+## <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7"> Favorite Websites <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7">
+
+🌐 PonyTown • Art Fight • GitHub • Spotify • Pinterest • Twitter / X
+
+</div>
+
 ## 🎬🍿 Favorite Films 🍿🎬
 
 Coraline • Alice in Wonderland • Spirited Away • Ponyo • Pom Poko • Only Yesterday • The Night Is Short, Walk on Girl • Win or Lose • Ride Your Wave • Your Name • A Silent Voice • Thirteen Ghosts • Signs • Hereditary • Willy's Wonderland • The Witch • The Autopsy of Jane Doe • Scary Stories to Tell in the Dark • Silent Hill • Creep • Skinamarink • The Visit • As Above, So Below • The Blair Witch Project • Hell House LLC • Grave Encounters • Last Shift • The Ritual • The Possession
@@ -335,7 +345,7 @@ Coraline • Alice in Wonderland • Spirited Away • Ponyo • Pom Poko • On
 
 ## <img width="20" height="20" alt="tv" src="https://github.com/user-attachments/assets/63f05612-e961-44fb-b458-7c6b69b3a71b" /> Favorite Shows <img width="20" height="20" alt="tv" src="https://github.com/user-attachments/assets/63f05612-e961-44fb-b458-7c6b69b3a71b" />
 
-Adventure Time • Bee and PuppyCat • Gravity Falls • Futurama • Scott Pilgrim • My Little Pony • Moomin • South Park • Final Space • Aggretsuko • AHHH! Real Monsters • The Cuphead Show • Code Lyoko • Steven Universe • Star vs. the Forces of Evil • OK K.O.! • Infinity Train • Tuca & Bertie • The Amazing Digital Circus • Home Movies • China, IL • Clone High • Big Top Burger • MTV Downtown
+Adventure Time • Bee and PuppyCat • Gravity Falls • Futurama • Scott Pilgrim • My Little Pony • Moomin • South Park • Final Space • Aggretsuko • AHHH!! Real Monsters • The Cuphead Show • Code Lyoko • Steven Universe • Star vs. the Forces of Evil • OK K.O.! • Infinity Train • Tuca & Bertie • The Amazing Digital Circus • Home Movies • China, IL • Clone High • Big Top Burger • MTV Downtown • Poppe the Performer
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
@@ -347,44 +357,32 @@ xxxHolic • Durarara!! • Osomatsu-san • Deadman Wonderland • Mob Psycho 1
 
 ## <img width="20" height="20" alt="console5" src="https://github.com/user-attachments/assets/c6c51af7-a43f-4caf-8c72-e454e2509605" /> Favorite Games <img width="20" height="20" alt="console5" src="https://github.com/user-attachments/assets/c6c51af7-a43f-4caf-8c72-e454e2509605" />
 
-Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by Daylight • The Classrooms • Five Nights at Freddy's • Grounded • The Forest • Lethal Company • Life Is Strange • Resident Evil • Saints Row • Raft • Stardew Valley • Webfishing • Fran Bow • Content Warning • 7 Days to Die • Bigfoot • Roblox • Skyrim • Yandere Simulator • Silent Hill • Hello Kitty Island Adventure • Kletka • Hitman • Degrees of Lewdity • Alice: Madness Returns • What Remains of Edith Finch • Reka • Schedule 1 • Wizard101 • Wobbledogs
+Minecraft • PonyTown • Cookie Run: Kingdom • Cult of the Lamb • Dead by Daylight • The Classrooms • Five Nights at Freddy's • Grounded • The Forest • Lethal Company • Life Is Strange • Resident Evil • Saints Row • Raft • Stardew Valley • Webfishing • Fran Bow • Content Warning • 7 Days to Die • Bigfoot • Roblox • Skyrim • Yandere Simulator • Silent Hill • Hello Kitty Island Adventure • Kletka • Hitman • Degrees of Lewdity • Alice: Madness Returns • What Remains of Edith Finch • Reka • Schedule 1 • Wizard101 • Wobbledogs
 
-## <img width="20" height="20" alt="juice2" src="https://github.com/user-attachments/assets/2b0c8754-707c-4f2a-90c8-4ec4a1ab50d8" /> Favorite Foods & Drinks <img width="20" height="20" alt="juice2" src="https://github.com/user-attachments/assets/2b0c8754-707c-4f2a-90c8-4ec4a1ab50d8" />
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+
+## 🎨 Favorite Artists 🎨
+
+Zalinki • Lisa Frank • Zach Hadel • Chris O'Neill • Amy Brown
+
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+
+## 📚 Favorite Books & Comics 📚
+
+Life Is Strange • Scott Pilgrim
+
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+
+## 🛍️ Favorite Brands 🛍️
+
+Sanrio • Squishmallows • Arizona Tea • Starbucks • Sugarbunnies
 
 
 <img width="99" height="56" alt="49f4af6ffce296ffe91f7e3c67f5634c" src="https://github.com/user-attachments/assets/0b03ab78-851f-414f-aaa0-dfb18b562ae6" /> <img width="99" height="56" alt="tumblr_cc48125e658008761381e8e0862d5a9a_f90860e0_250" src="https://github.com/user-attachments/assets/c6bb88e4-460f-4924-b7cc-1b0cd3663ae8" />
 
+<img width="20" height="20" alt="3uliWir" src="https://github.com/user-attachments/assets/61adc4a0-1ee9-401a-907b-f5a48b0b8c03" /> 
 
-<img width="20" height="20" alt="3uliWir" src="https://github.com/user-attachments/assets/61adc4a0-1ee9-401a-907b-f5a48b0b8c03" />  Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries)
-
-<img width="20" height="20" alt="cake32" src="https://github.com/user-attachments/assets/470332e6-f14b-4ece-98a2-4c6a47db2cf1" /> Pancakes
-
-<img width="20" height="20" alt="bowl19" src="https://github.com/user-attachments/assets/d7ca5895-2efc-45b2-84c5-7b6e72427c82" /> Buldak Ramen
-
-<img width="20" height="20" alt="tea2" src="https://github.com/user-attachments/assets/3d0c944a-151d-443e-b23f-9f2842fe23d1" /> Arizona Tea (Herbal Tonic, Green Tea, Half & Half)
-
-<img width="20" height="20" alt="cupcake7" src="https://github.com/user-attachments/assets/9792819e-adc3-409f-9a9e-006b255d7568" /> Muffins
-
-<img width="20" height="20" alt="cake12" src="https://github.com/user-attachments/assets/d09300b7-eac3-457c-b195-5dee8b1e6349" /> Matcha
-
-<img width="20" height="20" alt="bread7" src="https://github.com/user-attachments/assets/9a9125fb-a253-4172-bcff-959a7fde8ce5" /> French Toast
-
-<img width="20" height="20" alt="citrus" src="https://github.com/user-attachments/assets/475c5b75-108c-472d-bdba-e6489505f571" /> Aussie Lemonade
-
-<img width="20" height="20" alt="donut2" src="https://github.com/user-attachments/assets/9bad393b-7db0-47a3-bf97-b0272c466aa5" /> Donuts
-
-<img width="20" height="20" alt="coffee17" src="https://github.com/user-attachments/assets/f2f38056-9b7c-42a5-9c3c-ac977e5bbb01" /> Iced Coffee
-
-<img width="20" height="20" alt="tea" src="https://github.com/user-attachments/assets/174716a7-b7c2-4e44-92cc-930acc53ca95" /> Tea
-
-<img width="20" height="20" alt="citrus5" src="https://github.com/user-attachments/assets/5dea1775-df94-4e34-a066-37ccea0371a0" />  Lemon & Lime
-
-<img width="20" height="20" alt="bubble" src="https://github.com/user-attachments/assets/d33c7c99-3338-4157-997e-0555a2db5523" /> Boba Tea
-
-
-<img width="711" height="39" alt="abd19ae69251e3c22cddbf2a07f91371" src="https://github.com/user-attachments/assets/06d66942-dec6-4355-a2ec-4bf753bd3394" />
-
+Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries) • Pancakes • Buldak Ramen • Arizona Tea (Herbal Tonic, Green Tea, Half & Half) • Muffins • Matcha • French Toast • Aussie Lemonade • Donuts • Iced Coffee • Tea • Lemon & Lime • Boba Tea
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 <img width="360" height="360" alt="tumblr_fb4f0ad7a075c2de12f0be1c92135950_6e8feeeb_400" src="https://github.com/user-attachments/assets/f70228fc-2532-478d-86e9-d4fb231f094d" />
@@ -396,7 +394,6 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 </div>
 
 ---
-
 ## <img width="20" src="https://github.com/user-attachments/assets/3c43736d-d86f-47c1-8ca4-2f2bd6b1834a"> Favorite Music / Artists <img width="20" src="https://github.com/user-attachments/assets/3c43736d-d86f-47c1-8ca4-2f2bd6b1834a">
 
 🎵 Gorillaz • Studio Killers • Caravan Palace • Jack Stauber • Tom Cardy • Jakey • Glaze • The Living Tombstone • Femtanyl • Rare Americans • Sia • girl in red • Vocaloid • Daughter • Mindless Self Indulgence
@@ -409,12 +406,6 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/9e482c5e-5201-41c0-a7d5-435b7d0337ed"> Favorite Books / Comics <img width="20" src="https://github.com/user-attachments/assets/9e482c5e-5201-41c0-a7d5-435b7d0337ed">
-
-📚 Life Is Strange • Scott Pilgrim
-
----
-
 ## <img width="20" src="https://github.com/user-attachments/assets/ed55ebc2-1026-4585-803f-3f84995e39ee"> Favorite Brands <img width="20" src="https://github.com/user-attachments/assets/dc434305-cf2b-4aaf-9b5d-f08d5a3909e2">
 
 🛍️ Sanrio • Squishmallows • Arizona Tea • Starbucks • Sugarbunnies
@@ -423,13 +414,19 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 ## <img width="20" src="https://github.com/user-attachments/assets/caa11849-a4f0-4370-8897-c7405b3deaf8"> Favorite Smells <img width="20" src="https://github.com/user-attachments/assets/caa11849-a4f0-4370-8897-c7405b3deaf8">
 
-🌊 Wild Spirit Driftwood Perfume • Chlorine • Smoke • Fire
+🌊 Wild Spirit Driftwood Perfume • Chlorine (Pools) • Smoke • Fire
+
+---
+
+## <img width="20" src="https://github.com/user-attachments/assets/1a8c27b9-c9f8-46da-b952-4a1e2de9a903"> Favorite Animals & Creatures <img width="20" src="https://github.com/user-attachments/assets/1a8c27b9-c9f8-46da-b952-4a1e2de9a903">
+
+🐇 Rabbits • Bunnies • Hares • Deer • Pigs • Opossums • Possums • Hermit Crabs • Jackalopes • Mothman • Forest Spirits • Fairies • Yokai • Ghosts • Will-o'-Wisps • Mushroom People • Cryptids
 
 ---
 
 ## <img width="20" src="https://github.com/user-attachments/assets/1a8c27b9-c9f8-46da-b952-4a1e2de9a903"> Favorite Bugs <img width="20" src="https://github.com/user-attachments/assets/1a8c27b9-c9f8-46da-b952-4a1e2de9a903">
 
-🦋 Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Jumping Spiders
+🦋 Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Empusidae • Hymenopodidae • Jumping Spiders • Snails • Slugs
 
 ---
 
@@ -451,9 +448,15 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7"> Aesthetics <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7">
+## <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7"> Favorite Aesthetics <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7">
 
-🌈 Harajuku • Frutiger Aero • Webcore
+🌈 Harajuku • Frutiger Aero • Dreamcore • Webcore • Weirdcore • Kidcore • Pastelcore
+
+---
+
+## <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7"> Favorite Colors <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7">
+
+💜 Electric Purple • Purple • Lavender • Pink • Dusty Pink • Electric Blue • Sage Green • Moss Green • Forest Green • Cream • Brown • Burgundy • Mustard Yellow • Midnight Blue
 
 ---
 
@@ -465,11 +468,11 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 ## <img width="20" src="https://github.com/user-attachments/assets/462dadd9-db08-4dbd-a089-f6a096787850"> Favorite Animal Crossing Villager <img width="20" src="https://github.com/user-attachments/assets/462dadd9-db08-4dbd-a089-f6a096787850">
 
-🐦 **Pierce**
+🐦 Pierce
 
 ---
 
-## <img width="20" src="https://github.com/user-attachments/assets/dc9b342b-6a61-4095-b016-64d53fd9fea8"> Starbucks Order <img width="20" src="https://github.com/user-attachments/assets/dc9b342b-6a61-4095-b016-64d53fd9fea8">
+## <img width="20" src="https://github.com/user-attachments/assets/dc9b342b-6a61-4095-b016-64d53fd9fea8"> Starbucks Orders <img width="20" src="https://github.com/user-attachments/assets/dc9b342b-6a61-4095-b016-64d53fd9fea8">
 
 ☕ **Trenta Iced Coffee**
 - Extra Sweet Cream
@@ -480,21 +483,22 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 - No Ice
 - Extra Lemon
 
-<div align="center">
+---
 
+
+<div align="center">
 
 <br>
 
 # <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9"> GIF CORNER <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
+
 <br>
-<img width="350" height="20" alt="d3ba8909831ae711899cbbe2a3d5bb2d" src="https://github.com/user-attachments/assets/472b02d2-24be-424d-a0fd-dd6a8d6dd669" />
 
-
+<img width="350" height="20" alt="divider" src="https://github.com/user-attachments/assets/472b02d2-24be-424d-a0fd-dd6a8d6dd669" />
 
 ### ✦ Blinkies • Pixels • Stamps • Funny GIFs • Hyperfixations ✦
 
 ₊˚⊹♡ Click a section below to browse my collection! ♡⊹˚₊
-
 </div>
 
 ---
