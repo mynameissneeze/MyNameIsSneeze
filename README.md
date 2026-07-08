@@ -277,7 +277,8 @@ https://artfight.net/~MyNameIsSneeze
 
 <br>
 
-🎵 **Spotify Playlist**
+<img width="20" height="20" alt="f48819af8740ad784a3d722114ed527f" src="https://github.com/user-attachments/assets/55c5eb32-ecbb-4737-8eeb-94d69affe859" />
+ **Spotify Playlist**
 
 https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
@@ -411,9 +412,9 @@ Life Is Strange • Scott Pilgrim
 
 ---
 
-## 🐛🦋 Favorite Bugs 🦋🐛
+## <img width="20" height="20" alt="993d5eb49fb656140fb64c3d6a9519f6" src="https://github.com/user-attachments/assets/9f207bdf-9da4-4e8f-a89d-d32d246290a2" /> Favorite Bugs 
 
-🦋 Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Empusidae Mantises • Hymenopodidae Mantises • Jumping Spiders • Snails • Slugs
+🦋 Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Empusidae Mantises • Hymenopodidae Mantises • Jumping Spiders • Snails • Slugs • Dragon Flys • Fireflies 
 
 ---
 
@@ -459,7 +460,8 @@ PonyTown • Art Fight • Twitter/X • GitHub • Spotify • Pinterest
 
 ---
 
-## 🌦️ Favorite Weather & Seasons 🌦️
+##  <img width="20" height="20" alt="7c4561648bcd6b96259a1f70a5c1c257" src="https://github.com/user-attachments/assets/7d0be0aa-e534-4145-855e-298a8d16404f" /> Favorite Weather & Seasons <img width="20" height="20" alt="3cf59f4283a82799611f30b2e42e56c3" src="https://github.com/user-attachments/assets/f678771a-ab03-4352-bbae-90525ca74e2f" />
+
 
 🌧️ Weather: Rain • Fog • Thunderstorms • Overcast Skies • Snowy Nights
 
@@ -634,6 +636,9 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="20" height="20" alt="1836d672ac9ea317c2f50db219d1e413" src="https://github.com/user-attachments/assets/bc1177f9-c245-4926-8b74-4d597c9fbceb" />
 <img width="20" height="20" alt="26a0323b6fbd670bf25a8c2a23a58db9" src="https://github.com/user-attachments/assets/245ae35b-2423-4df8-9f64-07cf04ca4221" />
 <img width="20" height="20" alt="7ddb24961f30e50b79f3dcbef87e054c" src="https://github.com/user-attachments/assets/14ebb967-7325-49e6-bc7d-a6ee4c701088" />
+<img width="20" height="20" alt="32c2f8420949531d277b59517d897d52" src="https://github.com/user-attachments/assets/0c632274-a9e6-4f2b-8d20-ec8596728467" />
+<img width="20" height="20" alt="75eb1456d74313773e4583f0ced0f7c8" src="https://github.com/user-attachments/assets/3d704ad1-da0f-4f35-aa2c-f44aca345f39" />
+<img width="20" height="20" alt="f83646189942ed535eac39c70e221f9f" src="https://github.com/user-attachments/assets/a168d07e-70a0-4052-863f-de4f823e966e" />
 
 </details>
 
@@ -660,12 +665,18 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <br>
 <img width="88" height="31" alt="tumblr_395614db8982d68a5f374f4478d18e66_06f1dc7a_250" src="https://github.com/user-attachments/assets/d848faf8-0527-4496-8288-06aafb90084a" />
 <img width="88" height="31" alt="button1" src="https://github.com/user-attachments/assets/794663ec-6f8a-4c3b-b1ed-ded6c3e2f261" />
+<img width="88" height="31" alt="7e9ab237a908760de13954b5bbcf5409" src="https://github.com/user-attachments/assets/46b801ae-a0fb-4012-9af6-f6c766e29cde" />
+<img width="88" height="31" alt="7ea914236d0d585965b4946f1c94b339" src="https://github.com/user-attachments/assets/7526e6ef-f44c-46a1-b95f-d8b3323eb84f" />
+<img width="88" height="31" alt="3f6f98954e4eb1bfccf32339cba4c28e" src="https://github.com/user-attachments/assets/993098c6-838a-4966-820e-249e5c4c21a8" />
+<img width="88" height="31" alt="c48df98455a4dc2e26b13d2958ae9269" src="https://github.com/user-attachments/assets/310f102e-a120-4e8c-9bc9-271b3998ec36" />
+<img width="88" height="31" alt="1a670f159a511c5a18006763b6be6faa" src="https://github.com/user-attachments/assets/e0603480-81d0-44c2-959a-d66b3d563fb8" />
 
 <br>
 
 <div align="center">
 
 <!-- Normal sized -->
+<img width="150" height="20" alt="740b1bbfd70262f4623c126e2b61ff15" src="https://github.com/user-attachments/assets/ecaff45d-c3af-4620-9a1f-79ce50dd97b2" />
 <img width="150" height="20" alt="tumblr_6c8ab0416b75c229ea4538153b37eac1_7728c20b_250" src="https://github.com/user-attachments/assets/ec72358b-9ffe-4d8f-986f-037104e2517a" />
 <img width="150" height="20" alt="tumblr_bea0e56ed9106f458edd01fdc2d0a6e0_a758b812_250" src="https://github.com/user-attachments/assets/9bfa302d-3e13-47d8-a391-aa8d416c7f12" />
 <img width="150" height="20" alt="tumblr_0157a383e6be45746ece88868e594a16_505acd21_250" src="https://github.com/user-attachments/assets/d9a5d439-bcf9-4caf-95fc-cc265d04bf06" />
@@ -1023,6 +1034,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <div align="center">
 
 <table>
+
 <tr>
 
 <td align="center">
@@ -1093,7 +1105,10 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img src="https://github.com/user-attachments/assets/19cec835-405a-43d2-a58f-1c77c1cf7d1b" width="180">
 </td>
 
-<td></td>
+<td align="center">
+<img src="https://media.thuvien.org/photo/13887/image/5da4ae914d5b3dbed2ab790fe99ef0f7.gif" width="180">
+</td>
+
 <td></td>
 
 </tr>
@@ -1105,10 +1120,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <br>
 
 </details>
-
-
-</details>
-
 <br>
 
 <details>
