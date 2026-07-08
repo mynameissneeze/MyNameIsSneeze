@@ -1238,3 +1238,64 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <br>
 
 </details>
+
+<br>
+
+<details>
+
+<summary><h2>🍄 Random Internet Things</h2></summary>
+
+<br>
+
+<div align="center">
+
+<table>
+
+<tr>
+
+<td align="center">
+<img src="https://github.com/user-attachments/assets/36672c7d-ac9a-41a7-81bb-ffc5434bcf40" width="100">
+</td>
+
+<td align="center">
+<img src="https://github.com/user-attachments/assets/3c03ed34-37da-434e-b4f1-f0ad1a87b46b" width="100">
+</td>
+
+<td align="center">
+<a href="https://x.com/PrettyWhenOwned" target="_blank">
+<img src="https://github.com/user-attachments/assets/e1bb9cb7-87bc-4bd2-95bc-f76d9f902cf7" width="100">
+</a>
+</td>
+
+<td align="center">
+<img src="https://github.com/user-attachments/assets/27c3446d-e57d-4dcc-b364-49985ac79264" width="100">
+</td>
+
+<td align="center">
+<img src="https://github.com/user-attachments/assets/e785fc10-f9e8-4a92-a6fc-20ca4396cb39" width="100">
+</td>
+
+</tr>
+
+</table>
+
+</div>
+
+<br>
+
+</details>
+
+
+<br><br>
+
+
+<div align="center">
+
+<img src="https://github.com/user-attachments/assets/fc7744df-963c-4e5a-ad79-63fac5df47db" width="540">
+
+</div>
+
+
+<br>
+
+-ˋˏ✄──────────────────────────────────────────────────────────────
