@@ -1,5 +1,5 @@
 
-<div align="center">
+
 <br>
 
 ## <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9"> Current Hyperfixations <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
@@ -664,6 +664,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 </summary>
 
 <br>
+<div align="center"><img width="80" height="15" alt="e886f58b6890d1101cc21e9e252fc8a3" src="https://github.com/user-attachments/assets/eed1c6c0-2145-49b2-8396-7d05270b8d8b" />
 
 <img width="80" height="15" alt="05548f2b2fde337533da33cc780ba30c" src="https://github.com/user-attachments/assets/afb4e30c-226f-4243-b101-b99f28447d74" />
 <img width="80" height="15" alt="c9c129a7b74362b2a4b645a4e19d59e4" src="https://github.com/user-attachments/assets/dae07b00-759f-430c-afc5-b0188e14e426" />
