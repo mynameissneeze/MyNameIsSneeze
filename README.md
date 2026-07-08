@@ -1065,6 +1065,13 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 </td>
 </tr>
 
+<!-- Cinnamoroll Squishy -->
+<tr>
+<td colspan="3" align="center">
+<img src="https://github.com/user-attachments/assets/384a8d8b-8d27-490b-8b15-9d7843139f70" width="180">
+</td>
+</tr>
+
 </table>
 
 </div>
