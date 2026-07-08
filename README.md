@@ -3,8 +3,6 @@
 <br>
 
 
-<img width="115" height="29" alt="tumblr_7d8287820f49cfff17e4488b50dc5385_3a5348f4_250" src="https://github.com/user-attachments/assets/f339ae61-9a7f-4f4e-9bfe-5383a21ecc6b" />
-
 <br>
 
 <img src="https://github.com/user-attachments/assets/35508dce-4a8e-48e6-9278-68be4225d490" width="80">
@@ -488,6 +486,9 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <br>
 
 # <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9"> GIF CORNER <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
+<br>
+<img width="350" height="20" alt="d3ba8909831ae711899cbbe2a3d5bb2d" src="https://github.com/user-attachments/assets/472b02d2-24be-424d-a0fd-dd6a8d6dd669" />
+
 
 
 ### ✦ Blinkies • Pixels • Stamps • Funny GIFs • Hyperfixations ✦
@@ -512,6 +513,7 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <!-- Your Favicons Here -->
 
 </div>
+
 <img width="25" height="55" alt="9394a8a4cdf507926f78cf4a58a0b56f" src="https://github.com/user-attachments/assets/d5ba0ccc-9d97-4143-9b4d-3d5d6f589193" /> 
 <img width="32" height="59" alt="tumblr_32bfdf3536f6bee847f357d6177e4bc0_68108c7e_75" src="https://github.com/user-attachments/assets/d557abe7-26c1-46e4-85b9-73c0d97acd75" /> 
 <img width="100" height="50" alt="3178941d1b9b2cbc8b8db13e6b3a6b1c" src="https://github.com/user-attachments/assets/56f47c60-97f3-4b4f-8466-7c7b055d1f95" /> 
@@ -580,9 +582,17 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <img width="20" height="20" alt="ohhw3ek" src="https://github.com/user-attachments/assets/2b1bcd27-7ae8-46cf-8b6f-16acee27e80a" />
 <img width="20" height="20" alt="tumblr_267e78df5cd5bbcf8b47a7ce84ca3894_c3efa980_75" src="https://github.com/user-attachments/assets/c75eb7e5-35d7-4999-954d-0ab59efcb68c" />
 <img width="20" height="20" alt="tumblr_429013d727540331a17b12420ed750eb_483d6041_75" src="https://github.com/user-attachments/assets/bef4be67-c4ac-4c9b-ac49-cb26417fe937" />
-<img width="298" height="168" alt="tumblr_075d66ae15748f30cab8ecaca90fe2c9_9dd0aac3_400" src="https://github.com/user-attachments/assets/18afb188-a0e8-46f3-abad-f87d724d1577" />
-<img width="101" height="57" alt="tumblr_984216bfbbdbc12ea53ddb2fb84fd7df_3d56ab62_250" src="https://github.com/user-attachments/assets/638cee87-09c6-4cb1-a4bc-b304f649b86b" />
-<img width="101" height="57" alt="tumblr_085eb3b29b09b90e637c8200b1d7d34d_f73c338e_250" src="https://github.com/user-attachments/assets/ae1ad1c9-2399-43ee-8b30-4e883bfba426" />
+<img width="20" height="20" alt="63b0a7fcbb6ab7a2b28b581432273ee9" src="https://github.com/user-attachments/assets/d9011caa-51d7-40d2-80e0-b3c7989c99a7" />
+<img width="20" height="20" alt="4e580e2c0ff544f71b739b0a13c3873b" src="https://github.com/user-attachments/assets/c9ae33f6-3e35-4407-ab5e-31853dea3d60" />
+<img width="20" height="20" alt="f102650110dddf485bbb1b22b176020a" src="https://github.com/user-attachments/assets/d1643662-23b4-48ca-a883-c603c81b2323" />
+<img width="20" height="20" alt="77ad7bfea094e03c95bd60aed49e616e" src="https://github.com/user-attachments/assets/1fe7e069-187c-4a37-acb8-143fe81a43d8" />
+<img width="20" height="20" alt="993d5eb49fb656140fb64c3d6a9519f6" src="https://github.com/user-attachments/assets/ade57523-0764-4bb6-87d1-f0a930d4c8c4" />
+<img width="20" height="20" alt="6ea14f9d3052f731dc430f37bca98553" src="https://github.com/user-attachments/assets/1b923f53-4443-4854-817e-47ca255bbcf8" />
+<img width="20" height="20" alt="ef7050184ea715fdca392b24b424bb35" src="https://github.com/user-attachments/assets/c4cb3253-2788-4f0a-a190-91a130198f55" />
+<img width="20" height="20" alt="1836d672ac9ea317c2f50db219d1e413" src="https://github.com/user-attachments/assets/bc1177f9-c245-4926-8b74-4d597c9fbceb" />
+<img width="20" height="20" alt="26a0323b6fbd670bf25a8c2a23a58db9" src="https://github.com/user-attachments/assets/245ae35b-2423-4df8-9f64-07cf04ca4221" />
+<img width="20" height="20" alt="7ddb24961f30e50b79f3dcbef87e054c" src="https://github.com/user-attachments/assets/14ebb967-7325-49e6-bc7d-a6ee4c701088" />
+
 </details>
 
 <details>
@@ -614,7 +624,6 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <div align="center">
 
 <!-- Normal sized -->
-<img width="300" height="100" alt="100" src="https://github.com/user-attachments/assets/a44bd95f-3510-43d2-8ad8-4b0813978d52" />
 <img width="150" height="20" alt="tumblr_6c8ab0416b75c229ea4538153b37eac1_7728c20b_250" src="https://github.com/user-attachments/assets/ec72358b-9ffe-4d8f-986f-037104e2517a" />
 <img width="150" height="20" alt="tumblr_bea0e56ed9106f458edd01fdc2d0a6e0_a758b812_250" src="https://github.com/user-attachments/assets/9bfa302d-3e13-47d8-a391-aa8d416c7f12" />
 <img width="150" height="20" alt="tumblr_0157a383e6be45746ece88868e594a16_505acd21_250" src="https://github.com/user-attachments/assets/d9a5d439-bcf9-4caf-95fc-cc265d04bf06" />
@@ -704,10 +713,9 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <img src="https://github.com/user-attachments/assets/9afe871f-a692-4c34-9599-23250411b31d" width="400">
 <img src="https://github.com/user-attachments/assets/846959e9-f055-44b8-a21c-cd3ad57a6ee9" width="400">
-<img src="https://github.com/user-attachments/assets/1df839bb-866d-4f4f-9291-a86ebf145845" width="400">
 <br>
 <!-- Teeth/Cig layer -->
-
+<img width="300" height="100" alt="100" src="https://github.com/user-attachments/assets/a44bd95f-3510-43d2-8ad8-4b0813978d52" />
 <img width="400" height="40" alt="tumblr_2928c37fe192b268f5021b16d6b642ee_3a87651e_400" src="https://github.com/user-attachments/assets/2ab538bf-f661-49b5-ab87-bce7e1b4fdd0" />
 <br>
 <!-- problem intrest layer -->
@@ -739,6 +747,14 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <!-- Stamps -->
 
 </div>
+<img width="99" height="56" alt="9448a700c8f02bf71e182b73bd75fca2" src="https://github.com/user-attachments/assets/4de25028-12c3-4d47-b70c-885c62301fce" />
+<img width="99" height="56" alt="917d17411e74b7c8ebf648aa8b9f55be" src="https://github.com/user-attachments/assets/24b45668-ae6a-4bb1-99e9-6139257d57e8" />
+<img width="101" height="59" alt="d8dfd4de06b723fabaa976e0abfa16c7" src="https://github.com/user-attachments/assets/025c2d21-a170-49e4-8c8d-108447d70e74" />
+<img width="99" height="56" alt="7236e5dd9238514bda819606384d15c0" src="https://github.com/user-attachments/assets/81ccea2c-73ae-46c4-9b8e-763cc7f77915" />
+<img width="99" height="56" alt="ca2d2f395926fe254e5a2738ac583db0" src="https://github.com/user-attachments/assets/d3a47543-e5f5-45a7-afd3-76a920c94282" />
+<img width="99" height="56" alt="7808c80a4a9ea63114f1374cf6c403af" src="https://github.com/user-attachments/assets/057f5348-7bd1-4384-95ef-b75eb7aa5110" />
+<img width="99" height="56" alt="858379dbba842e4780c7024100861e9e" src="https://github.com/user-attachments/assets/6fad06a7-a729-4730-a746-0a71f14a60fd" />
+<img width="94" height="55" alt="tumblr_4f84e59a458e83cc30c7cfd5f2d4648d_f41f5df5_100" src="https://github.com/user-attachments/assets/53c1a151-1d69-47fc-bb7d-5339dafebe81" />
 <img width="101" height="57" alt="tumblr_8a5062947adff28f8b7989b4abb20901_257beb1a_100" src="https://github.com/user-attachments/assets/275e0362-991c-477d-9e77-185ceb5b480a" /><img width="101" height="57" alt="tumblr_95fdc793c20abbae5876cb4f23b64e19_447fedf4_250" src="https://github.com/user-attachments/assets/16ef14fb-2f57-4875-9469-a120d0d4319a" />
 <img width="99" height="56" alt="dbs8ezg-17e37aee-ac3a-45d3-ac43-5e669acc7ad7" src="https://github.com/user-attachments/assets/74d9ba83-02b4-4f10-94ab-ea268252e00f" />
 <img width="99" height="56" alt="b49" src="https://github.com/user-attachments/assets/1908c204-65b3-404b-9d2a-187d1026419c" />
@@ -805,12 +821,13 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <img width="99" height="56" alt="twilight" src="https://github.com/user-attachments/assets/8efcdb90-7064-437f-88f5-c54991bfaa7b" />
 <img width="99" height="56" alt="Scottkiss" src="https://github.com/user-attachments/assets/d02b70da-8872-4ef6-a15d-7d3720610757" />
 <img width="100" height="58" alt="playground" src="https://github.com/user-attachments/assets/1ada739a-9890-48a1-85f9-f72aad471ee0" />
-<img width="99" height="56" alt="tumblr_cc1951f016e4515160a735e64786dd18_54530c61_100" src="https://github.com/user-attachments/assets/66195029-b67f-4a3f-9f62-be885cf087a6" />
 <img width="99" height="56" alt="94aa81e962de01ffa01f8e51142ab0d1" src="https://github.com/user-attachments/assets/f0292bc8-ce87-4b36-8e27-bd3d2bba4df3" />
 <img width="99" height="56" alt="tumblr_8a66216d5866b23144f916a3d961bbed_a08ccd28_250" src="https://github.com/user-attachments/assets/31d7fe61-b85c-4ab7-8722-5dba30b02892" />
-<img width="99" height="56" alt="tumblr_4e076d7f8864c478527091d64ad38a39_97c75b6f_250" src="https://github.com/user-attachments/assets/424ee2a9-e654-477b-ad50-68cb86be0bec" />
-<img width="99" height="56" alt="tumblr_9425adfb36600ff04b9bb5e813b92f8f_b3f36f44_250" src="https://github.com/user-attachments/assets/7bed24c9-6161-4a26-9125-6646ddd2ac73" />
+<img width="101" height="57" alt="tumblr_085eb3b29b09b90e637c8200b1d7d34d_f73c338e_250" src="https://github.com/user-attachments/assets/ae1ad1c9-2399-43ee-8b30-4e883bfba426" />
 <img width="99" height="56" alt="tumblr_4e076d7f8864c478527091d64ad38a39_97c75b6f_250" src="https://github.com/user-attachments/assets/424ee2a9-e654-477b-ad50-68cb86be0bec" /><img width="99" height="56" alt="tumblr_9425adfb36600ff04b9bb5e813b92f8f_b3f36f44_250" src="https://github.com/user-attachments/assets/7bed24c9-6161-4a26-9125-6646ddd2ac73" />
+<img width="99" height="56" alt="tumblr_cc1951f016e4515160a735e64786dd18_54530c61_100" src="https://github.com/user-attachments/assets/66195029-b67f-4a3f-9f62-be885cf087a6" />
+<img width="101" height="57" alt="tumblr_075d66ae15748f30cab8ecaca90fe2c9_9dd0aac3_400" src="https://github.com/user-attachments/assets/18afb188-a0e8-46f3-abad-f87d724d1577" />
+<img width="101" height="57" alt="tumblr_984216bfbbdbc12ea53ddb2fb84fd7df_3d56ab62_250" src="https://github.com/user-attachments/assets/638cee87-09c6-4cb1-a4bc-b304f649b86b" />
 <!-- slightly larger (Burger cult layer) -->
 
 <br>
@@ -917,7 +934,9 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <br><br>
 
-<img src="https://github.com/user-attachments/assets/920ebf57-e2d6-4f22-8d91-89a70daf3c60" width="220">
+<img src="https://github.com/user-attachments/<img width="99" height="99" alt="82271e0099153287f873498e08811a0b" src="https://github.com/user-attachments/assets/4982ca5b-6657-4106-b5be-1b7dd10fdc33" />
+<img width="100" height="100" alt="ef606963ac8b9dc7a26170f99a6eb27e" src="https://github.com/user-attachments/assets/a11f14cd-c223-44c9-9789-581fb510db0f" />
+assets/920ebf57-e2d6-4f22-8d91-89a70daf3c60" width="220">
 
 <img src="https://github.com/user-attachments/assets/7584e827-f58e-4082-96f0-2155ec3f106c" width="220">
 
@@ -965,6 +984,10 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <img width="480" height="480" alt="giphy" src="https://github.com/user-attachments/assets/a495e74b-c348-4b94-bc9a-5a1df9592c79" />
 
+<br>
+
+<img width="400" height="154" alt="bb5426c7d6dfa8b35199874c8d3420a1" src="https://github.com/user-attachments/assets/b8402b97-736c-4e8f-bde8-e92e600c8d3b" />
+
 </details>
 
 <br>
@@ -990,6 +1013,8 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
   >
 </a>
 <img width="100" height="100" alt="tumblr_pyns0qkDNw1xmlb72o1_100" src="https://github.com/user-attachments/assets/27c3446d-e57d-4dcc-b364-49985ac79264" />
+<img width="99" height="99" alt="82271e0099153287f873498e08811a0b" src="https://github.com/user-attachments/assets/42ed22cc-98c3-480e-be82-ba75a1c7b101" />
+<img width="100" height="100" alt="842c89ecdd073daf4d996dfab34e1464" src="https://github.com/user-attachments/assets/a6719fca-288d-4ebd-bda7-f638f32be7eb" />
 
 </div>
 
@@ -1000,6 +1025,8 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <div align="center">
 
 <img src="https://github.com/user-attachments/assets/fc7744df-963c-4e5a-ad79-63fac5df47db" width="540">
+<img width="20" height="20" alt="77ad7bfea094e03c95bd60aed49e616e" src="https://github.com/user-attachments/assets/cfb00ae7-60bc-4c85-b3e5-808c832ab94c" />
+<img width="20" height="20" alt="77ad7bfea094e03c95bd60aed49e616e" src="https://github.com/user-attachments/assets/4b529ede-4b95-439a-9954-957f876e24c6" />
 
 </div>
 
