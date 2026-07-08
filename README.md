@@ -557,7 +557,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <!-- Your Favicons Here -->
 
 </div>
-
+<img width="32" height="32" alt="46faef04405486f5907a2917435f641d" src="https://github.com/user-attachments/assets/14eddc3a-3af3-41c0-af17-fa94e16d0e7e" />
 <img width="36" height="33" alt="4849f35a2b74c5b1ab5342293d667d9a" src="https://github.com/user-attachments/assets/adbbb5b0-dc80-451b-be5d-f7b39b1a2b91" />
 <img width="35" height="35" alt="37e817e9b11c8fa31ad9967b2e2b81e1" src="https://github.com/user-attachments/assets/dea8789b-19a9-400b-a94f-f408fe12ee47" />
 <img width="30" height="30" alt="tumblr_50b1b51122fbf07b01995bc72078db2f_71322127_75" src="https://github.com/user-attachments/assets/86da0514-6601-4241-aebc-4bf70a681802" />
@@ -566,6 +566,11 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="32" height="30" alt="d29194c1afd86cc833e9d014ff83e5d7" src="https://github.com/user-attachments/assets/91150c94-04dc-46d7-a24b-3160cce99542" />
 
 <br>
+<img width="20" height="20" alt="51d72386d3d763faf275bcc6a19ceb7d" src="https://github.com/user-attachments/assets/88edd754-f0df-4951-83f9-fd91916884a6" />
+<img width="20" height="20" alt="8e1398f832558750989d98d61e419b42" src="https://github.com/user-attachments/assets/12600d6e-9f22-4d00-906e-7481d519c2bb" />
+<img width="20" height="20" alt="0161c3a84c3669abe4dd858e538f9230" src="https://github.com/user-attachments/assets/e9c45394-4a90-4eb7-879e-aac6e2af0457" />
+<img width="15" height="15" alt="66ea42cfea20bf6bf8d6d491cfedb8e0" src="https://github.com/user-attachments/assets/661d4897-8959-4c70-9b6f-de72b16a9653" />
+<img width="20" height="20" alt="8cc1674964f63c5607f39a6577a2c319" src="https://github.com/user-attachments/assets/99334800-e669-40e5-af13-07dfe0a49a80" />
 
 <img width="20" height="20" alt="bunny47" src="https://github.com/user-attachments/assets/a2bdd9d0-669e-4499-85a6-c7356271ed1a" /> 
 <img width="20" height="20" alt="plant5" src="https://github.com/user-attachments/assets/b30e51b0-4dd4-481a-ac13-c30d046cfd9f" /> 
@@ -1060,6 +1065,14 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="55" height="50" alt="f3347d64ef92bc2c1c27b2b4395263cd" src="https://github.com/user-attachments/assets/7cae15ec-7fd0-4171-b62c-6286125450bc" />
 <img width="52" height="41" alt="3e0d8e920df80534b1c0c21dd75d99e3" src="https://github.com/user-attachments/assets/c5e51c2e-8b02-4b0d-a196-f0cdd21144d4" />
 <img width="52" height="62" alt="eb66b1ea9b43cb5d975d56c87e128f84" src="https://github.com/user-attachments/assets/83a372ef-3dbb-4ce3-a34d-acb88aa9a52e" />
+<img width="29" height="57" alt="3b47d3dc0c7acdea9e61d98d01a329e3" src="https://github.com/user-attachments/assets/62e3a849-298f-46df-ba86-72692423c350" />
+<img width="44" height="50" alt="6e14700f48830103423ad2283e290dd0" src="https://github.com/user-attachments/assets/4618e244-60e9-447b-98bf-881531d6aa81" />
+<img width="44" height="60" alt="4df7f23dab2832f5a54b0b0989260f76" src="https://github.com/user-attachments/assets/4742a424-6c76-4d28-b7c4-0deec9500608" />
+<img width="50" height="50" alt="1e772144d8061216d3a700e775ba1dee" src="https://github.com/user-attachments/assets/74f56e50-9ab5-4651-9a53-a857ae0e813e" />
+<img width="73" height="67" alt="3dd730c4e6b2b6b9126045acfbdaeb6a" src="https://github.com/user-attachments/assets/566dbd7b-3357-40be-8a90-e77f6660e2c8" />
+<img width="50" height="51" alt="7741cbb54b7a49e013bd0d1acefe622c" src="https://github.com/user-attachments/assets/fc7c4c7a-61ef-4f2e-8df0-e3146f9a64af" />
+<img width="51" height="51" alt="5d3034006fba9729e8c705e0bdfb6e84" src="https://github.com/user-attachments/assets/66e1404a-f58c-4160-9cc5-e7a41e252e3f" />
+<img width="58" height="74" alt="04e72162d281d5a560b49398922ae416" src="https://github.com/user-attachments/assets/f5831de8-b2b4-4d70-ae94-7ea95b629b56" />
 
 
 <br>
