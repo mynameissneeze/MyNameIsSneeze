@@ -614,6 +614,7 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <div align="center">
 
 <!-- Normal sized -->
+<img width="300" height="100" alt="100" src="https://github.com/user-attachments/assets/a44bd95f-3510-43d2-8ad8-4b0813978d52" />
 <img width="150" height="20" alt="tumblr_6c8ab0416b75c229ea4538153b37eac1_7728c20b_250" src="https://github.com/user-attachments/assets/ec72358b-9ffe-4d8f-986f-037104e2517a" />
 <img width="150" height="20" alt="tumblr_bea0e56ed9106f458edd01fdc2d0a6e0_a758b812_250" src="https://github.com/user-attachments/assets/9bfa302d-3e13-47d8-a391-aa8d416c7f12" />
 <img width="150" height="20" alt="tumblr_0157a383e6be45746ece88868e594a16_505acd21_250" src="https://github.com/user-attachments/assets/d9a5d439-bcf9-4caf-95fc-cc265d04bf06" />
@@ -871,6 +872,13 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <br>
 <img width="450" height="450" alt="tumblr_3b938339e34e5c6d2b70a707b178713b_26d49430_500" src="https://github.com/user-attachments/assets/59ea8aa3-1e07-4168-87d0-fba1a48a8a89" />
 
+<br>
+<img width="310" height="310" alt="giphy" src="https://github.com/user-attachments/assets/9e4006d6-26be-46e1-b680-cb3c7e429d40" />
+<br>
+<img width="480" height="480" alt="giphy" src="https://github.com/user-attachments/assets/5e19656a-0047-45ab-85cf-ba31e92b05e5" />
+<br>
+<img width="200" height="240" alt="200w" src="https://github.com/user-attachments/assets/19cec835-405a-43d2-a58f-1c77c1cf7d1b" />
+
 </div>
 
 </details>
@@ -944,6 +952,18 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <br>
 
+<img width="234" height="200" alt="200" src="https://github.com/user-attachments/assets/fd9dbb70-0f1c-4978-a0e8-694e7b92c597" />
+
+<br>
+<img width="480" height="480" alt="giphy" src="https://github.com/user-attachments/assets/65880ba6-0765-410d-9c60-5c63701b8854" />
+
+<br>
+
+<img width="200" height="200" alt="200w" src="https://github.com/user-attachments/assets/150ab2bf-61db-4059-acb7-9aeb85814ba6" />
+
+<br>
+
+<img width="480" height="480" alt="giphy" src="https://github.com/user-attachments/assets/a495e74b-c348-4b94-bc9a-5a1df9592c79" />
 
 </details>
 
