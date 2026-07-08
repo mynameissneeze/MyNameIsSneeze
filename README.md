@@ -716,6 +716,7 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 <br>
 <!-- Teeth/Cig layer -->
 <img width="300" height="100" alt="100" src="https://github.com/user-attachments/assets/a44bd95f-3510-43d2-8ad8-4b0813978d52" />
+<br>
 <img width="400" height="40" alt="tumblr_2928c37fe192b268f5021b16d6b642ee_3a87651e_400" src="https://github.com/user-attachments/assets/2ab538bf-f661-49b5-ab87-bce7e1b4fdd0" />
 <br>
 <!-- problem intrest layer -->
@@ -934,9 +935,7 @@ Minecraft • Pony Town • Cookie Run: Kingdom • Cult of the Lamb • Dead by
 
 <br><br>
 
-<img src="https://github.com/user-attachments/<img width="99" height="99" alt="82271e0099153287f873498e08811a0b" src="https://github.com/user-attachments/assets/4982ca5b-6657-4106-b5be-1b7dd10fdc33" />
-<img width="100" height="100" alt="ef606963ac8b9dc7a26170f99a6eb27e" src="https://github.com/user-attachments/assets/a11f14cd-c223-44c9-9789-581fb510db0f" />
-assets/920ebf57-e2d6-4f22-8d91-89a70daf3c60" width="220">
+
 
 <img src="https://github.com/user-attachments/assets/7584e827-f58e-4082-96f0-2155ec3f106c" width="220">
 
@@ -1013,8 +1012,8 @@ assets/920ebf57-e2d6-4f22-8d91-89a70daf3c60" width="220">
   >
 </a>
 <img width="100" height="100" alt="tumblr_pyns0qkDNw1xmlb72o1_100" src="https://github.com/user-attachments/assets/27c3446d-e57d-4dcc-b364-49985ac79264" />
-<img width="99" height="99" alt="82271e0099153287f873498e08811a0b" src="https://github.com/user-attachments/assets/42ed22cc-98c3-480e-be82-ba75a1c7b101" />
-<img width="100" height="100" alt="842c89ecdd073daf4d996dfab34e1464" src="https://github.com/user-attachments/assets/a6719fca-288d-4ebd-bda7-f638f32be7eb" />
+
+<img width="100" height="100" alt="tumblr_3a1010da86c68c3d4c4b727cdaf90103_0d4ad389_75" src="https://github.com/user-attachments/assets/e785fc10-f9e8-4a92-a6fc-20ca4396cb39" />
 
 </div>
 
@@ -1025,8 +1024,6 @@ assets/920ebf57-e2d6-4f22-8d91-89a70daf3c60" width="220">
 <div align="center">
 
 <img src="https://github.com/user-attachments/assets/fc7744df-963c-4e5a-ad79-63fac5df47db" width="540">
-<img width="20" height="20" alt="77ad7bfea094e03c95bd60aed49e616e" src="https://github.com/user-attachments/assets/cfb00ae7-60bc-4c85-b3e5-808c832ab94c" />
-<img width="20" height="20" alt="77ad7bfea094e03c95bd60aed49e616e" src="https://github.com/user-attachments/assets/4b529ede-4b95-439a-9954-957f876e24c6" />
 
 </div>
 
