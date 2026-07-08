@@ -14,6 +14,21 @@
 ✦ ˢᵒᵐᵉ ᵖⁱᶜᵗᵘʳᵉˢ ᵃⁿᵈ ˡⁱⁿᵏˢ ᵃʳᵉ ⁱⁿᵗᵉʳᵃᶜᵗⁱᵛᵉ ;)
 <br>
 
+<a href="https://ko-fi.com/mynameissneeze" target="_blank">
+  <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHJ3MG5rcTFrODhzdDBhNXEybDNqY2s3cmxwOTY0NXlpbHIyOXVtdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/9mNKXFygkCeOWekWew/giphy.gif" width="120" alt="Support me on Ko-fi">
+</a>
+
+<br>
+
+<a href="https://mynameissneeze.straw.page">
+  <img
+    src="https://github.com/user-attachments/assets/6630cde2-a56e-4c48-b0c5-b787e1e3f230"
+    width="150"
+    alt="Visit my Strawpage"
+  >
+</a>
+
+<br>
 ╭──────────────────────୨ৎ──────────────────────╮
 
 ### ✦ Scroll down to explore my GIF & Blinkie Collection! ✦
@@ -48,13 +63,7 @@ https://artfight.net/~MyNameIsSneeze
 
 <img src="https://github.com/user-attachments/assets/e1171ea3-ee29-4cc8-9a8d-4c3688b7d51e" width="150">
 <img src="https://github.com/user-attachments/assets/fe562e8c-776a-4bed-94ab-ac36bcc3c4d6" width="150">
-<a href="https://mynameissneeze.straw.page">
-  <img
-    src="https://github.com/user-attachments/assets/6630cde2-a56e-4c48-b0c5-b787e1e3f230"
-    width="150"
-    alt="Visit my Strawpage"
-  >
-</a>
+
 <img src="https://github.com/user-attachments/assets/1d8af808-d7d3-46f9-9025-589b89d28dec" width="150">
 
 <br><br>
@@ -1232,6 +1241,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="100" height="100" alt="90e271e595cf8693f6dbdb8602257599" src="https://github.com/user-attachments/assets/68cc65fd-c627-4d86-ad8a-024f788e6b76" />
 <img width="100" height="100" alt="d52cb4ef429c4e5da2e334aa809c6c9f" src="https://github.com/user-attachments/assets/b91919a1-21d0-4d88-a35b-65b18eeb4501" />
 <div align="center"><img width="100" height="100" alt="aa092080de278dca97f2664e20aa8aa7" src="https://github.com/user-attachments/assets/aaafd3b8-c39e-47d6-93df-4ebc81837020" />
+<img width="100" height="100" alt="01455a4d33d6797cb4759aaba4abea15" src="https://github.com/user-attachments/assets/39df20bd-1b13-4afa-a237-3f0dc970a92a" />
 
 </td>
 
