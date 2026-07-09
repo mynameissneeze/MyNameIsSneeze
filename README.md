@@ -516,7 +516,7 @@ PonyTown • Art Fight • Twitter/X • GitHub • Spotify • Pinterest
 ##  <img width="20" height="20" alt="7c4561648bcd6b96259a1f70a5c1c257" src="https://github.com/user-attachments/assets/7d0be0aa-e534-4145-855e-298a8d16404f" /> Favorite Weather & Seasons <img width="20" height="20" alt="3cf59f4283a82799611f30b2e42e56c3" src="https://github.com/user-attachments/assets/f678771a-ab03-4352-bbae-90525ca74e2f" />
 
 
-🌧️ Weather: Rain • Fog • Thunderstorms • Overcast Skies • Snowy Nights
+🌧️ Weather: Rain • Fog • Overcast Skies • Snowy Nights
 
 <img width="23" height="23" alt="tumblr_b2dff9a9cea293aacc112679750756a4_03c503b7_75" src="https://github.com/user-attachments/assets/4ecd218f-31d1-4b97-bf18-1d7b81375618" /> Seasons: Autumn • Spring
 
