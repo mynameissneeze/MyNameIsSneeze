@@ -2,6 +2,10 @@
   
 <br>
 
+<img width="88" height="31" alt="bestdesktop" src="https://github.com/user-attachments/assets/f48718be-77fc-43ac-9668-bbf43a6591a6" />
+
+<br>
+
 <img width="235" height="42" alt="tumblr_inline_p9xjq0G61P1qid2nw_250" src="https://github.com/user-attachments/assets/c220efbc-9680-4992-b55b-1a42d1854f70" />
 
 
@@ -16,6 +20,8 @@
 <br><br>
 ✦ ˢᵒᵐᵉ ᵖⁱᶜᵗᵘʳᵉˢ ᵃⁿᵈ ˡⁱⁿᵏˢ ᵃʳᵉ ⁱⁿᵗᵉʳᵃᶜᵗⁱᵛᵉ ;)
 <br>
+
+
 
 <a href="https://ko-fi.com/mynameissneeze" target="_blank">
   <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHJ3MG5rcTFrODhzdDBhNXEybDNqY2s3cmxwOTY0NXlpbHIyOXVtdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/9mNKXFygkCeOWekWew/giphy.gif" width="120" alt="Support me on Ko-fi">
@@ -583,6 +589,8 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="19" height="32" alt="tumblr_d59fd199e2a816f9f583e448af1e1b86_9a2674ad_75" src="https://github.com/user-attachments/assets/12dae9ed-a354-4f0b-8fdb-f946bdc5c908" />
 
 <br>
+<img width="20" height="20" alt="tumblr_8e1608057d49c9713e205028d8c47201_fd07e97d_75" src="https://github.com/user-attachments/assets/058af6f7-de29-4616-b123-3ca43e933e8f" />
+
 <img width="20" height="20" alt="tumblr_90c5828f00e09c0772e024af37c25057_44218838_75" src="https://github.com/user-attachments/assets/f14463f0-4b31-428d-9935-37dc935868ae" />
 <img width="20" height="20" alt="51d72386d3d763faf275bcc6a19ceb7d" src="https://github.com/user-attachments/assets/88edd754-f0df-4951-83f9-fd91916884a6" />
 <img width="20" height="20" alt="8e1398f832558750989d98d61e419b42" src="https://github.com/user-attachments/assets/12600d6e-9f22-4d00-906e-7481d519c2bb" />
@@ -736,6 +744,38 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="88" height="31" alt="9b0bf823c4afc936c2c27999e9837e2e" src="https://github.com/user-attachments/assets/6fbb3a1e-cf3e-46d3-be65-5a4d74bd8787" />
 <img width="88" height="31" alt="db23a49fd9d77616863510128bd4b9dc" src="https://github.com/user-attachments/assets/c024b20d-a39c-4c5b-9383-ed79d1baacb8" />
 <img width="88" height="31" alt="a565c50ac8eb6910f2501e06f0577393" src="https://github.com/user-attachments/assets/270cf6d2-9738-429b-a2ba-359a7334dd80" />
+
+<br>
+<img width="88" height="31" alt="fic009" src="https://github.com/user-attachments/assets/918885a2-e079-4e0a-9cb3-acc0fac41d74" />
+<img width="88" height="31" alt="blink-0" src="https://github.com/user-attachments/assets/f0e2c823-7b05-4bde-b6d0-2f47d8796a5e" />
+<img width="88" height="31" alt="bluepantsu" src="https://github.com/user-attachments/assets/d268547c-e9d5-4503-9217-10fdbb326db0" />
+<img width="88" height="31" alt="btn6" src="https://github.com/user-attachments/assets/d659afeb-e6db-499f-9fb8-4f9c5bc7f326" />
+<img width="88" height="31" alt="anibanner" src="https://github.com/user-attachments/assets/5153c9b3-4a9b-4163-969e-39578e10df16" />
+<img width="88" height="31" alt="animegay" src="https://github.com/user-attachments/assets/1e436252-46af-442a-95f0-90306c43922b" />
+<img width="88" height="31" alt="Sega-Elite" src="https://github.com/user-attachments/assets/be847f13-d167-4453-83eb-bac336afbf87" />
+<img width="88" height="31" alt="brolove" src="https://github.com/user-attachments/assets/4e2e1710-4f49-4488-8027-9087acec7368" />
+<img width="88" height="31" alt="bobbutton" src="https://github.com/user-attachments/assets/61c72240-cc59-43c8-98ed-f76a7f24ad39" />
+<img width="88" height="31" alt="banner2" src="https://github.com/user-attachments/assets/8b2ec398-69d4-4285-b31e-472a615de010" />
+<img width="88" height="31" alt="besteyes3" src="https://github.com/user-attachments/assets/456adaf8-ed5f-432e-a9a9-4373700d4df3" />
+<img width="88" height="31" alt="fic005" src="https://github.com/user-attachments/assets/09417143-6a07-4572-8d82-2eba2c6e4bf9" />
+<img width="88" height="31" alt="folder2" src="https://github.com/user-attachments/assets/d94dfa03-102a-415d-a61e-548a381925e3" />
+<img width="88" height="31" alt="crazbutton" src="https://github.com/user-attachments/assets/8e651ebe-bb92-4cba-9f8d-eabd6a31cafc" />
+<img width="88" height="31" alt="corp" src="https://github.com/user-attachments/assets/dd003bae-71a8-4964-9bbe-c72ae39d4121" />
+<img width="88" height="31" alt="corruptedunicorn" src="https://github.com/user-attachments/assets/89ce2304-db44-4644-81ec-eccd854319af" />
+<img width="88" height="31" alt="cogs" src="https://github.com/user-attachments/assets/df04ba51-6bc9-4578-bada-a444ca483f36" />
+<img width="88" height="31" alt="buttonaban" src="https://github.com/user-attachments/assets/e7056faf-f628-48d1-8c3d-61521cd54dc7" />
+<img width="88" height="31" alt="chameleonbutton" src="https://github.com/user-attachments/assets/a282b55f-a3f9-483c-b2f1-602c874d0ad0" />
+<img width="88" height="31" alt="fic002" src="https://github.com/user-attachments/assets/82bf0523-92ef-4cb6-b4e9-11664a9231cd" />
+<img width="88" height="31" alt="konata" src="https://github.com/user-attachments/assets/4cc5c95e-a547-4a68-83eb-62150a3a6668" />
+<img width="88" height="31" alt="iriba" src="https://github.com/user-attachments/assets/91c11b64-94e6-41b7-bc0f-1c141afd119e" />
+<img width="88" height="31" alt="juas_bu1" src="https://github.com/user-attachments/assets/2aad7d51-431a-45c4-9262-27aa85bfcb6e" />
+<img width="88" height="31" alt="ilovehorror" src="https://github.com/user-attachments/assets/994d340c-209e-4356-933f-f52f9916f775" />
+<img width="88" height="31" alt="imhigh" src="https://github.com/user-attachments/assets/029a877f-9167-427b-9ccf-c23076430476" />
+<img width="88" height="31" alt="github" src="https://github.com/user-attachments/assets/2c7d5758-9ee0-40ca-96ff-922f0a1b4f1a" />
+<img width="88" height="31" alt="fursona" src="https://github.com/user-attachments/assets/20bbf4b3-c17c-49ca-a0d6-2c4c21d8a86b" />
+<img width="88" height="31" alt="froggygif" src="https://github.com/user-attachments/assets/d77c9374-83c5-4113-a7c9-9d24b6a8c3c1" />
+<img width="88" height="31" alt="free-sex" src="https://github.com/user-attachments/assets/fc70c64e-3684-49cc-9fa5-12794859201a" />
+
 
 <br>
 
