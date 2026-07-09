@@ -202,6 +202,30 @@ https://artfight.net/~MyNameIsSneeze
 
 <br><br>
 
+╭────────────────────୨ৎ────────────────────╮
+
+# 💌 Besties!
+
+<p align="center">
+
+<a href="https://bsky.app/profile/sunnyduckling.bsky.social" target="_blank">
+  <img src="https://github.com/user-attachments/assets/435ae51e-2832-4b18-9b9d-b4d9deb7fa4e" width="120" alt="Sunny Duckling">
+</a>
+
+<a href="FRIEND_2_LINK" target="_blank">
+  <img src="https://github.com/user-attachments/assets/fb462c08-ee24-4259-b2f5-f2a8a4ea2ca5" width="120" alt="Friend 2">
+</a>
+
+<a href="FRIEND_3_LINK" target="_blank">
+  <img src="https://github.com/user-attachments/assets/deace759-7745-498d-b383-0d73b8d37a85" width="120" alt="Friend 3">
+</a>
+
+</p>
+
+╰────────────────────୨ৎ────────────────────╯
+
+<br>
+
 ╭───────────────୨ৎ───────────────╮
 
 ### ✦ A little about me ✦
@@ -249,14 +273,6 @@ https://artfight.net/~MyNameIsSneeze
 <div align="center">
 
 ✩₊˚.⋆☾⋆⁺₊✧ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆ ✧₊⁺⋆☾⋆.˚₊✩
-
-╭────────────────────୨ৎ────────────────────╮
-
-# 💌 Besties!
-
-
-
-╰────────────────────୨ৎ────────────────────╯
 
 
 <br><br>
