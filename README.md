@@ -275,6 +275,9 @@ https://artfight.net/~MyNameIsSneeze
 
 # 🎧 𝓝𝓸𝔀 𝓟𝓵𝓪𝔂𝓲𝓷𝓰 🎧
 
+<img src="https://github.com/user-attachments/assets/aa39d101-afd5-4c0a-a185-2974237fc8fb" width="180">
+<br>
+
 ### <img width="20" height="20" alt="tumblr_2b16be31d23217d73a1b4e3d797c020c_ad302865_75" src="https://github.com/user-attachments/assets/bac2ba31-06ac-4de1-8cce-d5511ed54479" />  Currently Listening To <img width="20" height="20" alt="tumblr_2b16be31d23217d73a1b4e3d797c020c_ad302865_75" src="https://github.com/user-attachments/assets/bac2ba31-06ac-4de1-8cce-d5511ed54479" />
 
 
@@ -673,6 +676,12 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="20" height="20" alt="tumblr_de2f524a6b09631265b107f8c4f9f181_4a2694d3_75" src="https://github.com/user-attachments/assets/174423d0-eff4-467e-81d3-89b6a4c527cc" />
 <img width="20" height="20" alt="tumblr_99f2a268436d050d6b37ae084801b65a_0d5d11e6_75" src="https://github.com/user-attachments/assets/2e5b04ef-dd6d-4f49-9a22-717633a96456" />
 <img width="21" height="30" alt="tumblr_a8249a36d75551d4c842aafc5a830882_aaccb03a_75" src="https://github.com/user-attachments/assets/142374cd-a691-475e-b8a7-faaed4f02433" />
+<img width="20" height="20" alt="tumblr_2f3e4237a82fa83c9d5fc79c85f4e99e_3d9d1db4_75" src="https://github.com/user-attachments/assets/ef1d1231-e47a-4785-bb00-464713adffa2" />
+<img width="20" height="20" alt="tumblr_a531e0de1386e4b447fd4aecd1d54247_c81c0567_75" src="https://github.com/user-attachments/assets/587c37d9-c9f5-4c80-b102-b21591fd9a66" />
+<img width="20" height="20" alt="tumblr_bf6eaac014b1fa54e05b6df316bb29e3_6f7849db_75" src="https://github.com/user-attachments/assets/5e562932-dc8d-4970-8fdc-36749bb7e96f" />
+<img width="20" height="20" alt="tumblr_10ad9eaccb15b47d8ab0899fa7417a2c_a158feb6_75" src="https://github.com/user-attachments/assets/877be3ed-9346-41e7-a9ae-793aae5434d8" />
+<img width="20" height="20" alt="tumblr_a1aa83fffd4a0da76288fabf5fda6b56_c6e90548_75" src="https://github.com/user-attachments/assets/22eff817-7586-4967-8b2f-c5a8fc770429" />
+<img width="20" height="20" alt="tumblr_a549e760db0bc6a49115719448911308_a3cdb137_75" src="https://github.com/user-attachments/assets/f46fc8f3-2dac-41a2-853e-71e630c97936" />
 
 </details>
 
