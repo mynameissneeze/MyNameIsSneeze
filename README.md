@@ -275,7 +275,7 @@ https://artfight.net/~MyNameIsSneeze
 
 ╭────────────────────୨ৎ────────────────────╮
 
-# 💌 𝓛𝓮𝓽'𝓼 𝓑𝓮 𝓕𝓻𝓲𝓮𝓷𝓭𝓼!
+# <img width="20" height="20" alt="KuazRCf" src="https://github.com/user-attachments/assets/2916b535-925c-486d-a03d-b7b5e78d8c30" /> 𝓛𝓮𝓽'𝓼 𝓑𝓮 𝓕𝓻𝓲𝓮𝓷𝓭𝓼! <img width="20" height="20" alt="KuazRCf" src="https://github.com/user-attachments/assets/2916b535-925c-486d-a03d-b7b5e78d8c30" />
 
 ╰────────────────────୨ৎ────────────────────╯
 
@@ -315,7 +315,7 @@ https://artfight.net/~MyNameIsSneeze
 <img width="20" height="20" alt="WCuhWkS" src="https://github.com/user-attachments/assets/e1b06075-4d11-48b4-9ec3-a435543f972a" /> Animation • <img width="20" height="20" alt="hRH1OSt" src="https://github.com/user-attachments/assets/64e43c90-4484-4a34-b185-be167aea88b8" />
  Anime • <img width="20" height="20" alt="WmlyhMS" src="https://github.com/user-attachments/assets/666f49ad-2d60-4835-b342-befbdf6d35a5" /> Horror
 
-🖌️ Character Design • 🎮 Indie Games
+<img width="20" height="20" alt="xB6qxcI" src="https://github.com/user-attachments/assets/69774408-bfdd-4e10-9f39-3b0bc411e2de" /> Character Design •  Indie Games
 
 <img width="20" height="20" alt="zpPxGBJ" src="https://github.com/user-attachments/assets/d59587e2-6a22-41f6-a833-5182099a2ba2" /> Cartoons • 🍄 Cute & Weird Aesthetics
 
@@ -386,7 +386,7 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 ╭──────────────────୨ৎ──────────────────╮
 
-# ⭐ 𝓐𝓵𝓵 𝓐𝓫𝓸𝓾𝓽 𝓜𝓮 ⭐
+# <img width="20" height="20" alt="OOt8AxD" src="https://github.com/user-attachments/assets/f04d6912-cc59-434c-8553-c2442dfcf526" /> 𝓐𝓵𝓵 𝓐𝓫𝓸𝓾𝓽 𝓜𝓮 <img width="20" height="20" alt="OOt8AxD" src="https://github.com/user-attachments/assets/f04d6912-cc59-434c-8553-c2442dfcf526" />
 
 ### ( ⸝⸝´꒳`⸝⸝)
 
@@ -403,7 +403,8 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 </div>
 
-# 🌟✨ ALL ABOUT ME ✨🌟
+# <img width="20" height="20" alt="gxooN7b" src="https://github.com/user-attachments/assets/68b04731-a577-48de-92e0-1e1cf2f2a27a" /> ALL ABOUT ME <img width="20" height="20" alt="gxooN7b" src="https://github.com/user-attachments/assets/68b04731-a577-48de-92e0-1e1cf2f2a27a" />
+
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
@@ -501,32 +502,34 @@ Life Is Strange • Scott Pilgrim
 
 ## 🎮✨ Favorite Roblox Creators ✨🎮
 
-🎮 Starbby • Luminfur
+ Starbby • Luminfur
 
 ---
 
-## 🌐 Favorite Websites 🌐
+## <img width="20" height="20" alt="KwX2CTv" src="https://github.com/user-attachments/assets/e94e4196-0bea-4e0a-8362-faf8f98601b7" /> Favorite Websites <img width="20" height="20" alt="KwX2CTv" src="https://github.com/user-attachments/assets/e94e4196-0bea-4e0a-8362-faf8f98601b7" />
+
 
 PonyTown • Art Fight • Twitter/X • GitHub • Spotify • Pinterest
 
 ---
 
-## 🎨🌈 Favorite Aesthetics 🌈🎨
+## <img width="20" height="20" alt="5oBV0ok" src="https://github.com/user-attachments/assets/4813455c-38be-43f7-8a0a-7ad24ff27f3d" /> Favorite Aesthetics <img width="20" height="20" alt="1p7QTmr" src="https://github.com/user-attachments/assets/031373e4-2cf6-43c0-987d-362de158bafa" />
 
-🌈 Harajuku • Frutiger Aero • Dreamcore • Webcore • Weirdcore • Kidcore • Pastelcore
+
+ Harajuku • Frutiger Aero • Dreamcore • Webcore • Weirdcore • Kidcore • Pastelcore
 
 ---
 
-## 🎨 Favorite Colors 🎨
+## <img width="20" height="20" alt="nOG2m2x" src="https://github.com/user-attachments/assets/3c91603e-59ad-4009-8938-b9b57a81ff7b" /> Favorite Colors <img width="20" height="20" alt="nOG2m2x" src="https://github.com/user-attachments/assets/3c91603e-59ad-4009-8938-b9b57a81ff7b" />
 
-💜 Sage Green • Moss Green • Forest Green • Cream • Brown • Dusty Pink • Lavender • Electric Purple • Electric Blue • Pink • Burgundy • Mustard Yellow • Midnight Blue
+ Sage Green • Moss Green • Forest Green • Cream • Brown • Dusty Pink • Lavender • Electric Purple • Electric Blue • Pink • Burgundy • Mustard Yellow • Midnight Blue
 
 ---
 
 ## <img width="20" height="20" alt="S89ceBR" src="https://github.com/user-attachments/assets/c2118473-3784-485f-9c68-063e7d0e1ebe" /> Phobias <img width="20" height="20" alt="S89ceBR" src="https://github.com/user-attachments/assets/826a0c8d-bd1c-41b3-a272-b5e1285f5c0e" />
 
 
-😰 Thalassophobia • Trypophobia • Acrophobia • Scopophobia • Megalophobia • astraphobia
+ Thalassophobia • Trypophobia • Acrophobia • Scopophobia • Megalophobia • astraphobia
 
 ---
 
@@ -539,19 +542,20 @@ PonyTown • Art Fight • Twitter/X • GitHub • Spotify • Pinterest
 
 ---
 
-## 🎃 Favorite Holidays 🎃
+## <img width="20" height="20" alt="3GMCYqS" src="https://github.com/user-attachments/assets/aa9abf99-dc31-4f22-b00d-131ef85936f4" /> Favorite Holidays <img width="20" height="20" alt="QcADzr3" src="https://github.com/user-attachments/assets/cbb63a33-21d9-431d-abbe-4e2e1dce1eee" />
+
 
 Halloween • Christmas • Valentine's Day • April Fool's Day
 
 ---
 
-## 📺 Favorite YouTubers 📺
+## <img width="20" height="20" alt="D0YJB9M" src="https://github.com/user-attachments/assets/0d31c5a4-97b7-4b80-9132-0cfb07388ab2" /> Favorite YouTubers <img width="20" height="20" alt="D0YJB9M" src="https://github.com/user-attachments/assets/0d31c5a4-97b7-4b80-9132-0cfb07388ab2" /> 
 
 Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh • penguinz0 • antimattermorty
 
 ---
 
-## 🐦 Favorite Animal Crossing Villager 🐦
+## <img width="20" height="20" alt="mPhaeJl" src="https://github.com/user-attachments/assets/1a3e0970-3149-4837-945b-bb7084ccdd8e" /> Favorite Animal Crossing Villager <img width="20" height="20" alt="mPhaeJl" src="https://github.com/user-attachments/assets/1a3e0970-3149-4837-945b-bb7084ccdd8e" /> 
 
  Pierce
 
@@ -570,7 +574,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 ---
 
-## 🧷 Fun Facts 🧷
+## <img width="20" height="20" alt="goiBexo" src="https://github.com/user-attachments/assets/72998456-3a39-402b-afb6-77de1dbc6610" /> Fun Facts <img width="20" height="20" alt="goiBexo" src="https://github.com/user-attachments/assets/72998456-3a39-402b-afb6-77de1dbc6610" />
 
 - I draw almost exclusively with my finger.
 - I'm completely self-taught.
@@ -638,6 +642,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="19" height="32" alt="tumblr_d59fd199e2a816f9f583e448af1e1b86_9a2674ad_75" src="https://github.com/user-attachments/assets/12dae9ed-a354-4f0b-8fdb-f946bdc5c908" />
 
 <br>
+<img width="20" height="20" alt="zK6rpzW" src="https://github.com/user-attachments/assets/9982a60b-33b6-46d6-a6f7-579fc14b6be1" />
 <img width="20" height="20" alt="ObK2PDk" src="https://github.com/user-attachments/assets/cf73b722-5850-47bc-a841-c269eeaccb1d" />
 <img width="20" height="20" alt="nDlYTNQ" src="https://github.com/user-attachments/assets/aef8e793-85fe-4064-8be5-8da74570c3ec" />
 <img width="20" height="20" alt="AedbD8l" src="https://github.com/user-attachments/assets/5ee29c20-9697-4f7d-8ddd-c697e37a72ff" />
