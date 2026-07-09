@@ -119,11 +119,11 @@ https://artfight.net/~MyNameIsSneeze
 ╭───────────────୨ৎ───────────────╮
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/8b9ec83e-ad7a-4e67-a328-5ccc5dabfeb6" width="70">
+<img src="https://github.com/user-attachments/assets/8b9ec83e-ad7a-4e67-a328-5ccc5dabfeb6" height="70">
 &nbsp;&nbsp;&nbsp;
-<b> 𝓜𝔂 𝓟𝓸𝓷𝔂𝓣𝓸𝔀𝓷 𝓢𝓴𝓲𝓷𝓼 </b>
+<b>🐴 𝓜𝔂 𝓟𝓸𝓷𝔂𝓣𝓸𝔀𝓷 𝓢𝓴𝓲𝓷𝓼 🐴</b>
 &nbsp;&nbsp;&nbsp;
-<img src="https://github.com/user-attachments/assets/d87f5733-738e-4d45-931e-22087e905e67" width="70">
+<img src="https://github.com/user-attachments/assets/d87f5733-738e-4d45-931e-22087e905e67" height="70">
 </p>
 
 <p align="center">
