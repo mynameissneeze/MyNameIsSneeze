@@ -11,7 +11,7 @@
 
 ## <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9"> Current Hyperfixations <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
 
-🍄 AHHH!! Real Monsters • 🦄 My Little Pony • watching animated shows/movies • 🎨 Drawing OCs • 🐴 PonyTown • 🎮 Roblox • ✨ Collecting GIFs, Blinkies & Stamps
+ AHHH!! Real Monsters • 🦄 My Little Pony • watching animated shows/movies • 🎨 Drawing OCs • 🐴 PonyTown • 🎮 Roblox • ✨ Collecting GIFs, Blinkies & Stamps
 
 <br>
 
@@ -216,7 +216,8 @@ https://artfight.net/~MyNameIsSneeze
 
 ╭────────────────────୨ৎ────────────────────╮
 
-# 💌 Besties!
+# <img width="20" height="20" alt="qLEXRs3" src="https://github.com/user-attachments/assets/37462ee6-9a09-483e-b1a2-49d61fbef091" /> Besties! <img width="20" height="20" alt="qLEXRs3" src="https://github.com/user-attachments/assets/32710793-bd00-4ea8-986d-54bfeb842ff7" />
+
 
 <p align="center">
 
@@ -240,11 +241,13 @@ https://artfight.net/~MyNameIsSneeze
 
 ╭───────────────୨ৎ───────────────╮
 
-### ✦ A little about me ✦
+### <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" /> A little about me <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" />
+
 
 ╰───────────────୨ৎ───────────────╯
 
-🖍️ **Digital Artist** • **Character Creator** • **Cartoon Lover** 📚
+<img width="20" height="20" alt="FTwwRc8" src="https://github.com/user-attachments/assets/f3b754f3-470d-4294-bd8b-46157a339d1e" /> **Digital Artist** • **Character Creator** • **Cartoon Lover** <img width="20" height="20" alt="FTwwRc8" src="https://github.com/user-attachments/assets/f3b754f3-470d-4294-bd8b-46157a339d1e" />
+
 
 <br>
 
@@ -550,7 +553,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 ## 🐦 Favorite Animal Crossing Villager 🐦
 
-🐦 Pierce
+ Pierce
 
 ---
 
@@ -635,6 +638,9 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="19" height="32" alt="tumblr_d59fd199e2a816f9f583e448af1e1b86_9a2674ad_75" src="https://github.com/user-attachments/assets/12dae9ed-a354-4f0b-8fdb-f946bdc5c908" />
 
 <br>
+<img width="20" height="20" alt="ObK2PDk" src="https://github.com/user-attachments/assets/cf73b722-5850-47bc-a841-c269eeaccb1d" />
+<img width="20" height="20" alt="nDlYTNQ" src="https://github.com/user-attachments/assets/aef8e793-85fe-4064-8be5-8da74570c3ec" />
+<img width="20" height="20" alt="AedbD8l" src="https://github.com/user-attachments/assets/5ee29c20-9697-4f7d-8ddd-c697e37a72ff" />
 <img width="20" height="20" alt="IzHzdVD" src="https://github.com/user-attachments/assets/e52edd25-2b71-48b8-b107-4896076a9001" />
 <img width="20" height="20" alt="EFXvBxB" src="https://github.com/user-attachments/assets/b244aef6-3d3f-4284-8bb9-50d27bbd703b" />
 <img width="20" height="20" alt="dkNzzBZ" src="https://github.com/user-attachments/assets/cc043ac7-c27e-4e15-b386-a4ca3fe110b5" />
@@ -746,7 +752,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="20" height="20" alt="tumblr_2f3e4237a82fa83c9d5fc79c85f4e99e_3d9d1db4_75" src="https://github.com/user-attachments/assets/ef1d1231-e47a-4785-bb00-464713adffa2" />
 <img width="20" height="20" alt="tumblr_a531e0de1386e4b447fd4aecd1d54247_c81c0567_75" src="https://github.com/user-attachments/assets/587c37d9-c9f5-4c80-b102-b21591fd9a66" />
 <img width="20" height="20" alt="tumblr_bf6eaac014b1fa54e05b6df316bb29e3_6f7849db_75" src="https://github.com/user-attachments/assets/5e562932-dc8d-4970-8fdc-36749bb7e96f" />
-<img width="20" height="20" alt="tumblr_10ad9eaccb15b47d8ab0899fa7417a2c_a158feb6_75" src="https://github.com/user-attachments/assets/877be3ed-9346-41e7-a9ae-793aae5434d8" />
 <img width="20" height="20" alt="tumblr_a1aa83fffd4a0da76288fabf5fda6b56_c6e90548_75" src="https://github.com/user-attachments/assets/22eff817-7586-4967-8b2f-c5a8fc770429" />
 <img width="20" height="20" alt="tumblr_a549e760db0bc6a49115719448911308_a3cdb137_75" src="https://github.com/user-attachments/assets/f46fc8f3-2dac-41a2-853e-71e630c97936" />
 <img width="20" height="20" alt="tumblr_26ca2e3be309f5f72351793bf4b65790_ec9f841e_75" src="https://github.com/user-attachments/assets/66d60a2c-8244-4f39-85c9-e2d27e0f1546" />
@@ -1020,7 +1025,8 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <details>
 <summary>
 
-## 🌸 STAMPS 🌸
+## <img width="20" height="20" alt="KbXT5Rp" src="https://github.com/user-attachments/assets/62a34a08-5bbd-45a3-a30a-8176fe48cd79" /> STAMPS <img width="20" height="20" alt="KbXT5Rp" src="https://github.com/user-attachments/assets/62a34a08-5bbd-45a3-a30a-8176fe48cd79" />
+
 
 </summary>
 
