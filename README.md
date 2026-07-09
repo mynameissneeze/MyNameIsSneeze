@@ -123,6 +123,8 @@ https://artfight.net/~MyNameIsSneeze
 
 ╰───────────────୨ৎ───────────────╯
 
+<br>
+
 <details>
 <summary>
 <img src="https://github.com/user-attachments/assets/fbcd104f-6615-4e80-81c0-10b0d088a830" width="20">
