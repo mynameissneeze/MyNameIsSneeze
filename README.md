@@ -120,8 +120,8 @@ https://artfight.net/~MyNameIsSneeze
 <p align="center">
 <img src="https://github.com/user-attachments/assets/8b9ec83e-ad7a-4e67-a328-5ccc5dabfeb6" height="70">
 &nbsp;&nbsp;&nbsp;
-<b> <img width="20" height="20" alt="UHSilpu" src="https://github.com/user-attachments/assets/2c497637-e6b9-4288-9327-4aa5b7b07951" /> 𝓜𝔂 𝓟𝓸𝓷𝔂𝓣𝓸𝔀𝓷 𝓢𝓴𝓲𝓷𝓼 <img width="20" height="20" alt="UHSilpu" src="https://github.com/user-attachments/assets/2c497637-e6b9-4288-9327-4aa5b7b07951" /> </b>
-&nbsp;&nbsp;&nbsp;
+<b> <img width="20" height="20" alt="ElcFroc" src="https://github.com/user-attachments/assets/6691277d-96ef-4c28-a831-b30051abe3af" /> 𝓜𝔂 𝓟𝓸𝓷𝔂𝓣𝓸𝔀𝓷 𝓢𝓴𝓲𝓷𝓼 <img width="20" height="20" alt="ElcFroc" src="https://github.com/user-attachments/assets/6691277d-96ef-4c28-a831-b30051abe3af" />
+
 <img src="https://github.com/user-attachments/assets/d87f5733-738e-4d45-931e-22087e905e67" height="70">
 </p>
 
@@ -520,7 +520,7 @@ PonyTown • Art Fight • Twitter/X • GitHub • Spotify • Pinterest
 
 ---
 
-## <img width="20" height="20" alt="3S3rWPS" src="https://github.com/user-attachments/assets/00f302db-2158-4043-b894-68020e252b3a" /> Phobias <img width="20" height="20" alt="3S3rWPS" src="https://github.com/user-attachments/assets/7435722a-08e5-4dcb-a5d1-36bec3d70b46" />
+## <img width="20" height="20" alt="S89ceBR" src="https://github.com/user-attachments/assets/c2118473-3784-485f-9c68-063e7d0e1ebe" /> Phobias <img width="20" height="20" alt="S89ceBR" src="https://github.com/user-attachments/assets/826a0c8d-bd1c-41b3-a272-b5e1285f5c0e" />
 
 
 😰 Thalassophobia • Trypophobia • Acrophobia • Scopophobia • Megalophobia • astraphobia
@@ -561,7 +561,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 - Four Pumps White Mocha
 - One Shot Espresso
 
-🍋 **Passion Iced Tea Lemonade**
+<img width="20" height="20" alt="phL5n3y" src="https://github.com/user-attachments/assets/708996c5-97a8-4176-b82e-0daee517906a" /> **Passion Iced Tea Lemonade**
 - No Ice
 - Extra Lemon
 
@@ -635,6 +635,10 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="19" height="32" alt="tumblr_d59fd199e2a816f9f583e448af1e1b86_9a2674ad_75" src="https://github.com/user-attachments/assets/12dae9ed-a354-4f0b-8fdb-f946bdc5c908" />
 
 <br>
+<img width="20" height="20" alt="IzHzdVD" src="https://github.com/user-attachments/assets/e52edd25-2b71-48b8-b107-4896076a9001" />
+<img width="20" height="20" alt="EFXvBxB" src="https://github.com/user-attachments/assets/b244aef6-3d3f-4284-8bb9-50d27bbd703b" />
+<img width="20" height="20" alt="dkNzzBZ" src="https://github.com/user-attachments/assets/cc043ac7-c27e-4e15-b386-a4ca3fe110b5" />
+<img width="20" height="20" alt="lKer1Nq" src="https://github.com/user-attachments/assets/60ee4ad9-e4b7-4694-9cdf-c6d65c904d71" />
 <img width="20" height="20" alt="xTG0g4A" src="https://github.com/user-attachments/assets/b9c8b6ba-d980-4cde-b4e3-f95da0b6dc8f" />
 <img width="20" height="20" alt="tumblr_8e1608057d49c9713e205028d8c47201_fd07e97d_75" src="https://github.com/user-attachments/assets/058af6f7-de29-4616-b123-3ca43e933e8f" />
 <img width="20" height="20" alt="5VAFdRK" src="https://github.com/user-attachments/assets/d13f1a45-1615-4ed1-a3b3-1ce397638094" />
@@ -793,6 +797,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <!-- Stardew layer -->
 
 </div>
+<img width="88" height="31" alt="miku1" src="https://github.com/user-attachments/assets/56512c61-9ce9-4d11-8499-91454adfa1c3" />
 <img width="88" height="31" alt="u239b4" src="https://github.com/user-attachments/assets/676a27f6-48b2-437e-9b7f-8d6d2f6289fe" /> 
 <img width="88" height="31" alt="strawberry" src="https://github.com/user-attachments/assets/152ba778-81bb-4426-acf7-13a633b7f7b1" /> 
 <img width="88" height="31" alt="reshirii" src="https://github.com/user-attachments/assets/6b9d1c37-412d-410b-874e-95821b0d3e99" /> 
@@ -862,6 +867,8 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <div align="center">
 
 <!-- Normal sized -->
+<img width="150" height="20" alt="dontrush" src="https://github.com/user-attachments/assets/64d862e3-bbe7-4ef9-8598-7dc779f1baaf" />
+<img width="150" height="20" alt="sparkleon" src="https://github.com/user-attachments/assets/2ef3dcf7-f930-4686-9ae8-caafae4f217d" />
 <img width="150" height="20" alt="cringeisded" src="https://github.com/user-attachments/assets/536c1c34-0ee0-4764-a70c-331a45a83638" />
 <img width="150" height="20" alt="danger-to-society" src="https://github.com/user-attachments/assets/0d2acb28-1f7e-4d00-a9be-c34939731484" />
 <img width="150" height="20" alt="birdapp" src="https://github.com/user-attachments/assets/8e3710e2-9e44-44d2-8890-53f21f28e80d" />
@@ -1026,6 +1033,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 </div>
 
 <img width="50" height="50" alt="miemiechan-unicorn" src="https://github.com/user-attachments/assets/0afc2111-0afb-4fb4-bc9d-24bcbdb875b5" />
+<img width="60" height="60" alt="kawaiiness_kawaii46060" src="https://github.com/user-attachments/assets/6e9e6d44-74e6-4a4e-970e-1e79130bd155" />
 
 <br>
 
@@ -1054,7 +1062,8 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="99" height="56" alt="7808c80a4a9ea63114f1374cf6c403af" src="https://github.com/user-attachments/assets/057f5348-7bd1-4384-95ef-b75eb7aa5110" />
 <img width="99" height="56" alt="858379dbba842e4780c7024100861e9e" src="https://github.com/user-attachments/assets/6fad06a7-a729-4730-a746-0a71f14a60fd" />
 <img width="94" height="55" alt="tumblr_4f84e59a458e83cc30c7cfd5f2d4648d_f41f5df5_100" src="https://github.com/user-attachments/assets/53c1a151-1d69-47fc-bb7d-5339dafebe81" />
-<img width="101" height="57" alt="tumblr_8a5062947adff28f8b7989b4abb20901_257beb1a_100" src="https://github.com/user-attachments/assets/275e0362-991c-477d-9e77-185ceb5b480a" /><img width="101" height="57" alt="tumblr_95fdc793c20abbae5876cb4f23b64e19_447fedf4_250" src="https://github.com/user-attachments/assets/16ef14fb-2f57-4875-9469-a120d0d4319a" />
+<img width="101" height="57" alt="tumblr_8a5062947adff28f8b7989b4abb20901_257beb1a_100" src="https://github.com/user-attachments/assets/275e0362-991c-477d-9e77-185ceb5b480a" />
+<img width="101" height="57" alt="tumblr_95fdc793c20abbae5876cb4f23b64e19_447fedf4_250" src="https://github.com/user-attachments/assets/16ef14fb-2f57-4875-9469-a120d0d4319a" />
 <img width="99" height="56" alt="dbs8ezg-17e37aee-ac3a-45d3-ac43-5e669acc7ad7" src="https://github.com/user-attachments/assets/74d9ba83-02b4-4f10-94ab-ea268252e00f" />
 <img width="99" height="56" alt="b49" src="https://github.com/user-attachments/assets/1908c204-65b3-404b-9d2a-187d1026419c" />
 <img width="99" height="56" alt="b19" src="https://github.com/user-attachments/assets/b872a9ee-99f7-41b3-a6a9-21c06ffe4f22" />
@@ -1137,7 +1146,8 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="99" height="56" alt="94aa81e962de01ffa01f8e51142ab0d1" src="https://github.com/user-attachments/assets/f0292bc8-ce87-4b36-8e27-bd3d2bba4df3" />
 <img width="99" height="56" alt="tumblr_8a66216d5866b23144f916a3d961bbed_a08ccd28_250" src="https://github.com/user-attachments/assets/31d7fe61-b85c-4ab7-8722-5dba30b02892" />
 <img width="101" height="57" alt="tumblr_085eb3b29b09b90e637c8200b1d7d34d_f73c338e_250" src="https://github.com/user-attachments/assets/ae1ad1c9-2399-43ee-8b30-4e883bfba426" />
-<img width="99" height="56" alt="tumblr_4e076d7f8864c478527091d64ad38a39_97c75b6f_250" src="https://github.com/user-attachments/assets/424ee2a9-e654-477b-ad50-68cb86be0bec" /><img width="99" height="56" alt="tumblr_9425adfb36600ff04b9bb5e813b92f8f_b3f36f44_250" src="https://github.com/user-attachments/assets/7bed24c9-6161-4a26-9125-6646ddd2ac73" />
+<img width="99" height="56" alt="tumblr_4e076d7f8864c478527091d64ad38a39_97c75b6f_250" src="https://github.com/user-attachments/assets/424ee2a9-e654-477b-ad50-68cb86be0bec" />
+<img width="99" height="56" alt="tumblr_9425adfb36600ff04b9bb5e813b92f8f_b3f36f44_250" src="https://github.com/user-attachments/assets/7bed24c9-6161-4a26-9125-6646ddd2ac73" />
 <img width="99" height="56" alt="tumblr_cc1951f016e4515160a735e64786dd18_54530c61_100" src="https://github.com/user-attachments/assets/66195029-b67f-4a3f-9f62-be885cf087a6" />
 <img width="99" height="56" alt="c19f70019723d1f763827561e63e75d2" src="https://github.com/user-attachments/assets/119088c5-7595-4825-bb67-967e777515fe" />
 <img width="99" height="56" alt="9d2453a51c13848e696e376aff3f4656" src="https://github.com/user-attachments/assets/bf91c568-d2ab-4fa7-a5b9-d86eea195b47" />
