@@ -250,6 +250,15 @@ https://artfight.net/~MyNameIsSneeze
 
 ✩₊˚.⋆☾⋆⁺₊✧ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆ ✧₊⁺⋆☾⋆.˚₊✩
 
+╭────────────────────୨ৎ────────────────────╮
+
+# 💌 Besties!
+
+
+
+╰────────────────────୨ৎ────────────────────╯
+
+
 <br><br>
 
 <img src="https://github.com/user-attachments/assets/5c21a496-d6a9-47bb-8200-1d47c0d0b04e">
@@ -805,7 +814,14 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <div align="center">
 
 <!-- Normal sized -->
-
+<img width="150" height="20" alt="danger-to-society" src="https://github.com/user-attachments/assets/0d2acb28-1f7e-4d00-a9be-c34939731484" />
+<img width="150" height="20" alt="birdapp" src="https://github.com/user-attachments/assets/8e3710e2-9e44-44d2-8890-53f21f28e80d" />
+<img width="151" height="20" alt="dowhatmakesuhappy" src="https://github.com/user-attachments/assets/a35cce95-88e5-4e0a-abe4-00f71ef364c7" />
+<img width="150" height="20" alt="imbeingputdown" src="https://github.com/user-attachments/assets/58a1fbaa-e229-4d93-9bfc-5443a0fd5651" />
+<img width="150" height="20" alt="blackcat" src="https://github.com/user-attachments/assets/4ed821ca-14d0-4ed8-9d91-531f5cd64674" />
+<img width="150" height="20" alt="crying and throwing up" src="https://github.com/user-attachments/assets/453bff13-c68c-43a1-8f3e-b6b12196873e" />
+<img width="150" height="20" alt="eepy" src="https://github.com/user-attachments/assets/1ec0b081-5e4d-43d0-83bd-78525bd83aa6" />
+<img width="150" height="20" alt="stars" src="https://github.com/user-attachments/assets/8d6f1d74-b9b2-462a-8936-4ab8d8a9dfa0" />
 <img width="150" height="20" alt="petblink68" src="https://github.com/user-attachments/assets/c06bad24-b8e8-44a6-a11c-67209fa7dad2" />
 <img width="150" height="20" alt="night-person" src="https://github.com/user-attachments/assets/2e85260c-d7c0-4b02-9ff8-fea474fd18f8" />
 <img width="150" height="20" alt="vq388t" src="https://github.com/user-attachments/assets/d494f799-f2b6-4a77-b430-724f46f338ff" />
@@ -915,6 +931,11 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img src="https://github.com/user-attachments/assets/02a82b3b-1cc5-4854-9f3f-d071b666c477" width="300">
 
 <br>
+
+<img width="400" height="53" alt="idbeawolf" src="https://github.com/user-attachments/assets/f4e1dfa3-96c0-4fce-ab2c-17b44578e9a3" />
+
+
+<br>
 <!-- digital artist layer -->
 
 <img src="https://github.com/user-attachments/assets/9afe871f-a692-4c34-9599-23250411b31d" width="400">
@@ -954,6 +975,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <!-- Stamps -->
 
 </div>
+<img width="99" height="56" alt="virus-xenon-rainbow" src="https://github.com/user-attachments/assets/9298ce54-1d51-445d-81e9-6e7b7f8ea018" />
 <img width="99" height="56" alt="imfeelingstampity (3)" src="https://github.com/user-attachments/assets/68861e18-5f2c-4540-8882-4584757a7821" />
 <img width="99" height="56" alt="stamp_12_by_anxious_page_ddpsjmt" src="https://github.com/user-attachments/assets/f4d82491-754e-4f09-98fb-8f0aa4567022" />
 <img width="100" height="50" alt="k2v95v" src="https://github.com/user-attachments/assets/f98feb7c-5a58-47fa-acb2-9f5687489b51" />
@@ -996,6 +1018,9 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="99" height="56" alt="noise" src="https://github.com/user-attachments/assets/3ede64ca-48c5-4217-8f22-0c4a39247694" />
 <img width="99" height="56" alt="water2" src="https://github.com/user-attachments/assets/71268483-9b3c-44a1-ae57-1c82dc613c2a" />
 <img width="99" height="56" alt="f8786577" src="https://github.com/user-attachments/assets/b6494fb3-8aca-4db8-a005-395ad592159f" />
+<img width="99" height="56" alt="typos" src="https://github.com/user-attachments/assets/b8956110-1e0b-491a-9979-e0b50657442c" />
+<img width="99" height="55" alt="jermabreakliminal" src="https://github.com/user-attachments/assets/b5e9a3dc-9b04-4bf1-83ae-82211baa8abb" />
+<img width="99" height="56" alt="mobfighton" src="https://github.com/user-attachments/assets/ae5edaed-4c13-422d-86d5-de46978ef75a" />
 <img width="99" height="55" alt="76709154" src="https://github.com/user-attachments/assets/13082e6e-ad94-4ee3-bc0a-e544a713cfa4" />
 <img width="99" height="56" alt="no-signal" src="https://github.com/user-attachments/assets/c74776da-d782-43ed-97c3-ade94035517b" />
 <img width="99" height="55" alt="sharp-edges" src="https://github.com/user-attachments/assets/b34de35c-5765-41dd-8d62-80273d148835" />
@@ -1084,6 +1109,14 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="99" height="56" alt="virus-xenon 3" src="https://github.com/user-attachments/assets/5d2f5dd6-92b1-4d3f-8ffe-37c95992f256" />
 <img width="99" height="56" alt="im_dead___stamp_by_thecandycoating_dahkwgc" src="https://github.com/user-attachments/assets/db5a84d4-c0e3-4221-a688-ce664df3ee61" />
 <img width="99" height="56" alt="2it00u" src="https://github.com/user-attachments/assets/9a97b294-d5c0-4809-8dc4-08c942fed4b4" />
+<img width="99" height="56" alt="twinklestamps-kitty" src="https://github.com/user-attachments/assets/ebc8725f-1139-4259-ad94-5e68e77736df" />
+<img width="99" height="56" alt="internetiscoolbc" src="https://github.com/user-attachments/assets/ce8878e5-e2cf-4c24-abfc-e4a867bf277e" />
+<img width="99" height="56" alt="catwithflowers" src="https://github.com/user-attachments/assets/1aabc35c-1822-438a-9484-1f73bdb2a240" />
+<img width="100" height="56" alt="shootingstars" src="https://github.com/user-attachments/assets/56087903-2774-44cf-8fe1-82db69fe8268" />
+<img width="99" height="56" alt="nyancat" src="https://github.com/user-attachments/assets/511ec030-8c24-425f-adb1-9919b64f55dd" />
+<img width="99" height="56" alt="69 buried 0 found" src="https://github.com/user-attachments/assets/ddee153b-a745-4266-a015-b8810765ab22" />
+<img width="99" height="56" alt="meow" src="https://github.com/user-attachments/assets/e7531936-6223-42c3-9882-2dcf01c37e14" />
+<img width="99" height="56" alt="mushrooms" src="https://github.com/user-attachments/assets/56ccbb02-9d47-4537-9892-b970069a0aa8" />
 
 
 <!-- slightly larger (Burger cult layer) -->
