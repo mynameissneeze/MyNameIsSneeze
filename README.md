@@ -298,11 +298,12 @@ https://artfight.net/~MyNameIsSneeze
 
 ### 🌸 I love talking about...
 
-🎨 Animation • 🎌 Anime • 👻 Horror
+Animation • <img width="20" height="20" alt="hRH1OSt" src="https://github.com/user-attachments/assets/64e43c90-4484-4a34-b185-be167aea88b8" />
+ Anime • <img width="20" height="20" alt="WmlyhMS" src="https://github.com/user-attachments/assets/666f49ad-2d60-4835-b342-befbdf6d35a5" /> Horror
 
 🖌️ Character Design • 🎮 Indie Games
 
-📺 Cartoons • 🍄 Cute & Weird Aesthetics
+<img width="20" height="20" alt="zpPxGBJ" src="https://github.com/user-attachments/assets/d59587e2-6a22-41f6-a833-5182099a2ba2" /> Cartoons • 🍄 Cute & Weird Aesthetics
 
 <br><br>
 
@@ -310,7 +311,8 @@ https://artfight.net/~MyNameIsSneeze
 
 <img src="https://github.com/user-attachments/assets/b35a4910-36ef-413c-b409-9ef75d876891" width="90">
 
-# 🎧 𝓝𝓸𝔀 𝓟𝓵𝓪𝔂𝓲𝓷𝓰 🎧
+# <img width="20" height="20" alt="6XpohMk" src="https://github.com/user-attachments/assets/e30cfc11-e8eb-410f-8729-6220a7a03c3e" /> 𝓝𝓸𝔀 𝓟𝓵𝓪𝔂𝓲𝓷𝓰 <img width="20" height="20" alt="6XpohMk" src="https://github.com/user-attachments/assets/e30cfc11-e8eb-410f-8729-6220a7a03c3e" />
+
 
 <img src="https://github.com/user-attachments/assets/aa39d101-afd5-4c0a-a185-2974237fc8fb" width="180">
 <br>
@@ -395,7 +397,8 @@ AHHH!! Real Monsters • My Little Pony • Hello Kitty • Mushrooms • Rabbit
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-## 🎬🍿 Favorite Films 🍿🎬
+## <img width="20" height="20" alt="BjtQDjG" src="https://github.com/user-attachments/assets/f49f4377-df6f-4b90-84ff-8330aabbc685" /> Favorite Films <img width="20" height="20" alt="NVOIYcI" src="https://github.com/user-attachments/assets/3e157d4b-fb9a-4847-b3e5-8a9fefc0b1d8" />
+
 
 Coraline • Alice in Wonderland • Spirited Away • Ponyo • Pom Poko • Only Yesterday • The Night Is Short, Walk on Girl • Win or Lose • Ride Your Wave • Your Name • A Silent Voice • Thirteen Ghosts • Signs • Hereditary • Willy's Wonderland • The Witch • The Autopsy of Jane Doe • Scary Stories to Tell in the Dark • Silent Hill • Creep • Skinamarink • The Visit • As Above, So Below • The Blair Witch Project • Hell House LLC • Grave Encounters • Last Shift • The Ritual • The Possession
 
@@ -468,7 +471,7 @@ Life Is Strange • Scott Pilgrim
 
 ---
 
-## ⚡🐾 Favorite Pokémon 🐾⚡
+## <img width="20" height="20" alt="XwWMZDw" src="https://github.com/user-attachments/assets/fa0d6f16-b475-4a3f-9acb-61a02e1f228f" /> Favorite Pokémon <img width="20" height="20" alt="XwWMZDw" src="https://github.com/user-attachments/assets/fa0d6f16-b475-4a3f-9acb-61a02e1f228f" />
 
 ⚡ Snorlax • Hypno • Ditto • Miltank • Piplup • Buneary • Sawsbuck • Espurr • Mimikyu • Alcremie • Maushold • Oinkologne • Scream Tail
 
