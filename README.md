@@ -254,9 +254,11 @@ https://artfight.net/~MyNameIsSneeze
 
 <img width="20" height="20" alt="HetNHZ2" src="https://github.com/user-attachments/assets/37737f3a-0c87-41c3-bc4c-cfe14e5b0ba0" /> You'll usually find me as **MyNameIsSneeze** on just about every platform!
 
-🦋 I'm a little shy at first, but once I get comfortable I love chatting and making new friends.
+<img width="20" height="20" alt="82EiYBS" src="https://github.com/user-attachments/assets/78b4bba1-f74c-4b03-8337-c6a76795048b" /> I'm a little shy at first, but once I get comfortable I love chatting and making new friends. <img width="20" height="20" alt="82EiYBS" src="https://github.com/user-attachments/assets/a8fcc6af-2833-4eee-baf5-ee04d68225c2" />
 
-📺 I absolutely love introducing people to new movies, animation, anime, indie cartoons, and horror films!
+
+<img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/4b359526-db37-4d9b-ac06-b4713abd32b2" /> I absolutely love introducing people to new movies, animation, anime, indie cartoons, and horror films! <img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/53002b65-6e14-48e4-8987-dd1e2ba7a601" />
+
 
 <br>
 
@@ -305,7 +307,7 @@ https://artfight.net/~MyNameIsSneeze
 
 <br>
 
-### 🌸 I love talking about...
+### <img width="20" height="20" alt="atXYx5i" src="https://github.com/user-attachments/assets/a81c77a8-4def-496f-a5fd-4d9dd20ed37a" /> I love talking about... 
 
 <img width="20" height="20" alt="WCuhWkS" src="https://github.com/user-attachments/assets/e1b06075-4d11-48b4-9ec3-a435543f972a" /> Animation • <img width="20" height="20" alt="hRH1OSt" src="https://github.com/user-attachments/assets/64e43c90-4484-4a34-b185-be167aea88b8" />
  Anime • <img width="20" height="20" alt="WmlyhMS" src="https://github.com/user-attachments/assets/666f49ad-2d60-4835-b342-befbdf6d35a5" /> Horror
@@ -400,10 +402,6 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 # 🌟✨ ALL ABOUT ME ✨🌟
 
-## 🌟✨ Special Interests ✨🌟
-
-AHHH!! Real Monsters • My Little Pony • Hello Kitty • Mushrooms • Rabbits • Stars
-
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="BjtQDjG" src="https://github.com/user-attachments/assets/f49f4377-df6f-4b90-84ff-8330aabbc685" /> Favorite Films <img width="20" height="20" alt="NVOIYcI" src="https://github.com/user-attachments/assets/3e157d4b-fb9a-4847-b3e5-8a9fefc0b1d8" />
@@ -471,28 +469,30 @@ Life Is Strange • Scott Pilgrim
 
 ---
 
-## 🐾 Favorite Animals & Creatures 🐾
+## <img width="20" height="20" alt="dQ2uW83" src="https://github.com/user-attachments/assets/8397b744-cd31-4cc1-8a24-738b36e3fe8e" /> Favorite Animals & Creatures <img width="20" height="20" alt="dQ2uW83" src="https://github.com/user-attachments/assets/255ef8ff-addd-426a-bc39-4928f8e6a2b5" />
 
-🐇 Rabbits • Bunnies • Hares • Deer • Pigs • Opossums • Possums • Hermit Crabs • Jackalopes • Mothman • Forest Spirits • Fairies • Yokai • Ghosts • Will-o'-Wisps • Mushroom People • Cryptids
+
+ Rabbits • Bunnies • Hares • Deer • Pigs • Opossums • Possums • Hermit Crabs • Jackalopes • Mothman • Forest Spirits • Fairies • Yokai • Ghosts • Will-o'-Wisps • Mushroom People • Cryptids
 
 ---
 
 ## <img width="20" height="20" alt="993d5eb49fb656140fb64c3d6a9519f6" src="https://github.com/user-attachments/assets/9f207bdf-9da4-4e8f-a89d-d32d246290a2" /> Favorite Bugs <img width="20" height="20" alt="scAkmBL" src="https://github.com/user-attachments/assets/8382f46a-c63e-4720-bb4a-9abec55650bd" />
 
 
-🦋 Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Empusidae Mantises • Hymenopodidae Mantises • Jumping Spiders • Snails • Slugs • Dragon Flys • Fireflies 
+ Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Empusidae Mantises • Hymenopodidae Mantises • Jumping Spiders • Snails • Slugs • Dragon Flys • Fireflies 
 
 ---
 
 ## <img width="20" height="20" alt="XwWMZDw" src="https://github.com/user-attachments/assets/fa0d6f16-b475-4a3f-9acb-61a02e1f228f" /> Favorite Pokémon <img width="20" height="20" alt="XwWMZDw" src="https://github.com/user-attachments/assets/fa0d6f16-b475-4a3f-9acb-61a02e1f228f" />
 
-⚡ Snorlax • Hypno • Ditto • Miltank • Piplup • Buneary • Sawsbuck • Espurr • Mimikyu • Alcremie • Maushold • Oinkologne • Scream Tail
+ Snorlax • Hypno • Ditto • Miltank • Piplup • Buneary • Sawsbuck • Espurr • Mimikyu • Alcremie • Maushold • Oinkologne • Scream Tail
 
 ---
 
-## 🎤💜 Favorite Idol 💜🎤
+## <img width="20" height="20" alt="64JT5ug" src="https://github.com/user-attachments/assets/a24a8690-8412-4f8f-ae6f-7eb3cf558770" /> Favorite Idol <img width="20" height="20" alt="64JT5ug" src="https://github.com/user-attachments/assets/fda4fda0-95ce-450a-b2ec-11a8de337313" />
 
-💜 Jungkook
+
+ Jungkook
 
 ---
 
@@ -520,9 +520,10 @@ PonyTown • Art Fight • Twitter/X • GitHub • Spotify • Pinterest
 
 ---
 
-## 😰⚠️ Phobias ⚠️😰
+## <img width="20" height="20" alt="3S3rWPS" src="https://github.com/user-attachments/assets/00f302db-2158-4043-b894-68020e252b3a" /> Phobias <img width="20" height="20" alt="3S3rWPS" src="https://github.com/user-attachments/assets/7435722a-08e5-4dcb-a5d1-36bec3d70b46" />
 
-😰 Thalassophobia • Trypophobia • Acrophobia • Scopophobia • Megalophobia
+
+😰 Thalassophobia • Trypophobia • Acrophobia • Scopophobia • Megalophobia • astraphobia
 
 ---
 
