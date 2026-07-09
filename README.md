@@ -617,7 +617,11 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 <br>
 <img width="20" height="20" alt="tumblr_8e1608057d49c9713e205028d8c47201_fd07e97d_75" src="https://github.com/user-attachments/assets/058af6f7-de29-4616-b123-3ca43e933e8f" />
-
+<img width="20" height="20" alt="5VAFdRK" src="https://github.com/user-attachments/assets/d13f1a45-1615-4ed1-a3b3-1ce397638094" />
+<img width="20" height="20" alt="zCrY7dw" src="https://github.com/user-attachments/assets/abd93add-c213-454e-91fb-370d8a33db01" />
+<img width="20" height="20" alt="QkrRApm" src="https://github.com/user-attachments/assets/427c9873-01b5-47bf-ba79-26405e3e8fde" />
+<img width="20" height="20" alt="iGJURr3" src="https://github.com/user-attachments/assets/f9ee6842-f3b0-4d16-8113-6b8f38e7e301" />
+<img width="20" height="20" alt="Cxks9on" src="https://github.com/user-attachments/assets/6e85015b-2e7d-4b9c-850a-a46ddaa5ffb4" />
 <img width="20" height="20" alt="tumblr_90c5828f00e09c0772e024af37c25057_44218838_75" src="https://github.com/user-attachments/assets/f14463f0-4b31-428d-9935-37dc935868ae" />
 <img width="20" height="20" alt="51d72386d3d763faf275bcc6a19ceb7d" src="https://github.com/user-attachments/assets/88edd754-f0df-4951-83f9-fd91916884a6" />
 <img width="20" height="20" alt="8e1398f832558750989d98d61e419b42" src="https://github.com/user-attachments/assets/12600d6e-9f22-4d00-906e-7481d519c2bb" />
@@ -722,6 +726,8 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="20" height="20" alt="tumblr_a1aa83fffd4a0da76288fabf5fda6b56_c6e90548_75" src="https://github.com/user-attachments/assets/22eff817-7586-4967-8b2f-c5a8fc770429" />
 <img width="20" height="20" alt="tumblr_a549e760db0bc6a49115719448911308_a3cdb137_75" src="https://github.com/user-attachments/assets/f46fc8f3-2dac-41a2-853e-71e630c97936" />
 <img width="20" height="20" alt="tumblr_26ca2e3be309f5f72351793bf4b65790_ec9f841e_75" src="https://github.com/user-attachments/assets/66d60a2c-8244-4f39-85c9-e2d27e0f1546" />
+<img width="20" height="20" alt="RoZTugo" src="https://github.com/user-attachments/assets/87e34fa4-2fd4-4cff-bb6b-371f114ab5df" />
+
 </details>
 
 <details>
