@@ -772,7 +772,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 </summary>
 
 <br>
-<img width="80" height="15" alt="wmwjvp" src="https://github.com/user-attachments/assets/9e6d8a9b-41ae-488b-b62b-8358f52c9ee0" />
 <img width="80" height="15" alt="6d5yib" src="https://github.com/user-attachments/assets/85082b0e-5476-40fd-ad1c-3fff4b13ec6b" />
 <img width="80" height="15" alt="ahksng" src="https://github.com/user-attachments/assets/388cee5f-f8ed-44d8-be8a-3e428c371c4c" />
 <img width="80" height="15" alt="8uxbwo" src="https://github.com/user-attachments/assets/00051c0a-c218-490c-ad0e-0dc2ec24d76e" />
