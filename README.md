@@ -827,11 +827,16 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="88" height="31" alt="qa1vn9" src="https://github.com/user-attachments/assets/ac6d3c02-df72-4358-a2d0-2fdbdcab1137" />
 <img width="88" height="31" alt="volta" src="https://github.com/user-attachments/assets/979fca47-338f-46bb-8152-c8827f6c86cf" />
 <img width="88" height="31" alt="miku" src="https://github.com/user-attachments/assets/0750df03-cb68-4161-8b96-7da87a0b31ee" />
+<img width="88" height="31" alt="kriswherearewe" src="https://github.com/user-attachments/assets/47877523-b52f-40a2-85f6-ea065bab6f1b" />
+<img width="88" height="31" alt="owntwopaws" src="https://github.com/user-attachments/assets/677ac142-25fe-4d9a-af93-3476d9a8c431" />
+<img width="88" height="31" alt="fireskull" src="https://github.com/user-attachments/assets/7245b1b4-4d6b-45a9-bdc7-5eed2a4c77dd" />
+
 <br>
 
 <div align="center">
 
 <!-- Normal sized -->
+<img width="150" height="20" alt="cringeisded" src="https://github.com/user-attachments/assets/536c1c34-0ee0-4764-a70c-331a45a83638" />
 <img width="150" height="20" alt="danger-to-society" src="https://github.com/user-attachments/assets/0d2acb28-1f7e-4d00-a9be-c34939731484" />
 <img width="150" height="20" alt="birdapp" src="https://github.com/user-attachments/assets/8e3710e2-9e44-44d2-8890-53f21f28e80d" />
 <img width="151" height="20" alt="dowhatmakesuhappy" src="https://github.com/user-attachments/assets/a35cce95-88e5-4e0a-abe4-00f71ef364c7" />
@@ -993,6 +998,11 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <!-- Stamps -->
 
 </div>
+
+<img width="50" height="50" alt="miemiechan-unicorn" src="https://github.com/user-attachments/assets/0afc2111-0afb-4fb4-bc9d-24bcbdb875b5" />
+
+<br>
+
 <img width="99" height="56" alt="virus-xenon-rainbow" src="https://github.com/user-attachments/assets/9298ce54-1d51-445d-81e9-6e7b7f8ea018" />
 <img width="99" height="56" alt="imfeelingstampity (3)" src="https://github.com/user-attachments/assets/68861e18-5f2c-4540-8882-4584757a7821" />
 <img width="99" height="56" alt="stamp_12_by_anxious_page_ddpsjmt" src="https://github.com/user-attachments/assets/f4d82491-754e-4f09-98fb-8f0aa4567022" />
