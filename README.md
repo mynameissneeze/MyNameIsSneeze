@@ -94,7 +94,7 @@ https://artfight.net/~MyNameIsSneeze
 
 ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
 
-# 🌸 𝓗𝓮𝔂, 𝓘'𝓶 𝓢𝓷𝓮𝓮𝔃𝓮! 🌸
+# <img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" /> 𝓗𝓮𝔂, 𝓘'𝓶 𝓢𝓷𝓮𝓮𝔃𝓮! <img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" />
 
 ૮ ˶ᵔ ᵕ ᵔ˶ ა
 
@@ -108,7 +108,6 @@ https://artfight.net/~MyNameIsSneeze
 
 ### ₊˚⊹♡ Welcome to my little corner of the internet! ♡⊹˚₊
 
-🍓 🐇 🍄 ⭐ ☁️ 🎀 🦋
 
 <div align="center">
 
@@ -121,7 +120,7 @@ https://artfight.net/~MyNameIsSneeze
 <p align="center">
 <img src="https://github.com/user-attachments/assets/8b9ec83e-ad7a-4e67-a328-5ccc5dabfeb6" height="70">
 &nbsp;&nbsp;&nbsp;
-<b>🐴 𝓜𝔂 𝓟𝓸𝓷𝔂𝓣𝓸𝔀𝓷 𝓢𝓴𝓲𝓷𝓼 🐴</b>
+<b> <img width="20" height="20" alt="UHSilpu" src="https://github.com/user-attachments/assets/2c497637-e6b9-4288-9327-4aa5b7b07951" /> 𝓜𝔂 𝓟𝓸𝓷𝔂𝓣𝓸𝔀𝓷 𝓢𝓴𝓲𝓷𝓼 <img width="20" height="20" alt="UHSilpu" src="https://github.com/user-attachments/assets/2c497637-e6b9-4288-9327-4aa5b7b07951" /> </b>
 &nbsp;&nbsp;&nbsp;
 <img src="https://github.com/user-attachments/assets/d87f5733-738e-4d45-931e-22087e905e67" height="70">
 </p>
@@ -253,7 +252,7 @@ https://artfight.net/~MyNameIsSneeze
 
 📱 **DMs:** **ALWAYS OPEN**
 
-⭐ You'll usually find me as **MyNameIsSneeze** on just about every platform!
+<img width="20" height="20" alt="HetNHZ2" src="https://github.com/user-attachments/assets/37737f3a-0c87-41c3-bc4c-cfe14e5b0ba0" /> You'll usually find me as **MyNameIsSneeze** on just about every platform!
 
 🦋 I'm a little shy at first, but once I get comfortable I love chatting and making new friends.
 
@@ -433,7 +432,8 @@ Minecraft • PonyTown • Cookie Run: Kingdom • Cult of the Lamb • Dead by 
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-<img width="20" height="20" alt="3uliWir" src="https://github.com/user-attachments/assets/db631662-70a2-4a8c-9ea7-c705e6258a62" /> Favorite Foods & Drinks 
+<img width="20" height="20" alt="3uliWir" src="https://github.com/user-attachments/assets/db631662-70a2-4a8c-9ea7-c705e6258a62" /> Favorite Foods & Drinks <img width="20" height="20" alt="3YthmDX" src="https://github.com/user-attachments/assets/e8e129f3-39fe-47d5-8319-8acc33ef9cd2" />
+
 
 Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries) • Pancakes • Buldak Ramen • Arizona Tea (Herbal Tonic, Green Tea, Half & Half) • Muffins • Matcha • French Toast • Aussie Lemonade • Donuts • Iced Coffee • Tea • Lemon & Lime • Boba Tea
 
@@ -451,13 +451,15 @@ Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries) • Pancakes • Buld
 
 ---
 
-## 📚🖊️ Favorite Books / Comics 🖊️📚
+## <img width="20" height="20" alt="Xq773u8" src="https://github.com/user-attachments/assets/10911601-0ddb-4983-bdf6-840da8f3038d" /> Favorite Books / Comics <img width="20" height="20" alt="Xq773u8" src="https://github.com/user-attachments/assets/3c029e9b-2c00-4011-b939-ccb1f4c5166e" />
+
 
 Life Is Strange • Scott Pilgrim
 
 ---
 
-## 🛍️🌸 Favorite Brands / Companies 🌸🛍️
+## <img width="20" height="20" alt="smoACtO" src="https://github.com/user-attachments/assets/ce4a3c9f-42e4-4c18-9b46-8ae8d715979a" /> Favorite Brands / Companies <img width="20" height="20" alt="92K393h" src="https://github.com/user-attachments/assets/5bf1caeb-dd45-44bd-8220-cdb7d5306274" />
+
 
 🛍️ Sanrio • Squishmallows • Arizona Tea • Starbucks • Sugarbunnies
 
@@ -632,6 +634,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="19" height="32" alt="tumblr_d59fd199e2a816f9f583e448af1e1b86_9a2674ad_75" src="https://github.com/user-attachments/assets/12dae9ed-a354-4f0b-8fdb-f946bdc5c908" />
 
 <br>
+<img width="20" height="20" alt="xTG0g4A" src="https://github.com/user-attachments/assets/b9c8b6ba-d980-4cde-b4e3-f95da0b6dc8f" />
 <img width="20" height="20" alt="tumblr_8e1608057d49c9713e205028d8c47201_fd07e97d_75" src="https://github.com/user-attachments/assets/058af6f7-de29-4616-b123-3ca43e933e8f" />
 <img width="20" height="20" alt="5VAFdRK" src="https://github.com/user-attachments/assets/d13f1a45-1615-4ed1-a3b3-1ce397638094" />
 <img width="20" height="20" alt="zCrY7dw" src="https://github.com/user-attachments/assets/abd93add-c213-454e-91fb-370d8a33db01" />
