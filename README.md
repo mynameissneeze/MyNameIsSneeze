@@ -298,7 +298,7 @@ https://artfight.net/~MyNameIsSneeze
 
 ### 🌸 I love talking about...
 
-Animation • <img width="20" height="20" alt="hRH1OSt" src="https://github.com/user-attachments/assets/64e43c90-4484-4a34-b185-be167aea88b8" />
+<img width="20" height="20" alt="WCuhWkS" src="https://github.com/user-attachments/assets/e1b06075-4d11-48b4-9ec3-a435543f972a" /> Animation • <img width="20" height="20" alt="hRH1OSt" src="https://github.com/user-attachments/assets/64e43c90-4484-4a34-b185-be167aea88b8" />
  Anime • <img width="20" height="20" alt="WmlyhMS" src="https://github.com/user-attachments/assets/666f49ad-2d60-4835-b342-befbdf6d35a5" /> Horror
 
 🖌️ Character Design • 🎮 Indie Games
@@ -410,7 +410,8 @@ Adventure Time • Bee and PuppyCat • Gravity Falls • Futurama • Scott Pil
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-## 🎌💥 Favorite Anime 💥🎌
+## <img width="20" height="20" alt="6D71rk6" src="https://github.com/user-attachments/assets/acf34eb5-83a2-458f-87f6-06d5073ad2b7" /> Favorite Anime <img width="20" height="20" alt="4vZ4stX" src="https://github.com/user-attachments/assets/7282e1e7-99b9-47f2-8298-a45c1c37321a" />
+
 
 xxxHolic • Durarara!! • Osomatsu-san • Deadman Wonderland • Mob Psycho 100 • Ouran High School Host Club • Soul Eater • Sgt. Frog • Lucky Star • Kakegurui • Nana • FLCL • Panty & Stocking • Bleach • Princess Tutu • Princess Jellyfish • Migi & Dali • Squid Girl • Life Lessons with Uramichi Oniisan • Nichijou • Dandadan
 
@@ -422,13 +423,13 @@ Minecraft • PonyTown • Cookie Run: Kingdom • Cult of the Lamb • Dead by 
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
- Favorite Foods & Drinks 
+<img width="20" height="20" alt="3uliWir" src="https://github.com/user-attachments/assets/db631662-70a2-4a8c-9ea7-c705e6258a62" /> Favorite Foods & Drinks 
 
 Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries) • Pancakes • Buldak Ramen • Arizona Tea (Herbal Tonic, Green Tea, Half & Half) • Muffins • Matcha • French Toast • Aussie Lemonade • Donuts • Iced Coffee • Tea • Lemon & Lime • Boba Tea
 
 ---
 
-##  Favorite Music / Artists <img width="20" height="20" alt="fd7315976043ca778ce3bbdc8495c6a6" src="https://github.com/user-attachments/assets/78def731-dfb5-423e-9ca5-7e4803afe81a" />
+## <img width="20" height="20" alt="dczKhZp" src="https://github.com/user-attachments/assets/568cb315-2955-402a-b690-7f89ffdac670" /> Favorite Music / Artists <img width="20" height="20" alt="fd7315976043ca778ce3bbdc8495c6a6" src="https://github.com/user-attachments/assets/78def731-dfb5-423e-9ca5-7e4803afe81a" />
 
 🎵 Gorillaz • Studio Killers • Caravan Palace • Jack Stauber • Tom Cardy • Jakey • Glaze • The Living Tombstone • Femtanyl • Rare Americans • Sia • girl in red • Vocaloid • Daughter • Mindless Self Indulgence
 
@@ -464,7 +465,7 @@ Life Is Strange • Scott Pilgrim
 
 ---
 
-## <img width="20" height="20" alt="993d5eb49fb656140fb64c3d6a9519f6" src="https://github.com/user-attachments/assets/9f207bdf-9da4-4e8f-a89d-d32d246290a2" /> Favorite Bugs ## <img width="20" height="20" alt="scAkmBL" src="https://github.com/user-attachments/assets/8382f46a-c63e-4720-bb4a-9abec55650bd" />
+## <img width="20" height="20" alt="993d5eb49fb656140fb64c3d6a9519f6" src="https://github.com/user-attachments/assets/9f207bdf-9da4-4e8f-a89d-d32d246290a2" /> Favorite Bugs <img width="20" height="20" alt="scAkmBL" src="https://github.com/user-attachments/assets/8382f46a-c63e-4720-bb4a-9abec55650bd" />
 
 
 🦋 Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Empusidae Mantises • Hymenopodidae Mantises • Jumping Spiders • Snails • Slugs • Dragon Flys • Fireflies 
@@ -516,7 +517,7 @@ PonyTown • Art Fight • Twitter/X • GitHub • Spotify • Pinterest
 ##  <img width="20" height="20" alt="7c4561648bcd6b96259a1f70a5c1c257" src="https://github.com/user-attachments/assets/7d0be0aa-e534-4145-855e-298a8d16404f" /> Favorite Weather & Seasons <img width="20" height="20" alt="3cf59f4283a82799611f30b2e42e56c3" src="https://github.com/user-attachments/assets/f678771a-ab03-4352-bbae-90525ca74e2f" />
 
 
-🌧️ Weather: Rain • Fog • Overcast Skies • Snowy Nights
+<img width="20" height="20" alt="XTanWXg" src="https://github.com/user-attachments/assets/9b18adc8-5f48-45ce-b30b-181b943c68d8" /> Weather: Rain • Fog • Overcast Skies • Snowy Nights
 
 <img width="23" height="23" alt="tumblr_b2dff9a9cea293aacc112679750756a4_03c503b7_75" src="https://github.com/user-attachments/assets/4ecd218f-31d1-4b97-bf18-1d7b81375618" /> Seasons: Autumn • Spring
 
