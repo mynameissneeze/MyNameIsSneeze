@@ -1,3 +1,5 @@
+
+
 <div align="center">
   
 <br>
@@ -71,16 +73,10 @@ https://artfight.net/~MyNameIsSneeze
 
 <br><br>
 
-<img src="https://github.com/user-attachments/assets/e1171ea3-ee29-4cc8-9a8d-4c3688b7d51e" width="150">
-<img src="https://github.com/user-attachments/assets/fe562e8c-776a-4bed-94ab-ac36bcc3c4d6" width="150">
 
-<img src="https://github.com/user-attachments/assets/1d8af808-d7d3-46f9-9025-589b89d28dec" width="150">
 
 <br><br>
 
-<img src="https://github.com/user-attachments/assets/96ed7429-caf5-41f0-8db0-f5cdf29d852d">
-<img src="https://github.com/user-attachments/assets/7f8801cf-3e9b-403b-ad79-9d813f061675">
-<img src="https://github.com/user-attachments/assets/e81f9281-e9d3-446f-9a00-d4ee55b84d20">
 
 <br><br>
 
@@ -89,7 +85,12 @@ https://artfight.net/~MyNameIsSneeze
 <img src="https://github.com/user-attachments/assets/19790c59-202e-49d9-86a7-5fd0610b7046" width="430">
 
 <img src="https://github.com/user-attachments/assets/48a9e2bd-55bf-4629-b2f7-36356b3df9a2" width="170">
+<br>
 
+<img src="https://github.com/user-attachments/assets/e1171ea3-ee29-4cc8-9a8d-4c3688b7d51e" width="150">
+<img src="https://github.com/user-attachments/assets/fe562e8c-776a-4bed-94ab-ac36bcc3c4d6" width="150">
+
+<img src="https://github.com/user-attachments/assets/1d8af808-d7d3-46f9-9025-589b89d28dec" width="150">
 <br><br>
 
 ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
@@ -305,6 +306,9 @@ https://artfight.net/~MyNameIsSneeze
 ## 💌 𝓒𝓸𝓶𝓮 𝓢𝓪𝔂 𝓗𝓲!
 
 ╰────────────────────୨ৎ────────────────────╯
+
+<img width="200" height="100" alt="discord" src="https://github.com/user-attachments/assets/03eac6a4-716e-4426-82ae-e2e1b0b6ffb8" />
+
 
 🎮 **Discord:** `SneezeIsHere`
 
