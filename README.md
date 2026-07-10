@@ -399,7 +399,7 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 ## <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7"> Favorite Websites <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7">
 
-🌐 PonyTown • Art Fight • GitHub • Spotify • Pinterest • Twitter / X
+ PonyTown • Art Fight • GitHub • Spotify • Pinterest • Twitter / X
 
 </div>
 
@@ -408,14 +408,15 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-## <img width="20" height="20" alt="BjtQDjG" src="https://github.com/user-attachments/assets/f49f4377-df6f-4b90-84ff-8330aabbc685" /> Favorite Films <img width="20" height="20" alt="NVOIYcI" src="https://github.com/user-attachments/assets/3e157d4b-fb9a-4847-b3e5-8a9fefc0b1d8" />
+## <img width="20" height="20" alt="Hzvbpcm" src="https://github.com/user-attachments/assets/70e309ce-7fab-4941-a5b2-91baf358c27c" /> Favorite Films <img width="20" height="20" alt="NVOIYcI" src="https://github.com/user-attachments/assets/3e157d4b-fb9a-4847-b3e5-8a9fefc0b1d8" />
 
 
 Coraline • Alice in Wonderland • Spirited Away • Ponyo • Pom Poko • Only Yesterday • The Night Is Short, Walk on Girl • Win or Lose • Ride Your Wave • Your Name • A Silent Voice • Thirteen Ghosts • Signs • Hereditary • Willy's Wonderland • The Witch • The Autopsy of Jane Doe • Scary Stories to Tell in the Dark • Silent Hill • Creep • Skinamarink • The Visit • As Above, So Below • The Blair Witch Project • Hell House LLC • Grave Encounters • Last Shift • The Ritual • The Possession
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-## 📺💫 Favorite Shows 💫📺
+## <img width="20" height="20" alt="D0YJB9M" src="https://github.com/user-attachments/assets/1495a226-eb60-4b98-bea0-cc691cb8f415" /> Favorite Shows <img width="20" height="20" alt="D0YJB9M" src="https://github.com/user-attachments/assets/1495a226-eb60-4b98-bea0-cc691cb8f415" />
+
 
 Adventure Time • Bee and PuppyCat • Gravity Falls • Futurama • Scott Pilgrim • My Little Pony • Moomin • South Park • Final Space • Aggretsuko • AHHH!! Real Monsters • The Cuphead Show • Code Lyoko • Steven Universe • Star vs. the Forces of Evil • OK K.O.! • Infinity Train • Tuca & Bertie • The Amazing Digital Circus • Home Movies • China, IL • Clone High • Big Top Burger • MTV Downtown • Poppe the Performer
 
@@ -428,7 +429,7 @@ xxxHolic • Durarara!! • Osomatsu-san • Deadman Wonderland • Mob Psycho 1
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
-## 🎮🕹️ Favorite Games 🕹️🎮
+## <img width="20" height="20" alt="UL1PL4N" src="https://github.com/user-attachments/assets/0b9f7025-d1b5-4a1e-80d1-1695efb5a580" /> Favorite Games <img width="20" height="20" alt="UL1PL4N" src="https://github.com/user-attachments/assets/0b9f7025-d1b5-4a1e-80d1-1695efb5a580" />
 
 Minecraft • PonyTown • Cookie Run: Kingdom • Cult of the Lamb • Dead by Daylight • The Classrooms • Five Nights at Freddy's • Grounded • The Forest • Lethal Company • Life Is Strange • Resident Evil • Saints Row • Raft • Stardew Valley • Webfishing • Fran Bow • Content Warning • 7 Days to Die • Bigfoot • Roblox • Skyrim • Yandere Simulator • Silent Hill • Hello Kitty Island Adventure • Kletka • Hitman • Degrees of Lewdity • Alice: Madness Returns • What Remains of Edith Finch • Reka • Schedule 1 • Wizard101 • Wobbledogs
 
@@ -443,13 +444,14 @@ Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries) • Pancakes • Buld
 
 ## <img width="20" height="20" alt="dczKhZp" src="https://github.com/user-attachments/assets/568cb315-2955-402a-b690-7f89ffdac670" /> Favorite Music / Artists <img width="20" height="20" alt="fd7315976043ca778ce3bbdc8495c6a6" src="https://github.com/user-attachments/assets/78def731-dfb5-423e-9ca5-7e4803afe81a" />
 
-🎵 Gorillaz • Studio Killers • Caravan Palace • Jack Stauber • Tom Cardy • Jakey • Glaze • The Living Tombstone • Femtanyl • Rare Americans • Sia • girl in red • Vocaloid • Daughter • Mindless Self Indulgence
+ Gorillaz • Studio Killers • Caravan Palace • Jack Stauber • Tom Cardy • Jakey • Glaze • The Living Tombstone • Femtanyl • Rare Americans • Sia • girl in red • Vocaloid • Daughter • Mindless Self Indulgence
 
 ---
 
-## 🎨🖌️ Favorite Artists 🖌️🎨
+## <img width="20" height="20" alt="XxPT3NS" src="https://github.com/user-attachments/assets/de95d95c-23cd-4281-b455-f44f71f81b90" /> Favorite Artists <img width="20" height="20" alt="XxPT3NS" src="https://github.com/user-attachments/assets/de95d95c-23cd-4281-b455-f44f71f81b90" />
 
-🎨 Zalinki • Lisa Frank • Zach Hadel • Chris O'Neill • Amy Brown
+
+ Zalinki • Lisa Frank • Zach Hadel • Chris O'Neill • Amy Brown
 
 ---
 
@@ -463,13 +465,13 @@ Life Is Strange • Scott Pilgrim
 ## <img width="20" height="20" alt="smoACtO" src="https://github.com/user-attachments/assets/ce4a3c9f-42e4-4c18-9b46-8ae8d715979a" /> Favorite Brands / Companies <img width="20" height="20" alt="92K393h" src="https://github.com/user-attachments/assets/5bf1caeb-dd45-44bd-8220-cdb7d5306274" />
 
 
-🛍️ Sanrio • Squishmallows • Arizona Tea • Starbucks • Sugarbunnies
+ Sanrio • Squishmallows • Arizona Tea • Starbucks • Sugarbunnies
 
 ---
 
-## 👃🌊 Favorite Smells 🌊👃
+## <img width="20" height="20" alt="C8KLG7j" src="https://github.com/user-attachments/assets/e7b7fae6-70a3-4c76-b4e1-044685c3efa8" /> Favorite Smells <img width="20" height="20" alt="C8KLG7j" src="https://github.com/user-attachments/assets/e7b7fae6-70a3-4c76-b4e1-044685c3efa8" />
 
-🌊 Wild Spirit Driftwood Perfume • Chlorine (Pools) • Smoke / Fire
+ Wild Spirit Driftwood Perfume • Chlorine (Pools) • Smoke / Fire
 
 ---
 
@@ -500,7 +502,8 @@ Life Is Strange • Scott Pilgrim
 
 ---
 
-## 🎮✨ Favorite Roblox Creators ✨🎮
+##  <img width="20" height="20" alt="6ZoyoRx" src="https://github.com/user-attachments/assets/f3e52803-d726-4d12-bf4f-57b3d16eeaff" /> Favorite Roblox Creators <img width="20" height="20" alt="6ZoyoRx" src="https://github.com/user-attachments/assets/f3e52803-d726-4d12-bf4f-57b3d16eeaff" />
+
 
  Starbby • Luminfur
 
@@ -641,10 +644,39 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="200" height="20" alt="tumblr_ee6b5b3a3c0f59e24fb05be7308bdb3a_b8052ad0_250" src="https://github.com/user-attachments/assets/3e9ce1b3-c579-4663-80bf-06d1b96e2ca8" />
 <img width="19" height="32" alt="tumblr_d59fd199e2a816f9f583e448af1e1b86_9a2674ad_75" src="https://github.com/user-attachments/assets/12dae9ed-a354-4f0b-8fdb-f946bdc5c908" />
 <br>
-
+<img width="20" height="20" alt="H7Zbn78" src="https://github.com/user-attachments/assets/96e0158e-fa5a-4e28-a64a-4475f694679d" />
+<img width="20" height="20" alt="b7ZOSjY" src="https://github.com/user-attachments/assets/6f7397b3-3311-4f65-a46a-d0843a79b664" />
+<img width="20" height="20" alt="lYlQ70B" src="https://github.com/user-attachments/assets/0957e81c-468a-49e7-bbeb-1514c1d74e9a" />
+<img width="20" height="20" alt="dauAPe5" src="https://github.com/user-attachments/assets/90b4ec08-578a-4847-81f7-463481f2bd9a" />
+<img width="20" height="20" alt="uPAAd5d" src="https://github.com/user-attachments/assets/5e78f115-e2a1-42f3-aec0-f8026d3179ce" />
+<img width="20" height="20" alt="SxB9Tcz" src="https://github.com/user-attachments/assets/75b0209b-2ee6-4a5b-b83f-4556c07cb822" />
+<img width="20" height="20" alt="QmxZxEm" src="https://github.com/user-attachments/assets/f6bd5aae-7c47-46de-94fa-81f84780f796" />
+<img width="20" height="20" alt="Bi5A7sk" src="https://github.com/user-attachments/assets/f6013320-0ff8-4670-8b42-23a97e34a45a" />
+<img width="20" height="20" alt="Dq2UARX" src="https://github.com/user-attachments/assets/72191093-0165-4d6a-bed3-9282fdd82672" />
+<img width="20" height="20" alt="qZufX5f" src="https://github.com/user-attachments/assets/dc1b7908-6042-4f54-9df6-7db23a433dea" />
+<img width="20" height="20" alt="5oGJ3ve" src="https://github.com/user-attachments/assets/086749b6-8bc8-4a24-8d06-745fa9147154" />
+<img width="20" height="20" alt="3g7zeGW" src="https://github.com/user-attachments/assets/5443fa5c-7182-4e9a-b9bc-c1fbe05a2301" />
 <img width="20" height="20" alt="1CdfkrA" src="https://github.com/user-attachments/assets/c034839e-b463-4642-b01b-be2678ff57f9" />
 <img width="20" height="20" alt="2DczSyV" src="https://github.com/user-attachments/assets/7decfc8c-abdc-45d1-88e8-9dd084c3c950" />
 <img width="20" height="20" alt="nkY3SDz" src="https://github.com/user-attachments/assets/cb1ac98a-5f85-4545-a4f3-232066ba9c8a" />
+<img width="20" height="20" alt="SPRqs6S" src="https://github.com/user-attachments/assets/25b24781-fdaf-4b91-954e-0737280c7f87" />
+<img width="20" height="20" alt="Z9d8sKa" src="https://github.com/user-attachments/assets/7f7c5b97-1323-4d05-8d01-20619ad63a25" />
+<img width="20" height="20" alt="hDSUD22" src="https://github.com/user-attachments/assets/09a9109e-5d25-468d-80e5-b92f46504bda" />
+<img width="20" height="20" alt="dvb8o4T" src="https://github.com/user-attachments/assets/361906d8-f5ff-48fe-90d9-ddf5ee4377ec" />
+<img width="20" height="20" alt="U0th1fw" src="https://github.com/user-attachments/assets/2150de01-c1e7-41e5-9f5d-270f0a9d490d" />
+<img width="20" height="20" alt="Kkw0ds3" src="https://github.com/user-attachments/assets/2d1f4a9e-9d52-4f03-ad1d-3e78528b078a" />
+<img width="20" height="20" alt="oVIYjDt" src="https://github.com/user-attachments/assets/026dce91-ad1f-42a4-9791-551134199489" />
+<img width="20" height="20" alt="EnEkqzW" src="https://github.com/user-attachments/assets/5d9e1525-04df-4ab5-9c97-74fcd74a2ef9" />
+<img width="20" height="20" alt="kMJykw4" src="https://github.com/user-attachments/assets/e5196049-8fa6-4e5e-8a77-1b6c80b4d9cf" />
+<img width="20" height="20" alt="OuPIPrV" src="https://github.com/user-attachments/assets/884801a6-523f-4ccf-8143-18f9393cd340" />
+<img width="20" height="20" alt="6i8fe2B" src="https://github.com/user-attachments/assets/481412ef-ea78-43b9-ae15-ae9613f01967" />
+<img width="20" height="20" alt="uCo3h7d" src="https://github.com/user-attachments/assets/f4604a4b-d62c-4756-a7ee-02c32ade276c" />
+<img width="20" height="20" alt="OX8FUyR" src="https://github.com/user-attachments/assets/bf551727-64bb-4614-8f15-70fbca0cc357" />
+<img width="20" height="20" alt="0YhsdFk" src="https://github.com/user-attachments/assets/aa39fcca-fd00-40f5-b2e4-0194dd379fcb" />
+<img width="20" height="20" alt="hNrYhGg" src="https://github.com/user-attachments/assets/ef3b8078-dd19-4915-93be-86b05bcff7c7" />
+<img width="20" height="20" alt="9hVBfRF" src="https://github.com/user-attachments/assets/9bab3843-0e27-45cc-9f5e-3e1b11664767" />
+<img width="20" height="20" alt="CiJ78SO" src="https://github.com/user-attachments/assets/1da7e593-0752-4b92-9419-2d842bd98054" />
+<img width="20" height="20" alt="OjXjLhQ" src="https://github.com/user-attachments/assets/c4db88d8-2de9-4701-9275-594145249469" />
 
 
 <br>
@@ -1348,7 +1380,8 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 <details>
 
-<summary><h2> <img width="20" height="20" alt="WHIvMyX" src="https://github.com/user-attachments/assets/894614e6-e354-417e-812f-6c86bb1317a1" /> Pixels <img width="20" height="20" alt="WHIvMyX" src="https://github.com/user-attachments/assets/894614e6-e354-417e-812f-6c86bb1317a1" /> </h2></summary>
+<summary><h2> <img width="20" height="20" alt="lAoHxfl" src="https://github.com/user-attachments/assets/58debf16-4d77-44b2-b3a6-d30d8b658831" />
+ Pixels <img width="20" height="20" alt="WHIvMyX" src="https://github.com/user-attachments/assets/894614e6-e354-417e-812f-6c86bb1317a1" /> </h2></summary>
 
 
 <br>
