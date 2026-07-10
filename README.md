@@ -30,7 +30,7 @@
 
 ╭────────────────────୨ৎ────────────────────╮
 
-## 💌 𝓒𝓸𝓶𝓮 𝓢𝓪𝔂 𝓗𝓲!
+## ─═✧✧═─ ℂ𝕠𝕞𝕖 𝕤𝕒𝕪 ℍ𝕚! ─═✧✧═─
 
 ╰────────────────────୨ৎ────────────────────╯
 
@@ -128,8 +128,6 @@ __φ(．．) a few little things about me~
 - I love making new friends, even though I'm shy at first.
 - I can talk about animation, horror, cartoons, character design, and my OCs for hours.
 - My favorite aesthetic is anything cute, spooky, nostalgic, colorful, or weird.
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
-
 
 ╭────────────────────୨ৎ────────────────────╮
 
@@ -423,7 +421,7 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 ╭──────────────────୨ৎ──────────────────╮
 
-# <img width="20" height="20" alt="OOt8AxD" src="https://github.com/user-attachments/assets/f04d6912-cc59-434c-8553-c2442dfcf526" /> 𝓐𝓵𝓵 𝓐𝓫𝓸𝓾𝓽 𝓜𝓮 <img width="20" height="20" alt="OOt8AxD" src="https://github.com/user-attachments/assets/f04d6912-cc59-434c-8553-c2442dfcf526" />
+# <img width="20" height="20" alt="gxooN7b" src="https://github.com/user-attachments/assets/68b04731-a577-48de-92e0-1e1cf2f2a27a" /> ⋆·˚˚°✦ 𝔸𝕃𝕃 𝔸𝔹𝕆𝕌𝕋 𝕄𝔼 ✦°˚˚·⋆ <img width="20" height="20" alt="gxooN7b" src="https://github.com/user-attachments/assets/68b04731-a577-48de-92e0-1e1cf2f2a27a" />
 
 ### ( ⸝⸝´꒳`⸝⸝)
 
@@ -433,9 +431,9 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 </div>
 
+<div align="center">
 
 
-# <img width="20" height="20" alt="gxooN7b" src="https://github.com/user-attachments/assets/68b04731-a577-48de-92e0-1e1cf2f2a27a" /> ⋆·˚˚°✦ 𝔸𝕃𝕃 𝔸𝔹𝕆𝕌𝕋 𝕄𝔼 ✦°˚˚·⋆ <img width="20" height="20" alt="gxooN7b" src="https://github.com/user-attachments/assets/68b04731-a577-48de-92e0-1e1cf2f2a27a" />
 </div>
 
 °˖✧◝(⁰▿⁰)◜✧˖°
@@ -445,7 +443,7 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 </div>
 
-## <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7"> Favorite Websites <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7">
+## <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7"> F̳a̳v̳o̳r̳i̳t̳e̳ W̳e̳b̳s̳i̳t̳e̳s̳ <img width="20" src="https://github.com/user-attachments/assets/dc7b796b-89d9-4a34-b857-8b6a3406bbb7">
 
  PonyTown • Art Fight • GitHub • Spotify • Pinterest • Twitter / X
 
@@ -1418,7 +1416,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 </div>
 
-<br>
 
 <br>
 
@@ -1429,7 +1426,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <details>
 
 <summary><h2> <img width="20" height="20" alt="619752689-5443fa5c-7182-4e9a-b9bc-c1fbe05a2301" src="https://github.com/user-attachments/assets/2038af03-0b4c-4c88-b2a2-5aaa7f65bc71" /> ℙ𝕚𝕩𝕖𝕝𝕤 <img width="20" height="20" alt="WHIvMyX" src="https://github.com/user-attachments/assets/894614e6-e354-417e-812f-6c86bb1317a1" /> </h2></summary>
-
 
 <br>
 
@@ -1626,10 +1622,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <br>
 
 </details>
-
-
-
-
 
 <br><br>
 
