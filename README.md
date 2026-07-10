@@ -1,5 +1,3 @@
-
-
 <div align="center">
   
 <br>
@@ -11,19 +9,28 @@
 <img width="235" height="42" alt="tumblr_inline_p9xjq0G61P1qid2nw_250" src="https://github.com/user-attachments/assets/c220efbc-9680-4992-b55b-1a42d1854f70" />
 
 
-## <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9"> Current Hyperfixations <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
 
- AHHH!! Real Monsters • 🦄 My Little Pony • watching animated shows/movies • 🎨 Drawing OCs • 🐴 PonyTown • 🎮 Roblox • ✨ Collecting GIFs, Blinkies & Stamps
+# <img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" /> 𝓗𝓮𝔂, 𝓘'𝓶 𝓢𝓷𝓮𝓮𝔃𝓮! <img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" />
 
-<br>
+૮ ˶ᵔ ᵕ ᵔ˶ ა
 
-<img src="https://github.com/user-attachments/assets/35508dce-4a8e-48e6-9278-68be4225d490" width="80">
+<a href="https://youtube.com/playlist?list=PLL0kUUHCSZA6VQjBcZ8TJ-tshEMyPsSt6&si=mheDu97ucl2WdxPQ">
+  <img
+    src="https://github.com/user-attachments/assets/41e56b15-a5fa-4451-b84f-6c93e0e4bd11"
+    width="95"
+    alt="YouTube Playlist"
+  >
+</a>
+
+### ₊˚⊹♡ Welcome to my little corner of the internet! ♡⊹˚₊
 
 <br><br>
-✦ ˢᵒᵐᵉ ᵖⁱᶜᵗᵘʳᵉˢ ᵃⁿᵈ ˡⁱⁿᵏˢ ᵃʳᵉ ⁱⁿᵗᵉʳᵃᶜᵗⁱᵛᵉ ;)
-<br>
 
+╭────────────────────୨ৎ────────────────────╮
 
+## 💌 𝓒𝓸𝓶𝓮 𝓢𝓪𝔂 𝓗𝓲!
+
+╰────────────────────୨ৎ────────────────────╯
 
 <a href="https://ko-fi.com/mynameissneeze" target="_blank">
   <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHJ3MG5rcTFrODhzdDBhNXEybDNqY2s3cmxwOTY0NXlpbHIyOXVtdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/9mNKXFygkCeOWekWew/giphy.gif" width="120" alt="Support me on Ko-fi">
@@ -40,75 +47,119 @@
 </a>
 
 <br>
-╭──────────────────────୨ৎ──────────────────────╮
 
-### ✦ Scroll down to explore my GIF & Blinkie Collection! ✦
+<img width="200" height="100" alt="discord" src="https://github.com/user-attachments/assets/03eac6a4-716e-4426-82ae-e2e1b0b6ffb8" />
 
-╰──────────────────────୨ৎ──────────────────────╯
 
-<img src="https://github.com/user-attachments/assets/b6f95b16-55e4-43c7-acf0-b9458d726a3b" width="170">
+🎮 **Discord:** `SneezeIsHere` ヾ(・ω・)メ(・ω・)ノ
+
 <br>
-<img width="99" height="55" alt="d430em9-2809adc4-3268-4d28-be2d-5f9a4764eb25" src="https://github.com/user-attachments/assets/6edcaafb-92a3-4c1a-825f-e7770d56f3e5" />
 
 <br><br>
 
-⋆｡˚ ☁︎ ˚｡⋆
+╭───────────────୨ৎ───────────────╮
 
-## <img width="23" height="23" alt="tumblr_04288e072cc34d881f904cdd752a198c_1bc43b0d_75" src="https://github.com/user-attachments/assets/571eb083-9118-46ec-991b-33bf09c2ffc8" /> ARTFIGHT <img width="23" height="23" alt="tumblr_04288e072cc34d881f904cdd752a198c_1bc43b0d_75" src="https://github.com/user-attachments/assets/571eb083-9118-46ec-991b-33bf09c2ffc8" />
+### <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" /> A little about me <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" />
+
+╰───────────────୨ৎ───────────────╯
+
+💜 **25** • 💍 **Taken** • 🌸 **She / Her** • ✨ **They / Them**
+
+<img width="20" height="20" alt="FTwwRc8" src="https://github.com/user-attachments/assets/f3b754f3-470d-4294-bd8b-46157a339d1e" /> **Digital Artist** • **Character Creator** • **Cartoon Lover** <img width="20" height="20" alt="FTwwRc8" src="https://github.com/user-attachments/assets/f3b754f3-470d-4294-bd8b-46157a339d1e" />
 
 
-<a href="https://artfight.net/~MyNameIsSneeze">
-https://artfight.net/~MyNameIsSneeze
+<br>
+
+🎨 **Commissions:** **OPEN**
+
+📱 **DMs:** **ALWAYS OPEN**
+
+<img width="20" height="20" alt="HetNHZ2" src="https://github.com/user-attachments/assets/37737f3a-0c87-41c3-bc4c-cfe14e5b0ba0" /> You'll usually find me as **MyNameIsSneeze** on just about every platform!
+
+<img width="20" height="20" alt="82EiYBS" src="https://github.com/user-attachments/assets/78b4bba1-f74c-4b03-8337-c6a76795048b" /> I'm a little shy at first, but once I get comfortable I love chatting and making new friends. (｡•̀ᴗ-)✧ <img width="20" height="20" alt="82EiYBS" src="https://github.com/user-attachments/assets/a8fcc6af-2833-4eee-baf5-ee04d68225c2" />
+
+
+<img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/4b359526-db37-4d9b-ac06-b4713abd32b2" /> I absolutely love introducing people to new movies, animation, anime, indie cartoons, and horror films! <img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/53002b65-6e14-48e4-8987-dd1e2ba7a601" />
+
+<br><br>
+
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+
+╭───────────────୨ৎ───────────────╮
+
+## <img width="20" height="20" alt="goiBexo" src="https://github.com/user-attachments/assets/72998456-3a39-402b-afb6-77de1dbc6610" /> Fun Facts <img width="20" height="20" alt="goiBexo" src="https://github.com/user-attachments/assets/72998456-3a39-402b-afb6-77de1dbc6610" />
+
+╰───────────────୨ৎ───────────────╯
+
+__φ(．．) a few little things about me~
+
+- I draw almost exclusively with my finger.
+- I'm completely self-taught.
+- I love creating original characters and writing lore for them.
+- I make way too many OCs.
+- I absolutely love cartoons, animation, anime, and indie shows.
+- Character design is my favorite thing to draw.
+- Mushrooms instantly make anything cooler.
+- Rabbits are my favorite animal.
+- Purple is one of my favorite colors.
+- I collect GIFs, blinkies, stamps, pixels, and old web graphics.
+- I spend way too much time decorating my profiles.
+- Most of my OCs have way too much lore.
+- You'll usually find me playing PonyTown, Roblox, or Stardew Valley.
+- I'm usually drinking iced coffee, tea, or a Red Bull while drawing.
+- I almost always have music playing while I draw.
+- I love discovering obscure cartoons, horror movies, and indie games.
+- My favorite part of making OCs is giving them detailed backstories.
+- I enjoy making cozy little corners of the internet that feel like old-school personal websites.
+- I love making new friends, even though I'm shy at first.
+- I can talk about animation, horror, cartoons, character design, and my OCs for hours.
+- My favorite aesthetic is anything cute, spooky, nostalgic, colorful, or weird.
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+
+
+╭────────────────────୨ৎ────────────────────╮
+
+# <img width="20" height="20" alt="qLEXRs3" src="https://github.com/user-attachments/assets/37462ee6-9a09-483e-b1a2-49d61fbef091" /> Besties! <img width="20" height="20" alt="qLEXRs3" src="https://github.com/user-attachments/assets/32710793-bd00-4ea8-986d-54bfeb842ff7" />
+
+ヽ( ⌒o⌒)人(⌒-⌒ )ﾉ
+
+<p align="center">
+
+<a href="https://bsky.app/profile/sunnyduckling.bsky.social" target="_blank">
+  <img src="https://github.com/user-attachments/assets/435ae51e-2832-4b18-9b9d-b4d9deb7fa4e" width="120" alt="Sunny Duckling">
 </a>
 
-<br>
-
-<img width="73" height="32" alt="stamp_fossils" src="https://github.com/user-attachments/assets/d0be86a9-9326-46f8-8fbd-2773c4d5b095" />
-<img width="73" height="32" alt="stamp_comedy" src="https://github.com/user-attachments/assets/60671502-3b43-49b0-bc6c-32f191060e93" />
-
-
-<br><br>
-
-<img src="https://github.com/user-attachments/assets/b23ebfaf-241c-4afc-a3d7-d75589494d5c" width="260">
-
-<br><br>
-
-
-
-<br><br>
-
-
-<br><br>
-
-<img src="https://github.com/user-attachments/assets/c7f2ed9b-67e0-44a7-bb1a-b8208245ca7a" width="170">
-
-<img src="https://github.com/user-attachments/assets/19790c59-202e-49d9-86a7-5fd0610b7046" width="430">
-
-<img src="https://github.com/user-attachments/assets/48a9e2bd-55bf-4629-b2f7-36356b3df9a2" width="170">
-<br>
-
-<img src="https://github.com/user-attachments/assets/e1171ea3-ee29-4cc8-9a8d-4c3688b7d51e" width="150">
-<img src="https://github.com/user-attachments/assets/fe562e8c-776a-4bed-94ab-ac36bcc3c4d6" width="150">
-
-<img src="https://github.com/user-attachments/assets/1d8af808-d7d3-46f9-9025-589b89d28dec" width="150">
-<br><br>
-
-⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
-
-# <img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" /> 𝓗𝓮𝔂, 𝓘'𝓶 𝓢𝓷𝓮𝓮𝔃𝓮! <img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" />
-
-૮ ˶ᵔ ᵕ ᵔ˶ ა
-
-<a href="https://youtube.com/playlist?list=PLL0kUUHCSZA6VQjBcZ8TJ-tshEMyPsSt6&si=mheDu97ucl2WdxPQ">
-  <img
-    src="https://github.com/user-attachments/assets/41e56b15-a5fa-4451-b84f-6c93e0e4bd11"
-    width="95"
-    alt="YouTube Playlist"
-  >
+<a href="https://thispersondoesnotexist.com" target="_blank">
+  <img src="https://github.com/user-attachments/assets/fb462c08-ee24-4259-b2f5-f2a8a4ea2ca5" width="120" alt="Friend 2">
 </a>
 
-### ₊˚⊹♡ Welcome to my little corner of the internet! ♡⊹˚₊
+<a href="https://thispersondoesnotexist.com" target="_blank">
+  <img src="https://github.com/user-attachments/assets/deace759-7745-498d-b383-0d73b8d37a85" width="120" alt="Friend 3">
+</a>
 
+</p>
+
+╰────────────────────୨ৎ────────────────────╯
+
+<br>
+
+╭────────────────────୨ৎ────────────────────╮
+
+# <img width="20" height="20" alt="KuazRCf" src="https://github.com/user-attachments/assets/2916b535-925c-486d-a03d-b7b5e78d8c30" /> 𝓛𝓮𝓽'𝓼 𝓑𝓮 𝓕𝓻𝓲𝓮𝓷𝓭𝓼! <img width="20" height="20" alt="KuazRCf" src="https://github.com/user-attachments/assets/2916b535-925c-486d-a03d-b7b5e78d8c30" />
+
+(っ˘▽˘)(˘▽˘)˘▽˘ς)
+
+╰────────────────────୨ৎ────────────────────╯
+
+<img src="https://github.com/user-attachments/assets/f81531f2-5136-40ea-8c36-dd7dfc01e797" width="145">
+
+<img src="https://github.com/user-attachments/assets/73e9e35a-6b2d-413a-a62c-648125d438c2" width="32">
+
+<img src="https://github.com/user-attachments/assets/1406a629-0d90-4545-bf28-2239e2729b29" width="145">
+
+<br><br>
+
+<br><br>
 
 <div align="center">
 
@@ -184,13 +235,85 @@ https://artfight.net/~MyNameIsSneeze
 
 <br><br>
 
-╭───────────────୨ৎ───────────────╮
-
-💜 **25** • 💍 **Taken** • 🌸 **She / Her** • ✨ **They / Them**
-
-╰───────────────୨ৎ───────────────╯
-
 </div>
+
+
+
+
+
+## <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9"> Current Hyperfixations <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
+
+ AHHH!! Real Monsters • 🦄 My Little Pony • watching animated shows/movies • 🎨 Drawing OCs • 🐴 PonyTown • 🎮 Roblox • ✨ Collecting GIFs, Blinkies & Stamps
+
+<br>
+
+<img src="https://github.com/user-attachments/assets/35508dce-4a8e-48e6-9278-68be4225d490" width="80">
+
+<br><br>
+✦ ˢᵒᵐᵉ ᵖⁱᶜᵗᵘʳᵉˢ ᵃⁿᵈ ˡⁱⁿᵏˢ ᵃʳᵉ ⁱⁿᵗᵉʳᵃᶜᵗⁱᵛᵉ ;)
+<br>
+
+
+
+
+<br>
+╭──────────────────────୨ৎ──────────────────────╮
+
+### ✦ Scroll down to explore my GIF & Blinkie Collection! ✦
+
+╰──────────────────────୨ৎ──────────────────────╯
+
+<img src="https://github.com/user-attachments/assets/b6f95b16-55e4-43c7-acf0-b9458d726a3b" width="170">
+<br>
+<img width="99" height="55" alt="d430em9-2809adc4-3268-4d28-be2d-5f9a4764eb25" src="https://github.com/user-attachments/assets/6edcaafb-92a3-4c1a-825f-e7770d56f3e5" />
+
+<br><br>
+
+⋆｡˚ ☁︎ ˚｡⋆
+
+## <img width="23" height="23" alt="tumblr_04288e072cc34d881f904cdd752a198c_1bc43b0d_75" src="https://github.com/user-attachments/assets/571eb083-9118-46ec-991b-33bf09c2ffc8" /> ARTFIGHT <img width="23" height="23" alt="tumblr_04288e072cc34d881f904cdd752a198c_1bc43b0d_75" src="https://github.com/user-attachments/assets/571eb083-9118-46ec-991b-33bf09c2ffc8" />
+
+
+<a href="https://artfight.net/~MyNameIsSneeze">
+https://artfight.net/~MyNameIsSneeze
+</a>
+
+<br>
+
+<img width="73" height="32" alt="stamp_fossils" src="https://github.com/user-attachments/assets/d0be86a9-9326-46f8-8fbd-2773c4d5b095" />
+<img width="73" height="32" alt="stamp_comedy" src="https://github.com/user-attachments/assets/60671502-3b43-49b0-bc6c-32f191060e93" />
+
+
+<br><br>
+
+<img src="https://github.com/user-attachments/assets/b23ebfaf-241c-4afc-a3d7-d75589494d5c" width="260">
+
+<br><br>
+
+
+
+<br><br>
+
+
+<br><br>
+
+<img src="https://github.com/user-attachments/assets/c7f2ed9b-67e0-44a7-bb1a-b8208245ca7a" width="170">
+
+<img src="https://github.com/user-attachments/assets/19790c59-202e-49d9-86a7-5fd0610b7046" width="430">
+
+<img src="https://github.com/user-attachments/assets/48a9e2bd-55bf-4629-b2f7-36356b3df9a2" width="170">
+<br>
+
+<img src="https://github.com/user-attachments/assets/e1171ea3-ee29-4cc8-9a8d-4c3688b7d51e" width="150">
+<img src="https://github.com/user-attachments/assets/fe562e8c-776a-4bed-94ab-ac36bcc3c4d6" width="150">
+
+<img src="https://github.com/user-attachments/assets/1d8af808-d7d3-46f9-9025-589b89d28dec" width="150">
+<br><br>
+
+⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
+
+
+
 <div align="center">
 
 <img src="https://github.com/user-attachments/assets/ec4d7e41-34c3-4484-b72c-9e80a2af3728">
@@ -215,78 +338,8 @@ https://artfight.net/~MyNameIsSneeze
 
 <br><br>
 
-╭────────────────────୨ৎ────────────────────╮
-
-# <img width="20" height="20" alt="qLEXRs3" src="https://github.com/user-attachments/assets/37462ee6-9a09-483e-b1a2-49d61fbef091" /> Besties! <img width="20" height="20" alt="qLEXRs3" src="https://github.com/user-attachments/assets/32710793-bd00-4ea8-986d-54bfeb842ff7" />
 
 
-<p align="center">
-
-<a href="https://bsky.app/profile/sunnyduckling.bsky.social" target="_blank">
-  <img src="https://github.com/user-attachments/assets/435ae51e-2832-4b18-9b9d-b4d9deb7fa4e" width="120" alt="Sunny Duckling">
-</a>
-
-<a href="https://thispersondoesnotexist.com" target="_blank">
-  <img src="https://github.com/user-attachments/assets/fb462c08-ee24-4259-b2f5-f2a8a4ea2ca5" width="120" alt="Friend 2">
-</a>
-
-<a href="https://thispersondoesnotexist.com" target="_blank">
-  <img src="https://github.com/user-attachments/assets/deace759-7745-498d-b383-0d73b8d37a85" width="120" alt="Friend 3">
-</a>
-
-</p>
-
-╰────────────────────୨ৎ────────────────────╯
-
-<br>
-
-╭───────────────୨ৎ───────────────╮
-
-### <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" /> A little about me <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" />
-
-
-╰───────────────୨ৎ───────────────╯
-
-<img width="20" height="20" alt="FTwwRc8" src="https://github.com/user-attachments/assets/f3b754f3-470d-4294-bd8b-46157a339d1e" /> **Digital Artist** • **Character Creator** • **Cartoon Lover** <img width="20" height="20" alt="FTwwRc8" src="https://github.com/user-attachments/assets/f3b754f3-470d-4294-bd8b-46157a339d1e" />
-
-
-<br>
-
-🎨 **Commissions:** **OPEN**
-
-📱 **DMs:** **ALWAYS OPEN**
-
-<img width="20" height="20" alt="HetNHZ2" src="https://github.com/user-attachments/assets/37737f3a-0c87-41c3-bc4c-cfe14e5b0ba0" /> You'll usually find me as **MyNameIsSneeze** on just about every platform!
-
-<img width="20" height="20" alt="82EiYBS" src="https://github.com/user-attachments/assets/78b4bba1-f74c-4b03-8337-c6a76795048b" /> I'm a little shy at first, but once I get comfortable I love chatting and making new friends. <img width="20" height="20" alt="82EiYBS" src="https://github.com/user-attachments/assets/a8fcc6af-2833-4eee-baf5-ee04d68225c2" />
-
-
-<img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/4b359526-db37-4d9b-ac06-b4713abd32b2" /> I absolutely love introducing people to new movies, animation, anime, indie cartoons, and horror films! <img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/53002b65-6e14-48e4-8987-dd1e2ba7a601" />
-
-
-<br>
-
-<img src="https://github.com/user-attachments/assets/5caeecd5-a09e-4c16-b98f-58bd1c6c4594">
-
-<img src="https://github.com/user-attachments/assets/0876c57c-a311-4d4c-ad0b-fc7451c3e511">
-
-<img src="https://github.com/user-attachments/assets/17a822bb-d11e-4eb6-bc1a-6ffcc7684b8c">
-
-<br><br>
-
-╭────────────────────୨ৎ────────────────────╮
-
-# <img width="20" height="20" alt="KuazRCf" src="https://github.com/user-attachments/assets/2916b535-925c-486d-a03d-b7b5e78d8c30" /> 𝓛𝓮𝓽'𝓼 𝓑𝓮 𝓕𝓻𝓲𝓮𝓷𝓭𝓼! <img width="20" height="20" alt="KuazRCf" src="https://github.com/user-attachments/assets/2916b535-925c-486d-a03d-b7b5e78d8c30" />
-
-╰────────────────────୨ৎ────────────────────╯
-
-<img src="https://github.com/user-attachments/assets/f81531f2-5136-40ea-8c36-dd7dfc01e797" width="145">
-
-<img src="https://github.com/user-attachments/assets/73e9e35a-6b2d-413a-a62c-648125d438c2" width="32">
-
-<img src="https://github.com/user-attachments/assets/1406a629-0d90-4545-bf28-2239e2729b29" width="145">
-
-<br><br>
 
 <div align="center">
 
@@ -301,18 +354,6 @@ https://artfight.net/~MyNameIsSneeze
 
 <br><br>
 
-╭────────────────────୨ৎ────────────────────╮
-
-## 💌 𝓒𝓸𝓶𝓮 𝓢𝓪𝔂 𝓗𝓲!
-
-╰────────────────────୨ৎ────────────────────╯
-
-<img width="200" height="100" alt="discord" src="https://github.com/user-attachments/assets/03eac6a4-716e-4426-82ae-e2e1b0b6ffb8" />
-
-
-🎮 **Discord:** `SneezeIsHere`
-
-<br>
 
 ### <img width="20" height="20" alt="atXYx5i" src="https://github.com/user-attachments/assets/a81c77a8-4def-496f-a5fd-4d9dd20ed37a" /> I love talking about... 
 
@@ -409,6 +450,8 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 # <img width="20" height="20" alt="gxooN7b" src="https://github.com/user-attachments/assets/68b04731-a577-48de-92e0-1e1cf2f2a27a" /> ALL ABOUT ME <img width="20" height="20" alt="gxooN7b" src="https://github.com/user-attachments/assets/68b04731-a577-48de-92e0-1e1cf2f2a27a" />
 
+°˖✧◝(⁰▿⁰)◜✧˖°
+
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
@@ -444,101 +487,101 @@ Minecraft • PonyTown • Cookie Run: Kingdom • Cult of the Lamb • Dead by 
 
 Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries) • Pancakes • Buldak Ramen • Arizona Tea (Herbal Tonic, Green Tea, Half & Half) • Muffins • Matcha • French Toast • Aussie Lemonade • Donuts • Iced Coffee • Tea • Lemon & Lime • Boba Tea
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="dczKhZp" src="https://github.com/user-attachments/assets/568cb315-2955-402a-b690-7f89ffdac670" /> Favorite Music / Artists <img width="20" height="20" alt="fd7315976043ca778ce3bbdc8495c6a6" src="https://github.com/user-attachments/assets/78def731-dfb5-423e-9ca5-7e4803afe81a" />
 
  Gorillaz • Studio Killers • Caravan Palace • Jack Stauber • Tom Cardy • Jakey • Glaze • The Living Tombstone • Femtanyl • Rare Americans • Sia • girl in red • Vocaloid • Daughter • Mindless Self Indulgence
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="XxPT3NS" src="https://github.com/user-attachments/assets/de95d95c-23cd-4281-b455-f44f71f81b90" /> Favorite Artists <img width="20" height="20" alt="XxPT3NS" src="https://github.com/user-attachments/assets/de95d95c-23cd-4281-b455-f44f71f81b90" />
 
 
  Zalinki • Lisa Frank • Zach Hadel • Chris O'Neill • Amy Brown
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="Xq773u8" src="https://github.com/user-attachments/assets/10911601-0ddb-4983-bdf6-840da8f3038d" /> Favorite Books / Comics <img width="20" height="20" alt="Xq773u8" src="https://github.com/user-attachments/assets/3c029e9b-2c00-4011-b939-ccb1f4c5166e" />
 
 
 Life Is Strange • Scott Pilgrim
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="smoACtO" src="https://github.com/user-attachments/assets/ce4a3c9f-42e4-4c18-9b46-8ae8d715979a" /> Favorite Brands / Companies <img width="20" height="20" alt="92K393h" src="https://github.com/user-attachments/assets/5bf1caeb-dd45-44bd-8220-cdb7d5306274" />
 
 
  Sanrio • Squishmallows • Arizona Tea • Starbucks • Sugarbunnies
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="C8KLG7j" src="https://github.com/user-attachments/assets/e7b7fae6-70a3-4c76-b4e1-044685c3efa8" /> Favorite Smells <img width="20" height="20" alt="C8KLG7j" src="https://github.com/user-attachments/assets/e7b7fae6-70a3-4c76-b4e1-044685c3efa8" />
 
  Wild Spirit Driftwood Perfume • Chlorine (Pools) • Smoke / Fire
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="dQ2uW83" src="https://github.com/user-attachments/assets/8397b744-cd31-4cc1-8a24-738b36e3fe8e" /> Favorite Animals & Creatures <img width="20" height="20" alt="dQ2uW83" src="https://github.com/user-attachments/assets/255ef8ff-addd-426a-bc39-4928f8e6a2b5" />
 
 
  Rabbits • Bunnies • Hares • Deer • Pigs • Opossums • Possums • Hermit Crabs • Jackalopes • Mothman • Forest Spirits • Fairies • Yokai • Ghosts • Will-o'-Wisps • Mushroom People • Cryptids
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="993d5eb49fb656140fb64c3d6a9519f6" src="https://github.com/user-attachments/assets/9f207bdf-9da4-4e8f-a89d-d32d246290a2" /> Favorite Bugs <img width="20" height="20" alt="scAkmBL" src="https://github.com/user-attachments/assets/8382f46a-c63e-4720-bb4a-9abec55650bd" />
 
 
  Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Empusidae Mantises • Hymenopodidae Mantises • Jumping Spiders • Snails • Slugs • Dragon Flys • Fireflies 
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="XwWMZDw" src="https://github.com/user-attachments/assets/fa0d6f16-b475-4a3f-9acb-61a02e1f228f" /> Favorite Pokémon <img width="20" height="20" alt="XwWMZDw" src="https://github.com/user-attachments/assets/fa0d6f16-b475-4a3f-9acb-61a02e1f228f" />
 
  Snorlax • Hypno • Ditto • Miltank • Piplup • Buneary • Sawsbuck • Espurr • Mimikyu • Alcremie • Maushold • Oinkologne • Scream Tail
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="64JT5ug" src="https://github.com/user-attachments/assets/a24a8690-8412-4f8f-ae6f-7eb3cf558770" /> Favorite Idol <img width="20" height="20" alt="64JT5ug" src="https://github.com/user-attachments/assets/fda4fda0-95ce-450a-b2ec-11a8de337313" />
 
 
  Jungkook
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ##  <img width="20" height="20" alt="6ZoyoRx" src="https://github.com/user-attachments/assets/f3e52803-d726-4d12-bf4f-57b3d16eeaff" /> Favorite Roblox Creators <img width="20" height="20" alt="6ZoyoRx" src="https://github.com/user-attachments/assets/f3e52803-d726-4d12-bf4f-57b3d16eeaff" />
 
 
  Starbby • Luminfur
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="KwX2CTv" src="https://github.com/user-attachments/assets/e94e4196-0bea-4e0a-8362-faf8f98601b7" /> Favorite Websites <img width="20" height="20" alt="KwX2CTv" src="https://github.com/user-attachments/assets/e94e4196-0bea-4e0a-8362-faf8f98601b7" />
 
 
 PonyTown • Art Fight • Twitter/X • GitHub • Spotify • Pinterest
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="5oBV0ok" src="https://github.com/user-attachments/assets/4813455c-38be-43f7-8a0a-7ad24ff27f3d" /> Favorite Aesthetics <img width="20" height="20" alt="1p7QTmr" src="https://github.com/user-attachments/assets/031373e4-2cf6-43c0-987d-362de158bafa" />
 
 
  Harajuku • Frutiger Aero • Dreamcore • Webcore • Weirdcore • Kidcore • Pastelcore
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="nOG2m2x" src="https://github.com/user-attachments/assets/3c91603e-59ad-4009-8938-b9b57a81ff7b" /> Favorite Colors <img width="20" height="20" alt="nOG2m2x" src="https://github.com/user-attachments/assets/3c91603e-59ad-4009-8938-b9b57a81ff7b" />
 
  Sage Green • Moss Green • Forest Green • Cream • Brown • Dusty Pink • Lavender • Electric Purple • Electric Blue • Pink • Burgundy • Mustard Yellow • Midnight Blue
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="S89ceBR" src="https://github.com/user-attachments/assets/c2118473-3784-485f-9c68-063e7d0e1ebe" /> Phobias <img width="20" height="20" alt="S89ceBR" src="https://github.com/user-attachments/assets/826a0c8d-bd1c-41b3-a272-b5e1285f5c0e" />
 
 
  Thalassophobia • Trypophobia • Acrophobia • Scopophobia • Megalophobia • astraphobia
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ##  <img width="20" height="20" alt="7c4561648bcd6b96259a1f70a5c1c257" src="https://github.com/user-attachments/assets/7d0be0aa-e534-4145-855e-298a8d16404f" /> Favorite Weather & Seasons <img width="20" height="20" alt="3cf59f4283a82799611f30b2e42e56c3" src="https://github.com/user-attachments/assets/f678771a-ab03-4352-bbae-90525ca74e2f" />
 
@@ -547,26 +590,26 @@ PonyTown • Art Fight • Twitter/X • GitHub • Spotify • Pinterest
 
 <img width="23" height="23" alt="tumblr_b2dff9a9cea293aacc112679750756a4_03c503b7_75" src="https://github.com/user-attachments/assets/4ecd218f-31d1-4b97-bf18-1d7b81375618" /> Seasons: Autumn • Spring
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="3GMCYqS" src="https://github.com/user-attachments/assets/aa9abf99-dc31-4f22-b00d-131ef85936f4" /> Favorite Holidays <img width="20" height="20" alt="QcADzr3" src="https://github.com/user-attachments/assets/cbb63a33-21d9-431d-abbe-4e2e1dce1eee" />
 
 
 Halloween • Christmas • Valentine's Day • April Fool's Day
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="D0YJB9M" src="https://github.com/user-attachments/assets/0d31c5a4-97b7-4b80-9132-0cfb07388ab2" /> Favorite YouTubers <img width="20" height="20" alt="D0YJB9M" src="https://github.com/user-attachments/assets/0d31c5a4-97b7-4b80-9132-0cfb07388ab2" /> 
 
 Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh • penguinz0 • antimattermorty
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## <img width="20" height="20" alt="mPhaeJl" src="https://github.com/user-attachments/assets/1a3e0970-3149-4837-945b-bb7084ccdd8e" /> Favorite Animal Crossing Villager <img width="20" height="20" alt="mPhaeJl" src="https://github.com/user-attachments/assets/1a3e0970-3149-4837-945b-bb7084ccdd8e" /> 
 
  Pierce
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ## ☕ Starbucks Orders ☕
 
@@ -578,33 +621,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="20" height="20" alt="phL5n3y" src="https://github.com/user-attachments/assets/708996c5-97a8-4176-b82e-0daee517906a" /> **Passion Iced Tea Lemonade**
 - No Ice
 - Extra Lemon
-
----
-
-## <img width="20" height="20" alt="goiBexo" src="https://github.com/user-attachments/assets/72998456-3a39-402b-afb6-77de1dbc6610" /> Fun Facts <img width="20" height="20" alt="goiBexo" src="https://github.com/user-attachments/assets/72998456-3a39-402b-afb6-77de1dbc6610" />
-
-- I draw almost exclusively with my finger.
-- I'm completely self-taught.
-- I love creating original characters and writing lore for them.
-- I make way too many OCs.
-- I absolutely love cartoons, animation, anime, and indie shows.
-- Character design is my favorite thing to draw.
-- Mushrooms instantly make anything cooler.
-- Rabbits are my favorite animal.
-- Purple is one of my favorite colors.
-- I collect GIFs, blinkies, stamps, pixels, and old web graphics.
-- I spend way too much time decorating my profiles.
-- Most of my OCs have way too much lore.
-- You'll usually find me playing PonyTown, Roblox, or Stardew Valley.
-- I'm usually drinking iced coffee, tea, or a Red Bull while drawing.
-- I almost always have music playing while I draw.
-- I love discovering obscure cartoons, horror movies, and indie games.
-- My favorite part of making OCs is giving them detailed backstories.
-- I enjoy making cozy little corners of the internet that feel like old-school personal websites.
-- I love making new friends, even though I'm shy at first.
-- I can talk about animation, horror, cartoons, character design, and my OCs for hours.
-- My favorite aesthetic is anything cute, spooky, nostalgic, colorful, or weird.
----
 
 
 <div align="center">
@@ -622,7 +638,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 ₊˚⊹♡ Click a section below to browse my collection! ♡⊹˚₊
 </div>
 
----
+﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 <details>
 <summary>
@@ -1075,8 +1091,8 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 </div>
 
-<img width="50" height="50" alt="miemiechan-unicorn" src="https://github.com/user-attachments/assets/0afc2111-0afb-4fb4-bc9d-24bcbdb875b5" />
-<img width="60" height="60" alt="kawaiiness_kawaii46060" src="https://github.com/user-attachments/assets/6e9e6d44-74e6-4a4e-970e-1e79130bd155" />
+<img width="55" height="55" alt="miemiechan-unicorn" src="https://github.com/user-attachments/assets/0afc2111-0afb-4fb4-bc9d-24bcbdb875b5" />
+<img width="55" height="55" alt="kawaiiness_kawaii46060" src="https://github.com/user-attachments/assets/6e9e6d44-74e6-4a4e-970e-1e79130bd155" />
 
 <br>
 
@@ -1351,8 +1367,50 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 </tr>
 
 <tr>
-<td colspan="3" align="center">
+<td align="center">
 <img src="https://github.com/user-attachments/assets/384a8d8b-8d27-490b-8b15-9d7843139f70" width="180">
+</td>
+
+<td align="center">
+<img width="180" alt="weirdcore-cat" src="https://github.com/user-attachments/assets/d9a60973-b482-41f8-8e09-4c780f3ca83f" />
+</td>
+
+<td align="center">
+<img width="180" alt="nightmare-hello" src="https://github.com/user-attachments/assets/bee77383-3bb5-4db4-a8d9-0b9e0c6ff194" />
+</td>
+</tr>
+
+<tr>
+<td align="center">
+<img width="180" alt="cool-garden" src="https://github.com/user-attachments/assets/e2f83700-144e-47e0-b4cc-a9bb81c23929" />
+</td>
+
+<td align="center">
+<img width="180" alt="weirdcore" src="https://github.com/user-attachments/assets/4faeac83-caf7-4b9d-bfdf-cd17cddd837a" />
+</td>
+
+<td align="center">
+<img width="180" alt="cellybelly-dreamcore" src="https://github.com/user-attachments/assets/d801240c-6720-4e99-8688-3aaff7194121" />
+</td>
+</tr>
+
+<tr>
+<td align="center">
+<img width="180" alt="gog-alien" src="https://github.com/user-attachments/assets/b1646d29-d1ed-48a6-89b2-d4526426233c" />
+</td>
+
+<td align="center">
+<img width="180" alt="yummy" src="https://github.com/user-attachments/assets/c4621920-08c3-49da-911d-5a33ed0ea234" />
+</td>
+
+<td align="center">
+<img width="180" alt="weirdcore-derealization" src="https://github.com/user-attachments/assets/71979b15-6f01-4c01-a194-d87fd788ff65" />
+</td>
+</tr>
+
+<tr>
+<td colspan="3" align="center">
+<img width="180" alt="minecraft-discord" src="https://github.com/user-attachments/assets/ac297863-2db6-4452-bc8c-86ef99733b58" />
 </td>
 </tr>
 
@@ -1570,12 +1628,17 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 </details>
 
 
+
+
+
 <br><br>
 
 
 <div align="center">
 
 <img src="https://github.com/user-attachments/assets/fc7744df-963c-4e5a-ad79-63fac5df47db" width="540">
+
+thanks for stopping by! ( ´ ▽ ` )ノ
 
 </div>
 
