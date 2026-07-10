@@ -81,6 +81,15 @@
 
 <img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/4b359526-db37-4d9b-ac06-b4713abd32b2" /> I absolutely love introducing people to new movies, animation, anime, indie cartoons, and horror films! <img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/53002b65-6e14-48e4-8987-dd1e2ba7a601" />
 
+
+<br>
+
+<img src="https://github.com/user-attachments/assets/5caeecd5-a09e-4c16-b98f-58bd1c6c4594">
+
+<img src="https://github.com/user-attachments/assets/0876c57c-a311-4d4c-ad0b-fc7451c3e511">
+
+<img src="https://github.com/user-attachments/assets/17a822bb-d11e-4eb6-bc1a-6ffcc7684b8c">
+
 <br><br>
 
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
