@@ -40,12 +40,11 @@
 
 <br>
 
-<a href="https://mynameissneeze.straw.page">
+<a href="https://mynameissneeze.straw.page" target="_blank">
   <img
     src="https://github.com/user-attachments/assets/6630cde2-a56e-4c48-b0c5-b787e1e3f230"
     width="150"
-    alt="Visit my Strawpage"
-  >
+    alt="Visit my Strawpage">
 </a>
 
 <br>
@@ -645,17 +644,18 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 <img width="350" height="20" alt="divider" src="https://github.com/user-attachments/assets/472b02d2-24be-424d-a0fd-dd6a8d6dd669" />
 
-### ┗━━━━━━⊱ ✦ 𝑩𝒍𝒊𝒏𝒌𝒊𝒆𝒔 • 𝑷𝒊𝒙𝒆𝒍𝒔 • 𝑺𝒕𝒂𝒎𝒑𝒔 • 𝑭𝒖𝒏𝒏𝒚 𝑮𝑰𝑭𝒔 • 𝑯𝒚𝒑𝒆𝒓𝒇𝒊𝒙𝒂𝒕𝒊𝒐𝒏𝒔 ✦ ⊰━━━━━━┛
+### ┗━━⊱ ✦ 𝑩𝒍𝒊𝒏𝒌𝒊𝒆𝒔 • 𝑷𝒊𝒙𝒆𝒍𝒔 • 𝑺𝒕𝒂𝒎𝒑𝒔 • 𝑭𝒖𝒏𝒏𝒚 𝑮𝑰𝑭𝒔 • 𝑯𝒚𝒑𝒆𝒓𝒇𝒊𝒙𝒂𝒕𝒊𝒐𝒏𝒔 ✦ ⊰━━┛
 
 ₊˚⊹♡ Click a section below to browse my collection! ♡⊹˚₊
 </div>
 
+<div align="center">
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 <details>
 <summary>
 
-## <img width="20" src="https://github.com/user-attachments/assets/195b1d55-808b-4f8c-a18e-d8d9b180aa76"> 𝔽𝕒𝕧𝕚𝕔𝕠𝕟𝕤/𝔼𝕞𝕠𝕛𝕚𝕤 <img width="20" src="https://github.com/user-attachments/assets/f250aca4-64d4-42b6-ba09-55236dc542a0">
+  ## <img width="20" src="https://github.com/user-attachments/assets/195b1d55-808b-4f8c-a18e-d8d9b180aa76"> 𝔽𝕒𝕧𝕚𝕔𝕠𝕟𝕤/𝔼𝕞𝕠𝕛𝕚𝕤 <img width="20" src="https://github.com/user-attachments/assets/f250aca4-64d4-42b6-ba09-55236dc542a0">
 
 </summary>
 
@@ -830,7 +830,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="20" height="20" alt="RoZTugo" src="https://github.com/user-attachments/assets/87e34fa4-2fd4-4cff-bb6b-371f114ab5df" />
 
 </details>
-
+<div align="center">
 <details>
 <summary>
 
