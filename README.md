@@ -10,7 +10,9 @@
 
 
 
-# <img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" /> 𝓗𝓮𝔂, 𝓘'𝓶 𝓢𝓷𝓮𝓮𝔃𝓮! <img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" />
+# <img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" /> 
+𝓗𝓮𝔂, 𝓘'𝓶 𝓢𝓷𝓮𝓮𝔃𝓮! 
+<img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" />
 
 ૮ ˶ᵔ ᵕ ᵔ˶ ა
 
@@ -50,6 +52,7 @@
 
 <img width="200" height="100" alt="discord" src="https://github.com/user-attachments/assets/03eac6a4-716e-4426-82ae-e2e1b0b6ffb8" />
 
+<br>
 
 🎮 **Discord:** `SneezeIsHere` ヾ(・ω・)メ(・ω・)ノ
 
@@ -82,13 +85,6 @@
 <img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/4b359526-db37-4d9b-ac06-b4713abd32b2" /> I absolutely love introducing people to new movies, animation, anime, indie cartoons, and horror films! <img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/53002b65-6e14-48e4-8987-dd1e2ba7a601" />
 
 
-<br>
-
-<img src="https://github.com/user-attachments/assets/5caeecd5-a09e-4c16-b98f-58bd1c6c4594">
-
-<img src="https://github.com/user-attachments/assets/0876c57c-a311-4d4c-ad0b-fc7451c3e511">
-
-<img src="https://github.com/user-attachments/assets/17a822bb-d11e-4eb6-bc1a-6ffcc7684b8c">
 
 <br><br>
 
