@@ -55,10 +55,20 @@
 
 🎮 **Discord:** `SneezeIsHere` ヾ(・ω・)メ(・ω・)ノ
 
-<br>
 
 <br><br>
 
+<img src="https://github.com/user-attachments/assets/1ddd9970-c4b7-4006-abff-6d0068a72b60" width="145">
+<img src="https://github.com/user-attachments/assets/d7b137ac-d968-40df-ab4a-c26c83bf8c48" width="145">
+<img src="https://github.com/user-attachments/assets/a91d216f-3118-47ab-b0e4-c5a5c6efb856" width="145">
+
+<br>
+
+<img src="https://github.com/user-attachments/assets/77858cfc-a89c-46bf-b220-2f3fb6190ed0" width="145">
+<img src="https://github.com/user-attachments/assets/09ed7640-7d48-4fb9-a38c-da685a866b6b" width="145">
+<img src="https://github.com/user-attachments/assets/d2552cb3-dcce-48b9-8f8b-b5b6ab6aec54" width="145">
+
+<br><br>
 ╭───────────────୨ৎ───────────────╮
 
 ### <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" /> A little about me <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" />
@@ -163,8 +173,6 @@ __φ(．．) a few little things about me~
 
 <br><br>
 
-<br><br>
-
 <div align="center">
 
 <img src="https://github.com/user-attachments/assets/0722659f-a665-4b4c-887d-4a0cda0ff027" width="540">
@@ -186,7 +194,6 @@ __φ(．．) a few little things about me~
 </p>
 
 ╰───────────────୨ৎ───────────────╯
-
 
 
 <br>
@@ -242,9 +249,6 @@ __φ(．．) a few little things about me~
 </div>
 
 
-
-
-
 ## <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9"> Current Hyperfixations <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
 
  AHHH!! Real Monsters • 🦄 My Little Pony • watching animated shows/movies • 🎨 Drawing OCs • 🐴 PonyTown • 🎮 Roblox • ✨ Collecting GIFs, Blinkies & Stamps
@@ -256,9 +260,6 @@ __φ(．．) a few little things about me~
 <br><br>
 ✦ ˢᵒᵐᵉ ᵖⁱᶜᵗᵘʳᵉˢ ᵃⁿᵈ ˡⁱⁿᵏˢ ᵃʳᵉ ⁱⁿᵗᵉʳᵃᶜᵗⁱᵛᵉ ;)
 <br>
-
-
-
 
 <br>
 ╭──────────────────────୨ৎ──────────────────────╮
@@ -329,19 +330,6 @@ https://artfight.net/~MyNameIsSneeze
 <img width="49" height="18" alt="tumblr_5a1ab404e2c43762d726f952e724214b_37d589f5_75" src="https://github.com/user-attachments/assets/e7fa2088-55ca-4aa5-8ae6-839314749cf3" />
 
 <br><br>
-
-<img src="https://github.com/user-attachments/assets/1ddd9970-c4b7-4006-abff-6d0068a72b60" width="145">
-<img src="https://github.com/user-attachments/assets/d7b137ac-d968-40df-ab4a-c26c83bf8c48" width="145">
-<img src="https://github.com/user-attachments/assets/a91d216f-3118-47ab-b0e4-c5a5c6efb856" width="145">
-
-<br>
-
-<img src="https://github.com/user-attachments/assets/77858cfc-a89c-46bf-b220-2f3fb6190ed0" width="145">
-<img src="https://github.com/user-attachments/assets/09ed7640-7d48-4fb9-a38c-da685a866b6b" width="145">
-<img src="https://github.com/user-attachments/assets/d2552cb3-dcce-48b9-8f8b-b5b6ab6aec54" width="145">
-
-<br><br>
-
 
 
 
