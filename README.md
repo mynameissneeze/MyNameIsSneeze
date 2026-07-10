@@ -71,7 +71,7 @@
 <br><br>
 ╭───────────────୨ৎ───────────────╮
 
-### <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" /> A little about me <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" />
+### <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" /> 𝔩𝔦𝔱𝔱𝔩𝔢 𝔞𝔟𝔬𝔲𝔱 𝔪𝔢 <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" />
 
 ╰───────────────୨ৎ───────────────╯
 
