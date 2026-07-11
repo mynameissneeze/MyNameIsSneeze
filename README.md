@@ -2,18 +2,29 @@
 
 <br>
 
+<div align="center">
+
+<img src="https://github.com/user-attachments/assets/b6f95b16-55e4-43c7-acf0-b9458d726a3b" width="170">
+
+<br>
+
+<img src="https://github.com/user-attachments/assets/6edcaafb-92a3-4c1a-825f-e7770d56f3e5" width="99">
+
+<br><br>
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&pause=1700&color=C127F7&center=true&vCenter=true&width=650&lines=𝓗𝓮𝔂,+𝓘'𝓶+𝓢𝓷𝓮𝓮𝔃𝓮!;Digital+Artist;Professional+Stoner;OC+Creator;Pixel+Collector;Welcome+to+my+little+corner+♡)](https://git.io/typing-svg)
+
+</div>
 ⊹₊ ⋆ ⟡ ⋆ ₊⊹
+<br>
 
 <img src="https://github.com/user-attachments/assets/b35a4910-36ef-413c-b409-9ef75d876891" width="90">
 
-# <img width="20" height="20" alt="6XpohMk" src="https://github.com/user-attachments/assets/e30cfc11-e8eb-410f-8729-6220a7a03c3e" />
-
+# 
 <p align="center">
+<img width="20" height="20" alt="6XpohMk" src="https://github.com/user-attachments/assets/e30cfc11-e8eb-410f-8729-6220a7a03c3e" />  
 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=C780FA&center=true&vCenter=true&width=368&lines=Now+Playing">
-</p>
-
 <img width="20" height="20" alt="6XpohMk" src="https://github.com/user-attachments/assets/e30cfc11-e8eb-410f-8729-6220a7a03c3e" />
-
 
 <img src="https://github.com/user-attachments/assets/aa39d101-afd5-4c0a-a185-2974237fc8fb" width="180">
 <br>
@@ -60,7 +71,6 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 # <img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" />
 
 <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=FF9EDB&center=true&vCenter=true&width=508&lines=Hey%2C+I%27m+Sneeze%21">
 </p>
 
 <img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" />
