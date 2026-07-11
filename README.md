@@ -1,5 +1,8 @@
 <div align="center">
 
+
+### I know that my gitpage is broken rn but I'm too lazy rn
+
 <br>
 
 <div align="center">
