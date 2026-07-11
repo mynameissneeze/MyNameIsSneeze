@@ -37,7 +37,7 @@
 
 ### Random Pixel Art
 <!-- PIXEL-START -->
-<img src="https://github.com/user-attachments/assets/e88f13d7-11b8-456b-8d67-89a71f700335" width="100">
+<img src="https://github.com/user-attachments/assets/cc995f5d-8aba-4468-ad0f-51ed718d3ea2" width="100">
 <!-- PIXEL-END -->
 <br>
 
