@@ -1,8 +1,6 @@
 <div align="center">
 
 
-### I know that my gitpage is broken rn but I'm too lazy rn
-
 <br>
 
 <div align="center">
@@ -861,7 +859,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <details>
 <summary>
 
-## <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=FF9F45&center=true&vCenter=true&width=220&lines=Blinkies">
+## 𝔹𝕝𝕚𝕟𝕜𝕚𝕖𝕤
 
 </summary>
 
@@ -1141,7 +1139,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <details>
 <summary>
 
-## <img width="20" height="20" alt="KbXT5Rp" src="https://github.com/user-attachments/assets/62a34a08-5bbd-45a3-a30a-8176fe48cd79" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=FFD93D&center=true&vCenter=true&width=220&lines=Stamps"> <img width="20" height="20" alt="KbXT5Rp" src="https://github.com/user-attachments/assets/62a34a08-5bbd-45a3-a30a-8176fe48cd79" />
+## <img width="20" height="20" alt="KbXT5Rp" src="https://github.com/user-attachments/assets/62a34a08-5bbd-45a3-a30a-8176fe48cd79" /> 𝕊𝕥𝕒𝕞𝕡𝕤 <img width="20" height="20" alt="KbXT5Rp" src="https://github.com/user-attachments/assets/62a34a08-5bbd-45a3-a30a-8176fe48cd79" />
 
 
 </summary>
@@ -1348,9 +1346,14 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 </details>
 <br>
 
+<div align="center">
 <details>
 
-<summary><h2> 𝔽𝕒𝕧𝕠𝕣𝕚𝕥𝕖 𝔾𝕀𝔽𝕤 </h2></summary>
+<summary>
+
+## 𝔽𝕒𝕧𝕠𝕣𝕚𝕥𝕖 𝔾𝕀𝔽𝕤
+
+</summary>
 
 
 
@@ -1630,12 +1633,18 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <br>
 
 </details>
+</div>
 
 <br>
 
+<div align="center">
 <details>
 
-<summary><h2> <img width="20" height="20" alt="619752689-5443fa5c-7182-4e9a-b9bc-c1fbe05a2301" src="https://github.com/user-attachments/assets/2038af03-0b4c-4c88-b2a2-5aaa7f65bc71" /> ℙ𝕚𝕩𝕖𝕝𝕤 <img width="20" height="20" alt="WHIvMyX" src="https://github.com/user-attachments/assets/894614e6-e354-417e-812f-6c86bb1317a1" /> </h2></summary>
+<summary>
+
+## <img width="20" height="20" alt="619752689-5443fa5c-7182-4e9a-b9bc-c1fbe05a2301" src="https://github.com/user-attachments/assets/2038af03-0b4c-4c88-b2a2-5aaa7f65bc71" /> ℙ𝕚𝕩𝕖𝕝𝕤 <img width="20" height="20" alt="WHIvMyX" src="https://github.com/user-attachments/assets/894614e6-e354-417e-812f-6c86bb1317a1" />
+
+</summary>
 <br>
 
 <img width="160" height="32" alt="620376185-9d3b6e7d-73ae-4f97-b9fd-e0e9ad9748bd" src="https://github.com/user-attachments/assets/8ec955cd-1be5-4a3b-afe5-67dc726d0951" />
@@ -1705,12 +1714,17 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <br>
 
 </details>
+</div>
 <br>
 <div align="center">
 
 <details>
 
-<summary><h2> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=A28089&center=true&vCenter=true&width=676&lines=Random+Internet+Things"> </h2></summary>
+<summary>
+
+## ℝ𝕒𝕟𝕕𝕠𝕞 𝕀𝕟𝕥𝕖𝕣𝕟𝕖𝕥 𝕋𝕙𝕚𝕟𝕘𝕤
+
+</summary>
 
 <div align="center">
 
