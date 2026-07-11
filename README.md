@@ -1,5 +1,21 @@
 <div align="center">
 
+<p align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=FF9F45&center=true&vCenter=true&width=676&lines=Current+Hyperfixations">
+</p>
+
+<img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
+
+ AHHH!! Real Monsters • 🦄 My Little Pony • watching animated shows/movies • 🎨 Drawing OCs • 🐴 PonyTown • 🎮 Roblox • ✨ Collecting GIFs, Blinkies & Stamps
+
+<br>
+
+<img src="https://github.com/user-attachments/assets/35508dce-4a8e-48e6-9278-68be4225d490" width="80">
+
+<br><br>
+✦ ˢᵒᵐᵉ ᵖⁱᶜᵗᵘʳᵉˢ ᵃⁿᵈ ˡⁱⁿᵏˢ ᵃʳᵉ ⁱⁿᵗᵉʳᵃᶜᵗⁱᵛᵉ ;)
+<br>
+
 
 <br>
 
@@ -370,21 +386,6 @@ __φ(．．) a few little things about me~
 
 ## <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
 
-<p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=FF9F45&center=true&vCenter=true&width=676&lines=Current+Hyperfixations">
-</p>
-
-<img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
-
- AHHH!! Real Monsters • 🦄 My Little Pony • watching animated shows/movies • 🎨 Drawing OCs • 🐴 PonyTown • 🎮 Roblox • ✨ Collecting GIFs, Blinkies & Stamps
-
-<br>
-
-<img src="https://github.com/user-attachments/assets/35508dce-4a8e-48e6-9278-68be4225d490" width="80">
-
-<br><br>
-✦ ˢᵒᵐᵉ ᵖⁱᶜᵗᵘʳᵉˢ ᵃⁿᵈ ˡⁱⁿᵏˢ ᵃʳᵉ ⁱⁿᵗᵉʳᵃᶜᵗⁱᵛᵉ ;)
-<br>
 
 ✩₊˚.⋆☾⋆⁺₊✧ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆ ✧₊⁺⋆☾⋆.˚₊✩
 
