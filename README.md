@@ -8,6 +8,11 @@
 
 <img width="235" height="42" alt="tumblr_inline_p9xjq0G61P1qid2nw_250" src="https://github.com/user-attachments/assets/c220efbc-9680-4992-b55b-1a42d1854f70" />
 
+<br>
+
+<img src="https://github.com/user-attachments/assets/b6f95b16-55e4-43c7-acf0-b9458d726a3b" width="170">
+<br>
+<img width="99" height="55" alt="d430em9-2809adc4-3268-4d28-be2d-5f9a4764eb25" src="https://github.com/user-attachments/assets/6edcaafb-92a3-4c1a-825f-e7770d56f3e5" />
 
 
 # <img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" /> 𝓗𝓮𝔂, 𝓘'𝓶 𝓢𝓷𝓮𝓮𝔃𝓮! <img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" />
@@ -67,6 +72,26 @@
 <img src="https://github.com/user-attachments/assets/d2552cb3-dcce-48b9-8f8b-b5b6ab6aec54" width="145">
 
 <br><br>
+
+## <img width="23" height="23" alt="tumblr_04288e072cc34d881f904cdd752a198c_1bc43b0d_75" src="https://github.com/user-attachments/assets/571eb083-9118-46ec-991b-33bf09c2ffc8" /> ARTFIGHT <img width="23" height="23" alt="tumblr_04288e072cc34d881f904cdd752a198c_1bc43b0d_75" src="https://github.com/user-attachments/assets/571eb083-9118-46ec-991b-33bf09c2ffc8" />
+
+
+<a href="https://artfight.net/~MyNameIsSneeze">
+https://artfight.net/~MyNameIsSneeze
+</a>
+
+<br>
+
+<img width="73" height="32" alt="stamp_fossils" src="https://github.com/user-attachments/assets/d0be86a9-9326-46f8-8fbd-2773c4d5b095" />
+<img width="73" height="32" alt="stamp_comedy" src="https://github.com/user-attachments/assets/60671502-3b43-49b0-bc6c-32f191060e93" />
+
+
+<br><br>
+
+<img src="https://github.com/user-attachments/assets/b23ebfaf-241c-4afc-a3d7-d75589494d5c" width="260">
+
+<br><br>
+
 ╭───────────────୨ৎ───────────────╮
 
 ### <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" /> 𝔩𝔦𝔱𝔱𝔩𝔢 𝔞𝔟𝔬𝔲𝔱 𝔪𝔢 <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" />
@@ -256,80 +281,6 @@ __φ(．．) a few little things about me~
 <br><br>
 ✦ ˢᵒᵐᵉ ᵖⁱᶜᵗᵘʳᵉˢ ᵃⁿᵈ ˡⁱⁿᵏˢ ᵃʳᵉ ⁱⁿᵗᵉʳᵃᶜᵗⁱᵛᵉ ;)
 <br>
-
-<br>
-╭──────────────────────୨ৎ──────────────────────╮
-
-### ╰┈☆ ✦ Scroll down to explore my GIF &amp; Blinkie Collection! ✦ ☆┈╯
-
-╰──────────────────────୨ৎ──────────────────────╯
-
-<img src="https://github.com/user-attachments/assets/b6f95b16-55e4-43c7-acf0-b9458d726a3b" width="170">
-<br>
-<img width="99" height="55" alt="d430em9-2809adc4-3268-4d28-be2d-5f9a4764eb25" src="https://github.com/user-attachments/assets/6edcaafb-92a3-4c1a-825f-e7770d56f3e5" />
-
-<br><br>
-
-⋆｡˚ ☁︎ ˚｡⋆
-
-## <img width="23" height="23" alt="tumblr_04288e072cc34d881f904cdd752a198c_1bc43b0d_75" src="https://github.com/user-attachments/assets/571eb083-9118-46ec-991b-33bf09c2ffc8" /> ARTFIGHT <img width="23" height="23" alt="tumblr_04288e072cc34d881f904cdd752a198c_1bc43b0d_75" src="https://github.com/user-attachments/assets/571eb083-9118-46ec-991b-33bf09c2ffc8" />
-
-
-<a href="https://artfight.net/~MyNameIsSneeze">
-https://artfight.net/~MyNameIsSneeze
-</a>
-
-<br>
-
-<img width="73" height="32" alt="stamp_fossils" src="https://github.com/user-attachments/assets/d0be86a9-9326-46f8-8fbd-2773c4d5b095" />
-<img width="73" height="32" alt="stamp_comedy" src="https://github.com/user-attachments/assets/60671502-3b43-49b0-bc6c-32f191060e93" />
-
-
-<br><br>
-
-<img src="https://github.com/user-attachments/assets/b23ebfaf-241c-4afc-a3d7-d75589494d5c" width="260">
-
-<br><br>
-
-
-
-<br><br>
-
-
-<br><br>
-
-<img src="https://github.com/user-attachments/assets/c7f2ed9b-67e0-44a7-bb1a-b8208245ca7a" width="170">
-
-<img src="https://github.com/user-attachments/assets/19790c59-202e-49d9-86a7-5fd0610b7046" width="430">
-
-<img src="https://github.com/user-attachments/assets/48a9e2bd-55bf-4629-b2f7-36356b3df9a2" width="170">
-<br>
-
-<img src="https://github.com/user-attachments/assets/e1171ea3-ee29-4cc8-9a8d-4c3688b7d51e" width="150">
-<img src="https://github.com/user-attachments/assets/fe562e8c-776a-4bed-94ab-ac36bcc3c4d6" width="150">
-
-<img src="https://github.com/user-attachments/assets/1d8af808-d7d3-46f9-9025-589b89d28dec" width="150">
-<br><br>
-
-⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆
-
-
-
-<div align="center">
-
-<img src="https://github.com/user-attachments/assets/ec4d7e41-34c3-4484-b72c-9e80a2af3728">
-<img src="https://github.com/user-attachments/assets/c54faa45-9726-4f73-bdaa-24abf241d431">
-
-<br>
-
-<img width="63" height="18" alt="tumblr_b258816bf6c738f31f3e5a46054a3693_a3c0c4bd_75" src="https://github.com/user-attachments/assets/1b84b5ce-1585-464b-85f1-12e8a21b0fb0" />
-<img width="49" height="18" alt="tumblr_5a1ab404e2c43762d726f952e724214b_37d589f5_75" src="https://github.com/user-attachments/assets/e7fa2088-55ca-4aa5-8ae6-839314749cf3" />
-
-<br><br>
-
-
-
-<div align="center">
 
 ✩₊˚.⋆☾⋆⁺₊✧ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆ ✧₊⁺⋆☾⋆.˚₊✩
 
