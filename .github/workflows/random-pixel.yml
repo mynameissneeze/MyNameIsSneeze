@@ -2,10 +2,9 @@ name: Random Pixel Updater
 
 on:
   schedule:
-    # Runs every 30 minutes. GitHub's scheduler can be a few minutes
-    # late during high load, but 30 min is well above its 5-min floor.
+    # Runs every 30 minutes
     - cron: '*/30 * * * *'
-  workflow_dispatch: {} # lets you trigger it manually from the Actions tab
+  workflow_dispatch:
 
 permissions:
   contents: write
@@ -13,6 +12,7 @@ permissions:
 jobs:
   update-pixel:
     runs-on: ubuntu-latest
+
     steps:
       - name: Checkout repo
         uses: actions/checkout@v4
@@ -20,19 +20,20 @@ jobs:
       - name: Set up Python
         uses: actions/setup-python@v5
         with:
-          python-version: '3.x'
+          python-version: "3.x"
 
       - name: Pick a new random pixel
-        run: python .github/scripts/update_pixel.py
+        run: python update_pixel.py
 
       - name: Commit and push if changed
         run: |
           git config user.name "github-actions[bot]"
           git config user.email "github-actions[bot]@users.noreply.github.com"
-          if git diff --quiet -- README.md; then
+
+          if git diff --quiet README.md; then
             echo "No changes to commit."
           else
             git add README.md
-            git commit -m "chore: rotate pixel of the moment 🎲"
+            git commit -m "🎲 Rotate Pixel of the Moment"
             git push
           fi
