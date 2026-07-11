@@ -1590,6 +1590,10 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 -ˋˏ✄──────────────────────────────────────────────────────────────
 
+
+
+needs organized: 
+
 <img width="99" height="56" alt="clefairykid" src="https://github.com/user-attachments/assets/7af95f25-1197-43da-96c1-d8b971a4264e" />
 <img width="99" height="56" alt="dusk_by_aphose_d8kq8yv" src="https://github.com/user-attachments/assets/3aa1e2da-d6b8-4ffc-aeb2-98c0403c8761" />
 <img width="99" height="55" alt="pjuk 8" src="https://github.com/user-attachments/assets/bf2b2a7f-a599-4f9d-8534-e22121e855be" />
@@ -1636,7 +1640,12 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="88" height="31" alt="tumblr_395614db8982d68a5f374f4478d18e66_06f1dc7a_250" src="https://github.com/user-attachments/assets/a044a373-2750-46df-a285-62a810c76c68" />
 <img width="408" height="73" alt="tumblr_e7f16514b68ccb5825fbc9fc0d3c5fdc_d2d355f0_500" src="https://github.com/user-attachments/assets/5146907a-2bed-4ae4-b23d-323bbdda026f" />
 <img width="160" height="32" alt="tumblr_15021bb4a6acbf1b6e403e1a85cdb410_f5cd794b_250" src="https://github.com/user-attachments/assets/9d3b6e7d-73ae-4f97-b9fd-e0e9ad9748bd" />
-
+<img width="99" height="56" alt="tumblr_f061ea9c12ba98151bf3c59f82bc3bcb_e84a6fff_100" src="https://github.com/user-attachments/assets/5168502a-d348-43b1-b89b-608a68af204e" />
+<img width="99" height="57" alt="tumblr_dd79d3299092c3f9a175161bb18f0860_6ed292fc_100" src="https://github.com/user-attachments/assets/c78dd698-cdfc-4c72-9cd8-2c6be706062c" />
+<img width="99" height="56" alt="tumblr_f79092b4f3b1d13cd178eba54434147f_e83d4f4d_100" src="https://github.com/user-attachments/assets/f52cddab-2c12-4b62-b86a-b02161470454" />
+<img width="101" height="57" alt="tumblr_edb8344c59ed247a600bcef124830a9c_90d38cef_250" src="https://github.com/user-attachments/assets/0c6d04fe-1bc9-4794-b3a3-82163f7888c9" />
+<img width="150" height="20" alt="tumblr_781c371c1c5e77d58807fec51b9a1a6c_78bbae6b_250" src="https://github.com/user-attachments/assets/83638d95-0fa2-4970-a0ce-b76f21ba5d39" />
+<img width="101" height="57" alt="tumblr_91e86a37485be1c38af8b109a42a2b8a_eac9ac0f_250" src="https://github.com/user-attachments/assets/d24d1f21-759c-456c-a96d-490bdce3e48d" />
  <img width="80" height="80" alt="tumblr_0b64f0b1c2a437966212481231933cea_39bb47c4_250" src="https://github.com/user-attachments/assets/62017ca0-1e91-49b6-b44e-e5ed62ac7acb" />
 <img width="96" height="96" alt="tumblr_ba85ff7783bb79371cd95aad84702065_126a6c9e_250" src="https://github.com/user-attachments/assets/7e5e37c4-4ec7-49d7-a6c2-9ea9ace45f81" />
 <img width="96" height="96" alt="tumblr_59fc31fe9d4b7158241670b63b1059b4_aee9ef23_250" src="https://github.com/user-attachments/assets/097da5d6-d47d-46a2-ba94-9d070990daec" />
@@ -1666,5 +1675,9 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="99" height="124" alt="tumblr_lg6itmL6Yk1qfu6o4o1_100" src="https://github.com/user-attachments/assets/d1f377d4-ca3d-42eb-9547-ba3f6e18c37d" />
 <img width="100" height="100" alt="tumblr_px2ztoKBJM1xmlb72o1_100" src="https://github.com/user-attachments/assets/cc9660b2-88c9-4443-8ac1-875f7de0c26f" />
 <img width="100" height="100" alt="tumblr_pykpvlOkX81xmlb72o1_100" src="https://github.com/user-attachments/assets/9e100035-0859-4174-beef-d3ca8ca96b21" />
-
-
+<img width="80" height="80" alt="tumblr_95439bc8ce392f1bbe840c1ea5274539_8e44191e_100" src="https://github.com/user-attachments/assets/72304941-8d6f-4d3a-843e-f4b829f24297" />
+<img width="80" height="80" alt="tumblr_30dcb8590864f1f8b5ee82b2a78f8953_c25e11e9_100" src="https://github.com/user-attachments/assets/c5676b7b-8a35-4722-91e4-81a6d23997b8" />
+<img width="80" height="80" alt="tumblr_bb4858959eb5f802706753f899bae50c_9ed318d1_100" src="https://github.com/user-attachments/assets/661fe7ef-6f84-4b07-9ac2-5aa42df1c53f" />
+<img width="30" height="30" alt="tumblr_50b1b51122fbf07b01995bc72078db2f_71322127_75" src="https://github.com/user-attachments/assets/433a7100-0a35-4787-8c46-feeffe4ab3c9" />
+<img width="80" height="80" alt="tumblr_30036a0c4adc7c54c4d9272b2bf05e7f_88b14a8d_100" src="https://github.com/user-attachments/assets/911a5b5a-a24a-4025-9943-467ea1cdc16d" />
+<img width="80" height="80" alt="tumblr_d1db2039a4593c2fd75c6207327b1ee6_73abce4e_100" src="https://github.com/user-attachments/assets/74fe9dd4-f600-47e4-96c4-4417a35d93d2" />
