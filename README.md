@@ -37,7 +37,7 @@
 
 ### ✨ Pixel of the Moment
 <!-- PIXEL-START -->
-<img src="https://github.com/user-attachments/assets/6615722d-6930-4ad3-9080-0833f7eecc5b" width="100">
+<img src="https://github.com/user-attachments/assets/e88f13d7-11b8-456b-8d67-89a71f700335" width="100">
 <!-- PIXEL-END -->
 <br>
 
