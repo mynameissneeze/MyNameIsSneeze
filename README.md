@@ -22,8 +22,11 @@
 
 # 
 <p align="center">
+  
 <img width="20" height="20" alt="6XpohMk" src="https://github.com/user-attachments/assets/e30cfc11-e8eb-410f-8729-6220a7a03c3e" />  
+
 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=C780FA&center=true&vCenter=true&width=368&lines=Now+Playing">
+
 <img width="20" height="20" alt="6XpohMk" src="https://github.com/user-attachments/assets/e30cfc11-e8eb-410f-8729-6220a7a03c3e" />
 <br>
 
@@ -848,6 +851,8 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="20" height="20" alt="tumblr_26ca2e3be309f5f72351793bf4b65790_ec9f841e_75" src="https://github.com/user-attachments/assets/66d60a2c-8244-4f39-85c9-e2d27e0f1546" />
 <img width="20" height="20" alt="RoZTugo" src="https://github.com/user-attachments/assets/87e34fa4-2fd4-4cff-bb6b-371f114ab5df" />
 
+</div>
+
 </details>
 <div align="center">
 <details>
@@ -1119,6 +1124,10 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <br>
 
 <br>
+
+</div>
+
+</div>
 
 </details>
 
@@ -1690,9 +1699,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 </div>
 
-
-</div>
-
 <br>
 
 </details>
@@ -1742,6 +1748,8 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 <br>
 
+</div>
+
 </details>
 
 <br><br>
@@ -1761,9 +1769,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 <div align="center">
 
-<a href="https://github.com/Mukundan314/Github-Profile-Guestbook" target="_blank">
-  <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=28&duration=1&pause=999999&color=B19CD9&center=true&vCenter=true&width=350&lines=Sign+my+Guestbook%21">
-</a>
 
 <br><br>
 
@@ -1773,4 +1778,4 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 <br>
 
--ˋˏ✄───────────────────────────────────────────────────────────
+-ˋˏ✄──────────────────────────────────────────────────────────────
