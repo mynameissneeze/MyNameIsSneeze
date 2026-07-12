@@ -42,7 +42,7 @@
 <br>
 
 <!-- PIXEL-START -->
-<img src="https://github.com/user-attachments/assets/8f426283-9bfa-4c55-82a2-4378efe768f4" width="100">
+<img src="https://github.com/user-attachments/assets/6615722d-6930-4ad3-9080-0833f7eecc5b" width="100">
 <!-- PIXEL-END -->
 <br>
 
