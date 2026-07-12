@@ -471,6 +471,7 @@ Adventure Time • Bee and PuppyCat • Gravity Falls • Futurama • Scott Pil
 xxxHolic • Durarara!! • Osomatsu-san • Deadman Wonderland • Mob Psycho 100 • Ouran High School Host Club • Soul Eater • Sgt. Frog • Lucky Star • Kakegurui • Nana • FLCL • Panty & Stocking • Bleach • Princess Tutu • Princess Jellyfish • Migi & Dali • Squid Girl • Life Lessons with Uramichi Oniisan • Nichijou • Dandadan
 
 
+
 ## <img width="20" height="20" alt="UL1PL4N" src="https://github.com/user-attachments/assets/0b9f7025-d1b5-4a1e-80d1-1695efb5a580" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=C127F7&center=true&vCenter=true&width=250&lines=Favorite+Games"> <img width="20" height="20" alt="UL1PL4N" src="https://github.com/user-attachments/assets/0b9f7025-d1b5-4a1e-80d1-1695efb5a580" />
 
 Minecraft • PonyTown • Cookie Run: Kingdom • Cult of the Lamb • Dead by Daylight • The Classrooms • Five Nights at Freddy's • Grounded • The Forest • Lethal Company • Life Is Strange • Resident Evil • Saints Row • Raft • Stardew Valley • Webfishing • Fran Bow • Content Warning • 7 Days to Die • Bigfoot • Roblox • Skyrim • Yandere Simulator • Silent Hill • Hello Kitty Island Adventure • Kletka • Hitman • Degrees of Lewdity • Alice: Madness Returns • What Remains of Edith Finch • Reka • Schedule 1 • Wizard101 • Wobbledogs
@@ -541,28 +542,30 @@ Life Is Strange • Scott Pilgrim
 
  Jungkook
 
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+<img width="149" height="14" alt="c6dad546fdb09b1afa794508dd79db2c" src="https://github.com/user-attachments/assets/95f4d03f-26b8-4559-b94c-de6db06705e0" />
 
 ## <img width="20" height="20" alt="6ZoyoRx" src="https://github.com/user-attachments/assets/f3e52803-d726-4d12-bf4f-57b3d16eeaff" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=C780FA&center=true&vCenter=true&width=400&lines=Favorite+Roblox+Creators"> <img width="20" height="20" alt="6ZoyoRx" src="https://github.com/user-attachments/assets/f3e52803-d726-4d12-bf4f-57b3d16eeaff" />
 
 
  Starbby • Luminfur
 
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+<img width="240" height="20" alt="b18eb1c4dd8fac10cf0d7011bd700a83" src="https://github.com/user-attachments/assets/4c981a9b-54b2-4d7d-9862-87061795b6a7" />
+
 
 ## <img width="20" height="20" alt="KwX2CTv" src="https://github.com/user-attachments/assets/e94e4196-0bea-4e0a-8362-faf8f98601b7" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=00B4D8&center=true&vCenter=true&width=295&lines=Favorite+Websites"> <img width="20" height="20" alt="KwX2CTv" src="https://github.com/user-attachments/assets/e94e4196-0bea-4e0a-8362-faf8f98601b7" />
 
 
 PonyTown • Art Fight • Twitter/X • GitHub • Spotify • Pinterest
 
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+<img width="619" height="18" alt="246332c85f9c140df0e238d614e49a11" src="https://github.com/user-attachments/assets/1c52fa07-b0bd-4e64-86ba-7e796d32721b" />
+
 
 ## <img width="20" height="20" alt="5oBV0ok" src="https://github.com/user-attachments/assets/4813455c-38be-43f7-8a0a-7ad24ff27f3d" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=FFADAD&center=true&vCenter=true&width=325&lines=Favorite+Aesthetics"> <img width="20" height="20" alt="1p7QTmr" src="https://github.com/user-attachments/assets/031373e4-2cf6-43c0-987d-362de158bafa" />
 
 
  Harajuku • Frutiger Aero • Dreamcore • Webcore • Weirdcore • Kidcore • Pastelcore
 
-<img width="540" height="48" alt="cf83ea6beab129d78f999e67be209a02" src="https://github.com/user-attachments/assets/bd4807f4-1dde-40d5-b949-fb3f32757402" />
+<img width="2048" height="163" alt="bf52cfd64525250f23f867a0eae8174e" src="https://github.com/user-attachments/assets/61f95c62-1839-4392-900a-944b089f4222" />
 
 ## <img width="20" height="20" alt="nOG2m2x" src="https://github.com/user-attachments/assets/3c91603e-59ad-4009-8938-b9b57a81ff7b" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=9D4EDD&center=true&vCenter=true&width=265&lines=Favorite+Colors"> <img width="20" height="20" alt="nOG2m2x" src="https://github.com/user-attachments/assets/3c91603e-59ad-4009-8938-b9b57a81ff7b" />
 
@@ -576,7 +579,7 @@ PonyTown • Art Fight • Twitter/X • GitHub • Spotify • Pinterest
 
  Thalassophobia • Trypophobia • Acrophobia • Scopophobia • Megalophobia • astraphobia
 
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+<img width="600" height="40" alt="ede911e35d7b0f61c6ecc51462172483" src="https://github.com/user-attachments/assets/a56a6b97-fcf1-4a9a-be51-da06407c8df6" />
 
 ## <img width="20" height="20" alt="7c4561648bcd6b96259a1f70a5c1c257" src="https://github.com/user-attachments/assets/7d0be0aa-e534-4145-855e-298a8d16404f" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=EF476F&center=true&vCenter=true&width=400&lines=Favorite+Weather%2FSeasons"> <img width="20" height="20" alt="3cf59f4283a82799611f30b2e42e56c3" src="https://github.com/user-attachments/assets/f678771a-ab03-4352-bbae-90525ca74e2f" />
 
@@ -598,13 +601,13 @@ Halloween • Christmas • Valentine's Day • April Fool's Day
 
 Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh • penguinz0 • antimattermorty
 
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+<img width="700" height="11" alt="272ceecc485098dfadbc8565392ae13a" src="https://github.com/user-attachments/assets/ada5eed5-8c71-4d7c-b3c1-60505541d448" />
 
 ## <img width="20" height="20" alt="mPhaeJl" src="https://github.com/user-attachments/assets/1a3e0970-3149-4837-945b-bb7084ccdd8e" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=6D6875&center=true&vCenter=true&width=535&lines=Favorite+Animal+Crossing+Villager"> <img width="20" height="20" alt="mPhaeJl" src="https://github.com/user-attachments/assets/1a3e0970-3149-4837-945b-bb7084ccdd8e" />
 
  Pierce
 
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+<img width="2048" height="163" alt="71804f23b857b18d1aaabbdb34bbf959" src="https://github.com/user-attachments/assets/ae780afb-8bf2-4686-9d72-1e11ec7dcc84" />
 
 ## ☕
 
