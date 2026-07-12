@@ -132,12 +132,6 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 ヾ(・ω・)メ(・ω・)ノ
 
 <br><br>
-
-[![Steam Card](https://github-readme-steam-card.vercel.app/status/?steamid=76561199161885022&show_recent_game_bg=true)](https://steamcommunity.com/profiles/76561199161885022/)
-
-
-<br><br>
-
 <img src="https://github.com/user-attachments/assets/1ddd9970-c4b7-4006-abff-6d0068a72b60" width="145">
 <img src="https://github.com/user-attachments/assets/d7b137ac-d968-40df-ab4a-c26c83bf8c48" width="145">
 <img src="https://github.com/user-attachments/assets/a91d216f-3118-47ab-b0e4-c5a5c6efb856" width="145">
@@ -150,14 +144,17 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 <br><br>
 
-## <img width="23" height="23" alt="tumblr_04288e072cc34d881f904cdd752a198c_1bc43b0d_75" src="https://github.com/user-attachments/assets/571eb083-9118-46ec-991b-33bf09c2ffc8" />
+[![Steam Card](https://github-readme-steam-card.vercel.app/status/?steamid=76561199161885022&show_recent_game_bg=true)](https://steamcommunity.com/profiles/76561199161885022/)
 
-<p align="center">
+
+<br><br>
+
+
+<p align="center"> 
+ <img width="23" height="23" alt="tumblr_04288e072cc34d881f904cdd752a198c_1bc43b0d_75" src="https://github.com/user-attachments/assets/571eb083-9118-46ec-991b-33bf09c2ffc8" />
 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=FF6B6B&center=true&vCenter=true&width=300&lines=ARTFIGHT">
-</p>
-
 <img width="23" height="23" alt="tumblr_04288e072cc34d881f904cdd752a198c_1bc43b0d_75" src="https://github.com/user-attachments/assets/571eb083-9118-46ec-991b-33bf09c2ffc8" />
-
+</p>
 
 <a href="https://artfight.net/~MyNameIsSneeze">
 https://artfight.net/~MyNameIsSneeze
@@ -206,15 +203,13 @@ https://artfight.net/~MyNameIsSneeze
 ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 
 ╭───────────────୨ৎ───────────────╮
-
-## <img width="20" height="20" alt="goiBexo" src="https://github.com/user-attachments/assets/72998456-3a39-402b-afb6-77de1dbc6610" />
-
 <p align="center">
+ 
+<img width="20" height="20" alt="goiBexo" src="https://github.com/user-attachments/assets/72998456-3a39-402b-afb6-77de1dbc6610" />
 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=FFD93D&center=true&vCenter=true&width=312&lines=Fun+Facts">
-</p>
-
 <img width="20" height="20" alt="goiBexo" src="https://github.com/user-attachments/assets/72998456-3a39-402b-afb6-77de1dbc6610" />
 
+</p>
 ╰───────────────୨ৎ───────────────╯
 
 __φ(．．) a few little things about me~
@@ -373,13 +368,6 @@ __φ(．．) a few little things about me~
 
 
 <br><br>
-
-<img src="https://github.com/user-attachments/assets/5c21a496-d6a9-47bb-8200-1d47c0d0b04e">
-
-<img src="https://github.com/user-attachments/assets/7aefb153-423c-44f1-82cc-588e4e0c1e5d">
-
-<br><br>
-
 
 ### <img width="20" height="20" alt="atXYx5i" src="https://github.com/user-attachments/assets/a81c77a8-4def-496f-a5fd-4d9dd20ed37a" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=6BCB77&center=true&vCenter=true&width=385&lines=I+love+talking+about...">
 
@@ -720,7 +708,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="20" height="20" alt="rdKJC7b" src="https://github.com/user-attachments/assets/90942c15-3e8e-4068-bb9f-f1344868bf14" />
 <img width="20" height="20" alt="GUZIMPA" src="https://github.com/user-attachments/assets/4082ba7d-ec64-4935-9182-79040b191246" />
 <br>
-<img width="20" height="20" alt="Tbxs5aa" src="https://github.com/user-attachments/assets/f545a2e7-d810-497a-b8ea-ebbed3d2da91" />
 <img width="20" height="20" alt="zK6rpzW" src="https://github.com/user-attachments/assets/9982a60b-33b6-46d6-a6f7-579fc14b6be1" />
 <img width="20" height="20" alt="ObK2PDk" src="https://github.com/user-attachments/assets/cf73b722-5850-47bc-a841-c269eeaccb1d" />
 <img width="20" height="20" alt="nDlYTNQ" src="https://github.com/user-attachments/assets/aef8e793-85fe-4064-8be5-8da74570c3ec" />
@@ -1139,7 +1126,8 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="99" height="56" alt="kawaiiness_kawaii46060" src="https://github.com/user-attachments/assets/6e9e6d44-74e6-4a4e-970e-1e79130bd155" />
 
 <br>
-
+<img src="https://github.com/user-attachments/assets/5c21a496-d6a9-47bb-8200-1d47c0d0b04e">
+<img src="https://github.com/user-attachments/assets/7aefb153-423c-44f1-82cc-588e4e0c1e5d">
 <img width="99" height="56" alt="620381370-7af95f25-1197-43da-96c1-d8b971a4264e" src="https://github.com/user-attachments/assets/22a28dd1-a1ac-45ba-8991-df1a328bf9fb" />
 <img width="99" height="56" alt="620381362-3aa1e2da-d6b8-4ffc-aeb2-98c0403c8761" src="https://github.com/user-attachments/assets/f834d19e-f71a-435b-be33-f19ba46c1639" />
 <img width="99" height="56" alt="620381256-bf2b2a7f-a599-4f9d-8534-e22121e855be" src="https://github.com/user-attachments/assets/ec087e4e-f447-46c5-a808-27ac94687be1" />
