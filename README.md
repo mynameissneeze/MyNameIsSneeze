@@ -16,6 +16,12 @@
 <img width="21" height="34" alt="617279910-4d1bf873-bb7c-4971-b8e9-4462a1b3e7d2" src="https://github.com/user-attachments/assets/e044194e-1ed5-4f59-bc5a-8c3b2fd83900" />
 <img width="27" height="26" alt="617279025-026b5513-2e38-467f-92a4-752899600c8b" src="https://github.com/user-attachments/assets/21cd3a58-9540-4774-beaf-699098299b2d" />
 <img width="40" height="20" alt="619196282-ed662c4c-26c3-4fb9-bb09-42f28e9275b6" src="https://github.com/user-attachments/assets/6db45f50-112b-4900-836d-3869b3e23b75" />
+<img width="250" height="275" alt="d0e8885332bc9eb08a933864b59ba639" src="https://github.com/user-attachments/assets/1c711e21-76a5-4f2f-a36d-034f4095860e" />
+<img width="685" height="556" alt="98934868771dbd3888cafe00533f0614" src="https://github.com/user-attachments/assets/25498765-589e-4be0-b6fa-f9a229942a34" />
+<img width="141" height="95" alt="ae7ff1c9b07f3455a425e0bb9380d251" src="https://github.com/user-attachments/assets/27323f9e-c052-47da-ae62-2d0d36937912" />
+<img width="141" height="95" alt="6738ba65a906ee9b7375f863c21aee86" src="https://github.com/user-attachments/assets/ab8afb70-3e2a-48a8-87e2-cbe04d912039" />
+<img width="141" height="95" alt="f23d230a197873fdd277d967fb6acfbb" src="https://github.com/user-attachments/assets/aacf4679-e108-4dcc-8a75-7c58d0da769c" />
+
 
 <div align="center">
 
@@ -1140,6 +1146,13 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="99" height="56" alt="kawaiiness_kawaii46060" src="https://github.com/user-attachments/assets/6e9e6d44-74e6-4a4e-970e-1e79130bd155" />
 
 <br>
+<img width="99" height="56" alt="96546420eab076f9f2038f2363b15ac5" src="https://github.com/user-attachments/assets/148afda2-5b5f-425a-a11e-95a3e7ab61db" />
+<img width="99" height="56" alt="94dea0705655315e41d029caac7bb30f" src="https://github.com/user-attachments/assets/09758baa-087c-45e6-a2b1-70275cc82de5" />
+<img width="99" height="55" alt="0387a22963f5191b05091d94d36178db" src="https://github.com/user-attachments/assets/d4c2b5e1-b8df-464a-8436-edd9d6fdfc17" />
+<img width="99" height="55" alt="fe77a32249a4c61028f73d3c6aa31446" src="https://github.com/user-attachments/assets/eca480ab-6773-48af-86da-e3b557353b74" />
+<img width="99" height="56" alt="caf4b1fa716642e278c40bc97218abb2" src="https://github.com/user-attachments/assets/39cf4067-2763-4700-a0af-217c9617816a" />
+<img width="99" height="56" alt="858379dbba842e4780c7024100861e9e" src="https://github.com/user-attachments/assets/ec09bf06-cfb2-4a3a-a94e-cdc7f66dc970" />
+<img width="99" height="57" alt="4e18e2c1bf9fea0348f5d07a032bf05c" src="https://github.com/user-attachments/assets/d1d8a82b-349a-4bc1-b044-3dc68b0bd199" />
 <img src="https://github.com/user-attachments/assets/5c21a496-d6a9-47bb-8200-1d47c0d0b04e">
 <img src="https://github.com/user-attachments/assets/7aefb153-423c-44f1-82cc-588e4e0c1e5d">
 <img width="99" height="56" alt="620381370-7af95f25-1197-43da-96c1-d8b971a4264e" src="https://github.com/user-attachments/assets/22a28dd1-a1ac-45ba-8991-df1a328bf9fb" />
@@ -1172,7 +1185,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="99" height="56" alt="620383220-b6ba0f59-71d7-42ec-aaea-cb4618c2eb46" src="https://github.com/user-attachments/assets/7f8247d7-b902-450d-ba79-65ba2c096aea" />
 <img width="99" height="56" alt="620386655-166aedea-51aa-4088-ab96-0e4beed4f2e1" src="https://github.com/user-attachments/assets/e454cebf-75e4-4b31-a730-38614b9500c9" />
 <img width="99" height="56" alt="620383246-5e2f5e82-3f94-4bfb-9ae5-915370ca805c" src="https://github.com/user-attachments/assets/98b28e4f-6e52-4d84-8aac-a8ee01fa9e30" />
-
 <img width="99" height="56" alt="virus-xenon-rainbow" src="https://github.com/user-attachments/assets/9298ce54-1d51-445d-81e9-6e7b7f8ea018" />
 <img width="99" height="56" alt="imfeelingstampity (3)" src="https://github.com/user-attachments/assets/68861e18-5f2c-4540-8882-4584757a7821" />
 <img width="99" height="56" alt="stamp_12_by_anxious_page_ddpsjmt" src="https://github.com/user-attachments/assets/f4d82491-754e-4f09-98fb-8f0aa4567022" />
