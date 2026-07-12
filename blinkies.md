@@ -1,4 +1,3 @@
-[blinkies.md](https://github.com/user-attachments/files/29935776/blinkies.md)
 # ✨ Blinkie Collection
 
 <div align="center">
