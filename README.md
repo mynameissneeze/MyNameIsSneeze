@@ -34,9 +34,8 @@ Blinkie
 <img width="150" height="20" alt="06c359fdb48a5a2cad3463d8479a387a" src="https://github.com/user-attachments/assets/a2574373-4cd0-4ce4-9efc-b26f1908a377" />
 <img width="150" height="20" alt="f62ca6e266017add75dbb4912f2d78b6" src="https://github.com/user-attachments/assets/53564a86-8af9-4e9e-ba6e-c40000308f7c" />
 
-
-
 Stamp
+
 <img width="99" height="56" alt="816c0f086b00e7f8a9fe873e1088d83e" src="https://github.com/user-attachments/assets/3a07131c-a8bb-422e-9bcc-7f765414d678" />
 <img width="99" height="55" alt="da53f707da42dfa7bda7b082649f4f7e" src="https://github.com/user-attachments/assets/5c1d1d00-bb05-4376-9d5f-81b0837b9a1a" />
 <img width="99" height="56" alt="5a9d08454c6af458ea64b0d97388b4ae" src="https://github.com/user-attachments/assets/02c9f992-cadc-4f66-a352-5a8ad8452de5" />
@@ -96,6 +95,11 @@ Gifs
 
 
 pixel
+<img width="776" height="470" alt="1606cc8776de7d811e6775a3375b18d8" src="https://github.com/user-attachments/assets/87087593-9009-4492-9a3b-1aea7c536502" />
+<img width="300" height="300" alt="e37903a3d4ce7403e9cb3ceda60b749f" src="https://github.com/user-attachments/assets/5e049c2c-78a3-4f33-876e-f5c4efc83585" />
+<img width="158" height="144" alt="3492337410662933f7dea8881c54a3e7" src="https://github.com/user-attachments/assets/f9122051-b460-4f6f-8118-fa1f860cba79" />
+<img width="50" height="50" alt="619617817-0afc2111-0afb-4fb4-bc9d-24bcbdb875b5" src="https://github.com/user-attachments/assets/0b8157e1-aaf4-44e8-9bae-e2b909a16e39" />
+<img width="60" height="60" alt="619702861-6e9e6d44-74e6-4a4e-970e-1e79130bd155" src="https://github.com/user-attachments/assets/3f42ee90-c58d-4011-84e6-b4186693f455" />
 <img width="32" height="34" alt="fecbc672123e80731eea122feae0b617" src="https://github.com/user-attachments/assets/0505c899-1008-4288-8d81-f60bde8e9b8c" />
 <img width="500" height="500" alt="a79df34744c4c2b2596ad040ae3edac6" src="https://github.com/user-attachments/assets/e4399724-eeb3-45be-8534-c91191283658" />
 <img width="90" height="90" alt="38a0074d4d82b4397077de50f6167777" src="https://github.com/user-attachments/assets/71588f38-d02c-48cc-9498-27bcafd67e69" />
