@@ -421,7 +421,7 @@ __φ(．．) a few little things about me~
 
 <img width="20" height="20" alt="gxooN7b" src="https://github.com/user-attachments/assets/68b04731-a577-48de-92e0-1e1cf2f2a27a" />
 
-### ( ⸝⸝´꒳`⸝⸝)
+### °˖✧◝(⁰▿⁰)◜✧˖°
 
 ╰──────────────────୨ৎ──────────────────╯
 
@@ -434,7 +434,6 @@ __φ(．．) a few little things about me~
 
 </div>
 
-°˖✧◝(⁰▿⁰)◜✧˖°
 
 <div align="center">
 
