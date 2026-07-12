@@ -1636,14 +1636,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 <tr>
 
-<td colspan="3" align="center">
-<img width="300" height="272" alt="5fd7544ab24b3578cf0589d4dc53df61" src="https://github.com/user-attachments/assets/02413531-92f2-4afc-b459-96b872700fbf" />
-</td>
-
-</tr>
-
-<tr>
-
 <td align="center">
 <img width="200" alt="6a053c02939c31fa18faedb84eb61d77" src="https://github.com/user-attachments/assets/70615513-967c-4745-aa9a-07c57ed7919d" />
 </td>
@@ -1669,6 +1661,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 </td>
 
 <td align="center">
+<img width="200" alt="5fd7544ab24b3578cf0589d4dc53df61" src="https://github.com/user-attachments/assets/02413531-92f2-4afc-b459-96b872700fbf" />
 </td>
 
 </tr>
