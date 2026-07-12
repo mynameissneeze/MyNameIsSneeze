@@ -45,7 +45,7 @@
 <br>
 
 <!-- PIXEL-START -->
-<img src="https://github.com/user-attachments/assets/083ca80b-a45f-4455-a032-70986f3be519" width="100">
+<img src="https://github.com/user-attachments/assets/8ec955cd-1be5-4a3b-afe5-67dc726d0951" width="100">
 <!-- PIXEL-END -->
 <br>
 
