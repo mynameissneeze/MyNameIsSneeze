@@ -5,11 +5,7 @@ https://thuvien.org/webcore/browse?page=214
 <br>
 
 Favicons
-<img width="16" height="21" alt="04c4521ca9c4b79da842271cbdc31b30" src="https://github.com/user-attachments/assets/a3802a74-3841-4fa3-8ca2-b5a549c31ca2" />
-<img width="16" height="21" alt="43e4f6418e97813aabc9242bd3ad9a2c" src="https://github.com/user-attachments/assets/f0b60b94-3c29-4d6a-967e-407e02d5e553" />
-<img width="16" height="21" alt="769b72a9f583b9dfe10dd13bcb6816e2" src="https://github.com/user-attachments/assets/4a1ba67d-4d83-422e-b554-7fc1c733a5f0" />
-<img width="16" height="21" alt="76af62d2cdbb14e11edb811a49e34874" src="https://github.com/user-attachments/assets/55856cd6-e3ab-4fd4-b131-160588f0e059" />
-<img width="16" height="21" alt="ab856d51d592a4a6652e7a232e363651" src="https://github.com/user-attachments/assets/51b9796d-1bb2-40d4-8e25-8ba39b6ffdfa" />
+
 
 <br>
 
