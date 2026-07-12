@@ -79,25 +79,8 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 <br> 
 
-<img width="88" height="31" alt="bestdesktop" src="https://github.com/user-attachments/assets/f48718be-77fc-43ac-9668-bbf43a6591a6" />
-
-<br>
-
-<img width="235" height="42" alt="tumblr_inline_p9xjq0G61P1qid2nw_250" src="https://github.com/user-attachments/assets/c220efbc-9680-4992-b55b-1a42d1854f70" />
-
-<br>
-
-<img src="https://github.com/user-attachments/assets/b6f95b16-55e4-43c7-acf0-b9458d726a3b" width="170">
-<br>
-<img width="99" height="55" alt="d430em9-2809adc4-3268-4d28-be2d-5f9a4764eb25" src="https://github.com/user-attachments/assets/6edcaafb-92a3-4c1a-825f-e7770d56f3e5" />
-
-
-# <img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" />
-
 <p align="center">
 </p>
-
-<img width="20" height="20" alt="79P8MMo" src="https://github.com/user-attachments/assets/262502fe-8c03-4b87-ab3d-2dbc2c72194f" />
 
 ૮ ˶ᵔ ᵕ ᵔ˶ ა
 
@@ -260,14 +243,11 @@ __φ(．．) a few little things about me~
 
 ╭────────────────────୨ৎ────────────────────╮
 
-# <img width="20" height="20" alt="qLEXRs3" src="https://github.com/user-attachments/assets/37462ee6-9a09-483e-b1a2-49d61fbef091" />
-
 <p align="center">
+<img width="20" height="20" alt="qLEXRs3" src="https://github.com/user-attachments/assets/37462ee6-9a09-483e-b1a2-49d61fbef091" />
 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=6BCB77&center=true&vCenter=true&width=300&lines=Besties%21">
-</p>
-
 <img width="20" height="20" alt="qLEXRs3" src="https://github.com/user-attachments/assets/32710793-bd00-4ea8-986d-54bfeb842ff7" />
-
+</p>
 ヽ( ⌒o⌒)人(⌒-⌒ )ﾉ
 
 <p align="center">
@@ -292,14 +272,12 @@ __φ(．．) a few little things about me~
 
 ╭────────────────────୨ৎ────────────────────╮
 
-# <img width="20" height="20" alt="KuazRCf" src="https://github.com/user-attachments/assets/2916b535-925c-486d-a03d-b7b5e78d8c30" />
+# 
 
 <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=4D96FF&center=true&vCenter=true&width=536&lines=Let%27s+Be+Friends%21">
-</p>
-
+<img width="20" height="20" alt="KuazRCf" src="https://github.com/user-attachments/assets/2916b535-925c-486d-a03d-b7b5e78d8c30" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=4D96FF&center=true&vCenter=true&width=536&lines=Let%27s+Be+Friends%21">
 <img width="20" height="20" alt="KuazRCf" src="https://github.com/user-attachments/assets/2916b535-925c-486d-a03d-b7b5e78d8c30" />
-
+</p> 
 (っ˘▽˘)(˘▽˘)˘▽˘ς)
 
 ╰────────────────────୨ৎ────────────────────╯
