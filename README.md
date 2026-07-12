@@ -243,7 +243,7 @@ __φ(．．) a few little things about me~
 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=6BCB77&center=true&vCenter=true&width=300&lines=Besties%21">
 <img width="20" height="20" alt="qLEXRs3" src="https://github.com/user-attachments/assets/32710793-bd00-4ea8-986d-54bfeb842ff7" />
 </p>
-ヽ( ⌒o⌒)人(⌒-⌒ )ﾉ
+ヽ( ^o^)人(⌒-⌒ )ﾉ
 
 <p align="center">
 
