@@ -1712,7 +1712,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 <div align="center">
 
-
+# visitor counter :D
 <br><br>
 
 <img src="https://count.getloli.com/get/@MyNameIsSneeze">
