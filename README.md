@@ -263,8 +263,8 @@ __φ(．．) a few little things about me~
   <img src="https://github.com/user-attachments/assets/fb462c08-ee24-4259-b2f5-f2a8a4ea2ca5" width="120" alt="Friend 2">
 </a>
 
-<a href="https://thispersondoesnotexist.com" target="_blank">
-  <img src="https://github.com/user-attachments/assets/deace759-7745-498d-b383-0d73b8d37a85" width="120" alt="Friend 3">
+<a href="https://artfight.net/~ChromosomeCollector" target="_blank">
+  <img src="https://github.com/user-attachments/assets/0ed78144-b1b8-422f-9066-57053c7bfedd" width="120" alt="ChromosomeCollector">
 </a>
 
 </p>
@@ -802,7 +802,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="20" height="20" alt="ohhw3ek" src="https://github.com/user-attachments/assets/2b1bcd27-7ae8-46cf-8b6f-16acee27e80a" />
 <img width="20" height="20" alt="tumblr_267e78df5cd5bbcf8b47a7ce84ca3894_c3efa980_75" src="https://github.com/user-attachments/assets/c75eb7e5-35d7-4999-954d-0ab59efcb68c" />
 <img width="20" height="20" alt="tumblr_429013d727540331a17b12420ed750eb_483d6041_75" src="https://github.com/user-attachments/assets/bef4be67-c4ac-4c9b-ac49-cb26417fe937" />
-<img width="20" height="20" alt="63b0a7fcbb6ab7a2b28b581432273ee9" src="https://github.com/user-attachments/assets/d9011caa-51d7-40d2-80e0-b3c7989c99a7" />
 <img width="20" height="20" alt="4e580e2c0ff544f71b739b0a13c3873b" src="https://github.com/user-attachments/assets/c9ae33f6-3e35-4407-ab5e-31853dea3d60" />
 <img width="20" height="20" alt="f102650110dddf485bbb1b22b176020a" src="https://github.com/user-attachments/assets/d1643662-23b4-48ca-a883-c603c81b2323" />
 <img width="20" height="20" alt="77ad7bfea094e03c95bd60aed49e616e" src="https://github.com/user-attachments/assets/1fe7e069-187c-4a37-acb8-143fe81a43d8" />
@@ -958,14 +957,14 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <!-- Normal sized -->
 <img width="150" height="20" alt="620378726-a1fddd9f-919f-4b75-ae5e-76d16a3c65d9" src="https://github.com/user-attachments/assets/937c15de-5b51-4eb6-a431-35eca946736a" />
 <img width="150" height="20" alt="620382344-cf07f5c9-241f-4ec5-8c82-1d4be14acdc7" src="https://github.com/user-attachments/assets/93310bdb-612a-44f5-9405-652b8cdd738e" />
-<img width="139" height="31" alt="7a09a05be3eb3c4502941601277154ec" src="https://github.com/user-attachments/assets/a9f3d424-ee45-4a79-ace9-358aed4dc6e7" />
+<img width="150" height="20" alt="7a09a05be3eb3c4502941601277154ec" src="https://github.com/user-attachments/assets/a9f3d424-ee45-4a79-ace9-358aed4dc6e7" />
 <img width="150" height="20" alt="138aa1d8067128a56dd14989d67a0d65" src="https://github.com/user-attachments/assets/1ea76eaf-c8c9-451a-8752-3e9a3a2d2063" />
 <img width="150" height="20" alt="49ebe9227227a707e695ed152ea1c19f" src="https://github.com/user-attachments/assets/a44c8d39-3b26-416b-a19c-b9ff9fb17190" />
 <img width="150" height="20" alt="5d6db600b3a88a4299238e9595bc68d5" src="https://github.com/user-attachments/assets/78897da1-76a5-427a-894c-89186919c631" />
 <img width="150" height="20" alt="49f096e6ca0b58951a38605a9265d1e4" src="https://github.com/user-attachments/assets/246dc26c-a16e-470a-a16b-ee0887f0c245" />
 <img width="150" height="20" alt="4bff6563425aee929964568f99e211bc" src="https://github.com/user-attachments/assets/6b33eea0-19a4-4627-8d04-1add5cd1c87d" />
 <img width="150" height="20" alt="0a236406a5435dc650434cb11bc73963" src="https://github.com/user-attachments/assets/25d732a4-aa03-4d11-aed8-cfaa71f2babf" />
-<img width="150" height="25" alt="6a48bf349a4a89b24516fa1d684fce8d" src="https://github.com/user-attachments/assets/d38b72e0-71c3-4ed6-9a6e-214065d8744e" />
+<img width="150" height="20" alt="6a48bf349a4a89b24516fa1d684fce8d" src="https://github.com/user-attachments/assets/d38b72e0-71c3-4ed6-9a6e-214065d8744e" />
 <img width="150" height="20" alt="39743913c40884e708a8592f9851b907" src="https://github.com/user-attachments/assets/188f23b7-f80b-47ec-be59-6ae648f81892" />
 <img width="150" height="20" alt="4a6a498d38311de5db0875c52c80cbc2" src="https://github.com/user-attachments/assets/954f8c1a-6b3a-4896-95ef-a833d56008db" />
 <img width="150" height="20" alt="5f950502310afe6779eb810f39d6bf25" src="https://github.com/user-attachments/assets/80d5d79f-506c-4b75-94a7-0116d87c10e7" />
@@ -1225,11 +1224,9 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="99" height="56" alt="127a8df72318d333d11ab24018ca46a1" src="https://github.com/user-attachments/assets/6783996b-8943-41e5-8357-c578d128414e" />
 <img width="99" height="56" alt="9448a700c8f02bf71e182b73bd75fca2" src="https://github.com/user-attachments/assets/4de25028-12c3-4d47-b70c-885c62301fce" />
 <img width="99" height="56" alt="917d17411e74b7c8ebf648aa8b9f55be" src="https://github.com/user-attachments/assets/24b45668-ae6a-4bb1-99e9-6139257d57e8" />
-<img width="99" height="56" alt="d8dfd4de06b723fabaa976e0abfa16c7" src="https://github.com/user-attachments/assets/025c2d21-a170-49e4-8c8d-108447d70e74" />
 <img width="99" height="56" alt="7236e5dd9238514bda819606384d15c0" src="https://github.com/user-attachments/assets/81ccea2c-73ae-46c4-9b8e-763cc7f77915" />
 <img width="99" height="56" alt="ca2d2f395926fe254e5a2738ac583db0" src="https://github.com/user-attachments/assets/d3a47543-e5f5-45a7-afd3-76a920c94282" />
 <img width="99" height="56" alt="7808c80a4a9ea63114f1374cf6c403af" src="https://github.com/user-attachments/assets/057f5348-7bd1-4384-95ef-b75eb7aa5110" />
-<img width="99" height="56" alt="858379dbba842e4780c7024100861e9e" src="https://github.com/user-attachments/assets/6fad06a7-a729-4730-a746-0a71f14a60fd" />
 <img width="99" height="56" alt="tumblr_4f84e59a458e83cc30c7cfd5f2d4648d_f41f5df5_100" src="https://github.com/user-attachments/assets/53c1a151-1d69-47fc-bb7d-5339dafebe81" />
 <img width="99" height="56" alt="tumblr_8a5062947adff28f8b7989b4abb20901_257beb1a_100" src="https://github.com/user-attachments/assets/275e0362-991c-477d-9e77-185ceb5b480a" />
 <img width="99" height="56" alt="tumblr_95fdc793c20abbae5876cb4f23b64e19_447fedf4_250" src="https://github.com/user-attachments/assets/16ef14fb-2f57-4875-9469-a120d0d4319a" />
@@ -1297,7 +1294,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="99" height="56" alt="17f0c2aa49fc6f8e3e3f008ec8023016" src="https://github.com/user-attachments/assets/47b022e1-0183-4206-90c9-60c0204a6bfd" />
 <img width="99" height="56" alt="d0d3bd5d6f26ec8fdf450562c695638a" src="https://github.com/user-attachments/assets/9a51cd8d-8dac-4c62-86ef-adc0599482e9" />
 <img width="99" height="56" alt="2044b83b1ddced6281b4b0991bf28e99" src="https://github.com/user-attachments/assets/1a8c728e-6400-400e-84d9-309dd0507524" />
-<img width="99" height="56" alt="fe77a32249a4c61028f73d3c6aa31446" src="https://github.com/user-attachments/assets/8e697648-693c-42c2-a959-107b62ccedf7" />
 <img width="99" height="56" alt="bcf764882334347539ffc22897363899" src="https://github.com/user-attachments/assets/9e61e33e-53fa-4756-a9ab-6a52a919e0b5" />
 <img width="99" height="56" alt="tumblr_aded84ad3f7f918f1065d81fbbde1e52_217cac91_100" src="https://github.com/user-attachments/assets/70493958-68fd-4efe-8553-7b82a45646e1" />
 <img width="99" height="56" alt="tumblr_d096eb67cd6d562cec59c51ca0ec629e_c6aeeb07_100" src="https://github.com/user-attachments/assets/c96438ec-04de-460c-9535-c4347a5f94ad" />
@@ -1372,15 +1368,6 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 ## 𝔽𝕒𝕧𝕠𝕣𝕚𝕥𝕖 𝔾𝕀𝔽𝕤
 
 </summary>
-
-<img width="430" height="240" alt="6a053c02939c31fa18faedb84eb61d77" src="https://github.com/user-attachments/assets/70615513-967c-4745-aa9a-07c57ed7919d" />
-<img width="400" height="200" alt="e0500684e2dc381a234256b060964db3" src="https://github.com/user-attachments/assets/90e92366-b806-47a7-ad73-f74cad35b9c8" />
-<img width="380" height="268" alt="b41a84ec61ad66c92ffffa04fb85820b" src="https://github.com/user-attachments/assets/94dc6894-5b3d-445e-9623-0dd323c02d04" />
-<img width="400" height="200" alt="60b10dab7697e8b8e80e428a6a365b57" src="https://github.com/user-attachments/assets/3948e3f0-b077-47ba-bfc6-0ee08a548b79" />
-<img width="400" height="200" alt="66700400d4c5a5bcc9bcd809515fbdce" src="https://github.com/user-attachments/assets/7e19ecf3-4ee7-4e7f-b290-5082c434b6b5" />
-
-
-
 
 <br>
 
@@ -1538,10 +1525,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img src="https://github.com/user-attachments/assets/3dd0ebdc-ec20-40d3-9a93-5d94954ab6c1" width="180">
 </td>
 
-</tr>
-
-<tr>
-<td colspan="3" align="center">
+<td align="center">
 <img width="180" alt="minecraft-discord" src="https://github.com/user-attachments/assets/ac297863-2db6-4452-bc8c-86ef99733b58" />
 </td>
 </tr>
@@ -1650,6 +1634,37 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 </tr>
 
+<tr>
+
+<td align="center">
+<img width="200" alt="6a053c02939c31fa18faedb84eb61d77" src="https://github.com/user-attachments/assets/70615513-967c-4745-aa9a-07c57ed7919d" />
+</td>
+
+<td align="center">
+<img width="200" alt="e0500684e2dc381a234256b060964db3" src="https://github.com/user-attachments/assets/90e92366-b806-47a7-ad73-f74cad35b9c8" />
+</td>
+
+<td align="center">
+<img width="200" alt="b41a84ec61ad66c92ffffa04fb85820b" src="https://github.com/user-attachments/assets/94dc6894-5b3d-445e-9623-0dd323c02d04" />
+</td>
+
+</tr>
+
+<tr>
+
+<td align="center">
+<img width="200" alt="60b10dab7697e8b8e80e428a6a365b57" src="https://github.com/user-attachments/assets/3948e3f0-b077-47ba-bfc6-0ee08a548b79" />
+</td>
+
+<td align="center">
+<img width="200" alt="66700400d4c5a5bcc9bcd809515fbdce" src="https://github.com/user-attachments/assets/7e19ecf3-4ee7-4e7f-b290-5082c434b6b5" />
+</td>
+
+<td align="center">
+</td>
+
+</tr>
+
 </table>
 
 </div>
@@ -1678,7 +1693,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <a href="https://x.com/PrettyWhenOwned" target="_blank">
 <img height="100" src="https://github.com/user-attachments/assets/3c03ed34-37da-434e-b4f1-f0ad1a87b46b" width="100">
 </a>
-<img width="350" height="350" alt="2792b79cc8e40a10574f0a66729d4ecb" src="https://github.com/user-attachments/assets/dada1c35-0347-4dff-a734-9d21cc7cc08b" />
+<img width="100" height="100" alt="2792b79cc8e40a10574f0a66729d4ecb" src="https://github.com/user-attachments/assets/dada1c35-0347-4dff-a734-9d21cc7cc08b" />
 <img width="100" height="100" alt="e44e5f74f5e715e35c925172e804466e" src="https://github.com/user-attachments/assets/46ad4139-2d14-4d43-8a98-ccbf92c7eedf" />
 
 <img height="100" src="https://github.com/user-attachments/assets/e1bb9cb7-87bc-4bd2-95bc-f76d9f902cf7" width="100">
@@ -1701,7 +1716,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="100" height="100" alt="619875506-9b088d26-bd1e-4a09-8ba6-1d3a7b0e3bb6" src="https://github.com/user-attachments/assets/e4a60d74-f5eb-41a6-9741-03e0d2990128" />
 <img width="100" height="100" alt="2f15769f1c3abc623f586e8f3064c7f6" src="https://github.com/user-attachments/assets/6795ebcf-887b-4d40-a05f-4452afa9e226" />
 <img width="100" height="100" alt="0830438796a48f8ca65709dbd2d917b8" src="https://github.com/user-attachments/assets/11fd62b2-0378-4b72-bd37-f3eca5534d06" />
-<img width="100" height="80" alt="0b0626f6b7a7c9e3bc95bac51a44932b" src="https://github.com/user-attachments/assets/cb419dcf-2d15-4e10-ac94-d46c314f1b92" />
+<img width="100" height="100" alt="0b0626f6b7a7c9e3bc95bac51a44932b" src="https://github.com/user-attachments/assets/cb419dcf-2d15-4e10-ac94-d46c314f1b92" />
 
 <img width="100" height="100" alt="619875442-23a9a77b-246d-49c4-a368-0203fede4ec3" src="https://github.com/user-attachments/assets/d60ff325-81d4-4b9d-8fed-d4922db10ee5" />
 <img width="100" height="100" alt="619875416-34d125f1-ef97-494e-be15-e2108753f286" src="https://github.com/user-attachments/assets/286cf034-dc9f-4c9c-9ab4-d23e745c7232" />
@@ -1724,13 +1739,33 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 <br><br>
 
-make "dividers" drop box here with these:
+<div align="center">
+
+<details>
+<summary>
+
+## <img width="20" height="20" alt="KbXT5Rp" src="https://github.com/user-attachments/assets/62a34a08-5bbd-45a3-a30a-8176fe48cd79" /> 𝔻𝕚𝕧𝕚𝕕𝕖𝕣𝕤 <img width="20" height="20" alt="KbXT5Rp" src="https://github.com/user-attachments/assets/62a34a08-5bbd-45a3-a30a-8176fe48cd79" />
+
+</summary>
+
+<br>
+
 <img width="230" height="30" alt="2bccb031ee73fb748008f9081b5722b6" src="https://github.com/user-attachments/assets/6b2e13b9-d571-49f8-b8ac-a4a3160a3d15" />
+<br>
 <img width="230" height="40" alt="34f60a5c0e3787050ffa846b0f71aa83" src="https://github.com/user-attachments/assets/cd674822-dd08-45f2-b818-b8e1d11afbf6" />
+<br>
 <img width="362" height="74" alt="543a28fbbfee026e365f92654039991a" src="https://github.com/user-attachments/assets/02987634-ff3f-4d3b-85c2-7d4c974357a0" />
+<br>
 <img width="200" height="20" alt="619191416-3e9ce1b3-c579-4663-80bf-06d1b96e2ca8" src="https://github.com/user-attachments/assets/e8c75895-795d-4564-b37e-e04dae4406ab" />
+<br>
 <img width="230" height="40" alt="29e20b5169676d681cbb1c9d5bb82d20" src="https://github.com/user-attachments/assets/19486984-ec2a-48d9-ba06-501ef5a13090" />
+<br>
 <img width="450" height="57" alt="02239c0035f239368c7d64a0bebe17bc" src="https://github.com/user-attachments/assets/9c99f631-2617-4dd1-9e16-a591116dcef4" />
+
+<br>
+
+</details>
+</div>
 
 
 <div align="center">
