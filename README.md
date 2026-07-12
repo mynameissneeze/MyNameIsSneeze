@@ -64,7 +64,7 @@
 <img width="685" height="15" alt="60ed2c048d08142fadbf5819faa0d866" src="https://github.com/user-attachments/assets/d2387388-9491-4cb8-b099-4c070a23cf9c" />
 
 <!-- PIXEL-START -->
-<img src="https://github.com/user-attachments/assets/b214659b-5ec0-47ab-a9f3-572c028cae89" width="100">
+<img src="https://github.com/user-attachments/assets/c5e51c2e-8b02-4b0d-a196-f0cdd21144d4" width="100">
 <!-- PIXEL-END -->
 <br>
 
@@ -229,7 +229,7 @@ https://artfight.net/~MyNameIsSneeze
 
 <br><br>
 
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+<img width="230" height="20" alt="d369177a3b43a7e833d67bc4a7465a16" src="https://github.com/user-attachments/assets/e85896ca-d020-4761-a156-9031a1f3ee37" />
 
 ╭───────────────୨ৎ───────────────╮
 <p align="center">
@@ -486,7 +486,7 @@ Coraline • Alice in Wonderland • Spirited Away • Ponyo • Pom Poko • On
 
 Adventure Time • Bee and PuppyCat • Gravity Falls • Futurama • Scott Pilgrim • My Little Pony • Moomin • South Park • Final Space • Aggretsuko • AHHH!! Real Monsters • The Cuphead Show • Code Lyoko • Steven Universe • Star vs. the Forces of Evil • OK K.O.! • Infinity Train • Tuca & Bertie • The Amazing Digital Circus • Home Movies • China, IL • Clone High • Big Top Burger • MTV Downtown • Poppe the Performer
 
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+<img width="608" height="25" alt="843dc11a58af4226d3e64d8ed7efaf17" src="https://github.com/user-attachments/assets/7e380a5d-d90c-4137-b3c8-33ee8a8e6104" />
 
 
 ## <img width="20" height="20" alt="6D71rk6" src="https://github.com/user-attachments/assets/acf34eb5-83a2-458f-87f6-06d5073ad2b7" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=5CE1E6&center=true&vCenter=true&width=250&lines=Favorite+Anime"> <img width="20" height="20" alt="4vZ4stX" src="https://github.com/user-attachments/assets/7282e1e7-99b9-47f2-8298-a45c1c37321a" />
@@ -494,7 +494,7 @@ Adventure Time • Bee and PuppyCat • Gravity Falls • Futurama • Scott Pil
 
 xxxHolic • Durarara!! • Osomatsu-san • Deadman Wonderland • Mob Psycho 100 • Ouran High School Host Club • Soul Eater • Sgt. Frog • Lucky Star • Kakegurui • Nana • FLCL • Panty & Stocking • Bleach • Princess Tutu • Princess Jellyfish • Migi & Dali • Squid Girl • Life Lessons with Uramichi Oniisan • Nichijou • Dandadan
 
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+<img width="240" height="46" alt="179b83017eea50d8cf81b7893f2633c8" src="https://github.com/user-attachments/assets/7ee1d12f-d17c-4488-a161-3302b28b913a" />
 
 
 ## <img width="20" height="20" alt="UL1PL4N" src="https://github.com/user-attachments/assets/0b9f7025-d1b5-4a1e-80d1-1695efb5a580" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=C127F7&center=true&vCenter=true&width=250&lines=Favorite+Games"> <img width="20" height="20" alt="UL1PL4N" src="https://github.com/user-attachments/assets/0b9f7025-d1b5-4a1e-80d1-1695efb5a580" />
@@ -530,7 +530,7 @@ Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries) • Pancakes • Buld
 
 Life Is Strange • Scott Pilgrim
 
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+<img width="500" height="40" alt="ee55bce560fe478542173e66e6b77dde" src="https://github.com/user-attachments/assets/12cfcd1f-377b-4be8-b44f-5905d13b69e4" />
 
 ## <img width="20" height="20" alt="smoACtO" src="https://github.com/user-attachments/assets/ce4a3c9f-42e4-4c18-9b46-8ae8d715979a" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=F94144&center=true&vCenter=true&width=445&lines=Favorite+Brands+%2F+Companies"> <img width="20" height="20" alt="92K393h" src="https://github.com/user-attachments/assets/5bf1caeb-dd45-44bd-8220-cdb7d5306274" />
 
@@ -557,13 +557,13 @@ Life Is Strange • Scott Pilgrim
 
  Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Empusidae Mantises • Hymenopodidae Mantises • Jumping Spiders • Snails • Slugs • Dragon Flys • Fireflies 
 
-<img width="480" height="30" alt="14ce8af38a0d4c86f4a4a7c01c19e478" src="https://github.com/user-attachments/assets/38077319-51de-48a6-9c86-b28887bef0e2" />
+<img width="731" height="29" alt="a13746b1d913968d95392d0552a2ad1e" src="https://github.com/user-attachments/assets/94bf4720-59d8-4a75-af76-0ea2e5056b73" />
 
 ## <img width="20" height="20" alt="XwWMZDw" src="https://github.com/user-attachments/assets/fa0d6f16-b475-4a3f-9acb-61a02e1f228f" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=E76F51&center=true&vCenter=true&width=280&lines=Favorite+Pokemon"> <img width="20" height="20" alt="XwWMZDw" src="https://github.com/user-attachments/assets/fa0d6f16-b475-4a3f-9acb-61a02e1f228f" />
 
  Snorlax • Hypno • Ditto • Miltank • Piplup • Buneary • Sawsbuck • Espurr • Mimikyu • Alcremie • Maushold • Oinkologne • Scream Tail
 
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+<img width="349" height="13" alt="70e238ab1bf7a069ac1c26d35b094668" src="https://github.com/user-attachments/assets/b478f882-ecd6-4c93-9070-982b7b85d756" />
 
 ## <img width="20" height="20" alt="64JT5ug" src="https://github.com/user-attachments/assets/a24a8690-8412-4f8f-ae6f-7eb3cf558770" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=F7B267&center=true&vCenter=true&width=235&lines=Favorite+Idol"> <img width="20" height="20" alt="64JT5ug" src="https://github.com/user-attachments/assets/fda4fda0-95ce-450a-b2ec-11a8de337313" />
 
@@ -616,7 +616,7 @@ PonyTown • Art Fight • Twitter/X • GitHub • Spotify • Pinterest
 
 <img width="23" height="23" alt="tumblr_b2dff9a9cea293aacc112679750756a4_03c503b7_75" src="https://github.com/user-attachments/assets/4ecd218f-31d1-4b97-bf18-1d7b81375618" /> Seasons: Autumn • Spring
 
-﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
+<img width="2048" height="164" alt="48500520c6d5eda733fab5f429fb9817" src="https://github.com/user-attachments/assets/881b0295-2e93-4a8d-b33e-08ac4fed142a" />
 
 ## <img width="20" height="20" alt="3GMCYqS" src="https://github.com/user-attachments/assets/aa9abf99-dc31-4f22-b00d-131ef85936f4" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=FFB4A2&center=true&vCenter=true&width=295&lines=Favorite+Holidays"> <img width="20" height="20" alt="QcADzr3" src="https://github.com/user-attachments/assets/cbb63a33-21d9-431d-abbe-4e2e1dce1eee" />
 
@@ -722,6 +722,14 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="20" height="20" alt="rdKJC7b" src="https://github.com/user-attachments/assets/90942c15-3e8e-4068-bb9f-f1344868bf14" />
 <img width="20" height="20" alt="GUZIMPA" src="https://github.com/user-attachments/assets/4082ba7d-ec64-4935-9182-79040b191246" />
 <br>
+<img width="20" height="20" alt="63c7712edfd5e8131d208754c4edb68b" src="https://github.com/user-attachments/assets/f5a4ca8b-65a5-4967-bd87-1b5647bcd55d" />
+<img width="20" height="20" alt="64bdad286614ac0c1619cd3c4e752af4" src="https://github.com/user-attachments/assets/3a4f886a-a2e9-4f72-a943-33fc117689c4" />
+<img width="20" height="20" alt="2ebe8f88a3a5a6287d91c94544405a59" src="https://github.com/user-attachments/assets/d0dc067d-7266-44f5-8296-af8a92a161af" />
+<img width="20" height="20" alt="63b0a7fcbb6ab7a2b28b581432273ee9" src="https://github.com/user-attachments/assets/db9f77cc-45ce-4b85-8ca1-f91f627a2910" />
+<img width="20" height="20" alt="1417d6a985d37c191e83425d22e3a7d6" src="https://github.com/user-attachments/assets/ea2d9326-1cb5-449e-9cec-c51bef003649" />
+<img width="32" height="32" alt="1989f39a1372bc1bb735e09eba164a15" src="https://github.com/user-attachments/assets/3d1e8b8e-4959-4a42-9e24-4b65812bfb9f" />
+<img width="20" height="20" alt="431b404fd55011a2e9c347840c36c946" src="https://github.com/user-attachments/assets/37bc5f10-769f-4193-acc1-2958e6d6f121" />
+<img width="20" height="20" alt="3f06d88c3d6fce1a601154b49a0258d9" src="https://github.com/user-attachments/assets/1a54a3c5-b849-48b2-94e3-a2290f57307b" />
 <img width="20" height="20" alt="80acdf67167eab25054da6a77b40dae9" src="https://github.com/user-attachments/assets/739ae39e-f1ff-4ddc-ae82-8b2e75e020eb" />
 <img width="20" height="20" alt="ed35882f8d5f2f4b51007fed588d8cc8" src="https://github.com/user-attachments/assets/4dacdc73-d6de-4c49-9122-1f759423b51f" />
 <img width="20" height="20" alt="ba1df98c80b51a65f233b6b55bc84d43" src="https://github.com/user-attachments/assets/00ba781b-ff3d-420d-a640-68cd4411c157" />
@@ -749,6 +757,8 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="15" height="15" alt="66ea42cfea20bf6bf8d6d491cfedb8e0" src="https://github.com/user-attachments/assets/661d4897-8959-4c70-9b6f-de72b16a9653" />
 <img width="20" height="20" alt="8cc1674964f63c5607f39a6577a2c319" src="https://github.com/user-attachments/assets/99334800-e669-40e5-af13-07dfe0a49a80" />
 <img width="20" height="20" alt="tumblr_ab6fe98654f319d19f56d4c10db64b59_06804e44_75" src="https://github.com/user-attachments/assets/909da21a-8177-4e11-b40c-acbd68595f80" />
+<img width="20" height="20" alt="ebbc37d33c7ff82fa7fc578ea7a27dfe" src="https://github.com/user-attachments/assets/bf3fd8bc-c506-4bc8-8e72-28b002f743ec" />
+<img width="20" height="20" alt="1695e6d54c17005e77bacf3dff6e8e27" src="https://github.com/user-attachments/assets/12f86cbd-a16b-46a0-80a9-dcdca1ee0923" />
 <img width="20" height="20" alt="tumblr_1dfcb4bf85ce701e91b160ec439bef61_01a2c5c0_75" src="https://github.com/user-attachments/assets/9284730f-4cdd-4014-b946-becfa6b02ab2" />
 <img width="20" height="20" alt="tumblr_34bfc04f166454845bd129ba970c1f0a_f0addc34_75" src="https://github.com/user-attachments/assets/d476b587-898a-4494-8ebd-9b436f71b459" />
 <img width="20" height="20" alt="tumblr_0740f9309589a658bb96e64d8f4552d9_f9d30ec1_75" src="https://github.com/user-attachments/assets/86263d31-488d-462e-9480-da296fbc3f0b" />
@@ -761,6 +771,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="20" height="20" alt="pig" src="https://github.com/user-attachments/assets/7ea56f4c-64c5-48fd-9b63-432c98d596ef" />
 <img width="20" height="20" alt="beetle4" src="https://github.com/user-attachments/assets/8402003c-7d21-40f4-ac2d-8df6b6868ff2" />
 <img width="20" height="20" alt="tv12" src="https://github.com/user-attachments/assets/a1408288-78c7-489a-913f-c1b70d49577d" />
+<img width="20" height="20" alt="64a9108c3744230c3476ef830d197a0f" src="https://github.com/user-attachments/assets/2d69c765-3f20-4011-a84d-c4abafadd9e1" />
 <img width="20" height="20" alt="ds4" src="https://github.com/user-attachments/assets/0bbb32ef-1199-4d13-bc39-644eed429707" />
 <img width="20" height="20" alt="milk3" src="https://github.com/user-attachments/assets/a0015f24-0f30-4c68-9257-9008a13b30dd" />
 <img width="20" height="20" alt="bowl28" src="https://github.com/user-attachments/assets/79971d61-0195-4f68-be1a-0a19b6753abe" />
@@ -1083,6 +1094,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 <!-- Peepy layer -->
 <img src="https://github.com/user-attachments/assets/774327f8-ab05-496a-9cf2-298a62a4640a" width="250">
+<img width="446" height="60" alt="05dfaaee1202ba504195556d918bb08a" src="https://github.com/user-attachments/assets/d0d9940b-8f69-4200-9caa-e7afae85929c" />
 
 <br>
 
@@ -1146,6 +1158,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="99" height="56" alt="kawaiiness_kawaii46060" src="https://github.com/user-attachments/assets/6e9e6d44-74e6-4a4e-970e-1e79130bd155" />
 
 <br>
+<img width="99" height="56" alt="9d3a02d5eaeca6fcfb2b6da0be59586c" src="https://github.com/user-attachments/assets/7ca129f5-458b-4318-8f2f-26c139ca1e27" />
 <img width="99" height="56" alt="96546420eab076f9f2038f2363b15ac5" src="https://github.com/user-attachments/assets/148afda2-5b5f-425a-a11e-95a3e7ab61db" />
 <img width="99" height="56" alt="94dea0705655315e41d029caac7bb30f" src="https://github.com/user-attachments/assets/09758baa-087c-45e6-a2b1-70275cc82de5" />
 <img width="99" height="55" alt="0387a22963f5191b05091d94d36178db" src="https://github.com/user-attachments/assets/d4c2b5e1-b8df-464a-8436-edd9d6fdfc17" />
@@ -1168,18 +1181,21 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="99" height="56" alt="620380969-c9348424-794b-4f59-a467-d1cc143dc6fa" src="https://github.com/user-attachments/assets/5d6bfdd8-bf68-494d-a3c8-4b7fb91ffc12" />
 <img width="99" height="56" alt="620380915-d45d3d17-7e3a-4230-af74-cac82dbb336a" src="https://github.com/user-attachments/assets/145316c6-83eb-4edc-a4e4-19c6e8444a82" />
 <img width="99" height="56" alt="620380673-c68aeaa0-3892-41df-8731-91ea02746ab7" src="https://github.com/user-attachments/assets/491b6d9b-e6ea-4d42-8d05-c290efbdc757" />
+<img width="99" height="56" alt="31c9912a762a532302f87ac2a574648d" src="https://github.com/user-attachments/assets/fb634dc6-3a5c-42c5-9f8c-8cd0be575ce4" />
 <img width="99" height="56" alt="620380622-2a6f9621-bba2-41a8-b30e-3355f9375921" src="https://github.com/user-attachments/assets/54cc2e1c-f077-4e0c-9a1e-04d30bd872ff" />
 <img width="99" height="56" alt="620380522-69fcae1c-3fdd-4676-be2a-a0711657aa9b" src="https://github.com/user-attachments/assets/ef8eab41-a814-4873-a7bb-bc6be1f2f9ea" />
 <img width="99" height="56" alt="620379506-82a957e0-05d2-4569-8da6-7e9a8d773dfd" src="https://github.com/user-attachments/assets/1e11edcd-5f7c-4708-9943-bccd51362a99" />
 <img width="99" height="56" alt="620377981-4490ca4d-66eb-4455-beaf-97cdb8576628" src="https://github.com/user-attachments/assets/f563be49-7a75-4ebd-acc5-db6d33b2017c" />
 <img width="99" height="56" alt="620377783-f5f51ae2-6805-476d-92f3-a7a7450e1de9" src="https://github.com/user-attachments/assets/c0a2bbde-33a0-4325-bf80-edea7376d09e" />
 <img width="99" height="56" alt="620377646-af469b40-2046-404e-b66a-5b0d39a35861" src="https://github.com/user-attachments/assets/aa1dc63c-5439-4fb2-b71b-fa2dd43def65" />
+<img width="99" height="56" alt="7f5b0e891e3cf4c1034458e606706bba" src="https://github.com/user-attachments/assets/a596fb92-6f97-40c5-98ed-a76877585818" />
 <img width="99" height="56" alt="620377601-f152de30-3ba9-4355-a8b3-14b92e03db8e" src="https://github.com/user-attachments/assets/858da7b9-651e-4434-a24b-9cd3e6400c8a" />
 <img width="99" height="56" alt="620377574-16661db7-20d1-4e05-93dc-9040107dcde7" src="https://github.com/user-attachments/assets/f3d7a060-d0af-41e5-a69f-15124d0b1bd2" />
 <img width="99" height="56" alt="620377531-7643dae2-7e10-4ee7-8d3a-885c082e3f32" src="https://github.com/user-attachments/assets/381eaa43-1ca0-466c-8077-7b0e9960f24d" />
 <img width="99" height="56" alt="620377503-44add8bf-d5dd-46c4-b53f-26948e7cdc6a" src="https://github.com/user-attachments/assets/e16e9506-1bc0-4d41-ad47-efd378406359" />
 <img width="99" height="56" alt="620381981-c78dd698-cdfc-4c72-9cd8-2c6be706062c" src="https://github.com/user-attachments/assets/fb43f0fd-a1fd-46ca-9083-efd9f33b7959" />
 <img width="99" height="56" alt="620381968-f52cddab-2c12-4b62-b86a-b02161470454" src="https://github.com/user-attachments/assets/f12b9d0f-c5bb-4a86-bf18-b8cff98a9114" />
+<img width="99" height="56" alt="1fbca8a7fa73bd1ef039257783e07301" src="https://github.com/user-attachments/assets/0f0339c7-1456-4d55-872e-a59ec6f2c1c1" />
 <img width="99" height="56" alt="620381906-0c6d04fe-1bc9-4794-b3a3-82163f7888c9" src="https://github.com/user-attachments/assets/c79ec84e-88b7-4a2a-9335-7d5343cf3dc1" />
 <img width="99" height="56" alt="620381843-d24d1f21-759c-456c-a96d-490bdce3e48d" src="https://github.com/user-attachments/assets/1a618ff4-5409-4ef5-b8ce-64b8c336b4b2" />
 <img width="99" height="56" alt="620383220-b6ba0f59-71d7-42ec-aaea-cb4618c2eb46" src="https://github.com/user-attachments/assets/7f8247d7-b902-450d-ba79-65ba2c096aea" />
@@ -1696,6 +1712,7 @@ make "dividers" drop box here with these:
 <img width="230" height="40" alt="34f60a5c0e3787050ffa846b0f71aa83" src="https://github.com/user-attachments/assets/cd674822-dd08-45f2-b818-b8e1d11afbf6" />
 <img width="362" height="74" alt="543a28fbbfee026e365f92654039991a" src="https://github.com/user-attachments/assets/02987634-ff3f-4d3b-85c2-7d4c974357a0" />
 <img width="200" height="20" alt="619191416-3e9ce1b3-c579-4663-80bf-06d1b96e2ca8" src="https://github.com/user-attachments/assets/e8c75895-795d-4564-b37e-e04dae4406ab" />
+<img width="230" height="40" alt="29e20b5169676d681cbb1c9d5bb82d20" src="https://github.com/user-attachments/assets/19486984-ec2a-48d9-ba06-501ef5a13090" />
 
 
 <div align="center">
