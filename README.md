@@ -32,19 +32,21 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&pause=1700&color=C127F7&center=true&vCenter=true&width=650&lines=𝓗𝓮𝔂,+𝓘'𝓶+𝓢𝓷𝓮𝓮𝔃𝓮!;Digital+Artist;Professional+Stoner;OC+Creator;Pixel+Collector;Welcome+to+my+little+corner+♡)](https://git.io/typing-svg)
 
+<img width="112" height="112" alt="cdb6ef86-6f87-4f73-8db0-623f04a05b75" src="https://github.com/user-attachments/assets/18f59d9a-26f7-4b02-9847-d037d6b64e77" />
+
 </div>
 ⊹₊ ⋆ ⟡ ⋆ ₊⊹
 <br>
 
 ### Random Pixel Art
 
-<img width="685" height="15" alt="60ed2c048d08142fadbf5819faa0d866" src="https://github.com/user-attachments/assets/d2387388-9491-4cb8-b099-4c070a23cf9c" />
 <br>
 
 <!-- PIXEL-START -->
 <img src="https://github.com/user-attachments/assets/dd18b1ce-4d1a-4798-addc-7ecbe6bdbcff" width="100">
 <!-- PIXEL-END -->
 <br>
+<img width="685" height="15" alt="60ed2c048d08142fadbf5819faa0d866" src="https://github.com/user-attachments/assets/d2387388-9491-4cb8-b099-4c070a23cf9c" />
 
 # 
 <p align="center">
