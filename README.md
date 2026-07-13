@@ -573,7 +573,7 @@ PonyTown • Art Fight • Twitter/X • GitHub • Spotify • Pinterest
 <img width="158" height="19" alt="413b514a38e049227ede373ba588ef1a" src="https://github.com/user-attachments/assets/adcf42d2-fa6d-476d-b12d-26bd1dc7dd50" /><img width="158" height="19" alt="413b514a38e049227ede373ba588ef1a" src="https://github.com/user-attachments/assets/adcf42d2-fa6d-476d-b12d-26bd1dc7dd50" />
 
 
-## <img width="20" height="20" alt="S89ceBR" src="https://github.com/user-attachments/assets/c2118473-3784-485f-9c68-063e7d0e1ebe" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=06D6A0&center=true&vCenter=true&width=220&lines=Phobias"> <img width="20" height="20" alt="S89ceBR" src="https://github.com/user-attachments/assets/826a0c8d-bd1c-41b3-a272-b5e1285f5c0e" />
+## <img width="18" height="18" alt="a3a1a9ee222bc02f4b7c3b024541101e" src="https://github.com/user-attachments/assets/b50d80ce-8ee0-4b99-9982-c10bd8b1f08f" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=06D6A0&center=true&vCenter=true&width=220&lines=Phobias"> <img width="18" height="18" alt="a3a1a9ee222bc02f4b7c3b024541101e" src="https://github.com/user-attachments/assets/b50d80ce-8ee0-4b99-9982-c10bd8b1f08f" />
 
 
  Thalassophobia • Trypophobia • Acrophobia • Scopophobia • Megalophobia • astraphobia
