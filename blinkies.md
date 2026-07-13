@@ -102,7 +102,6 @@
 <img width="88" height="31" alt="fic012" src="https://github.com/user-attachments/assets/f6c56d90-7f5c-4810-aa4c-61ce58e8495d" />
 <img width="88" height="31" alt="froggygif" src="https://github.com/user-attachments/assets/17aa9146-eefe-4a97-a799-1acbddc2ec00" />
 <img width="88" height="31" alt="diva" src="https://github.com/user-attachments/assets/482510ae-1203-4495-a6b5-d40e5181b6d6" />
-<img width="88" height="31" alt="dk" src="https://github.com/user-attachments/assets/b7a88a6d-a4db-41b3-b281-ab79624f53b0" />
 <img width="88" height="31" alt="ezgif2" src="https://github.com/user-attachments/assets/a4d6e4ef-fc03-4703-a8f1-bd1a4a4534ac" />
 <img width="88" height="31" alt="88-31-banner" src="https://github.com/user-attachments/assets/545827bd-fb59-4bae-94ca-0acf989d912f" />
 <img width="88" height="31" alt="88x31pinkmarble" src="https://github.com/user-attachments/assets/d3673e95-305c-4024-b662-28e3a1af1098" />
