@@ -244,30 +244,23 @@ __φ(．．) a few little things about me~
 - My favorite aesthetic is anything cute, spooky, nostalgic, colorful, or weird.
 
 ╭────────────────────୨ৎ────────────────────╮
-
 <p align="center">
 <img width="20" height="20" alt="qLEXRs3" src="https://github.com/user-attachments/assets/37462ee6-9a09-483e-b1a2-49d61fbef091" />
 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=6BCB77&center=true&vCenter=true&width=300&lines=Besties%21">
 <img width="20" height="20" alt="qLEXRs3" src="https://github.com/user-attachments/assets/32710793-bd00-4ea8-986d-54bfeb842ff7" />
 </p>
 ヽ( ^o^)人(⌒-⌒ )ﾉ
-
 <p align="center">
-
 <a href="https://bsky.app/profile/sunnyduckling.bsky.social" target="_blank">
   <img src="https://github.com/user-attachments/assets/435ae51e-2832-4b18-9b9d-b4d9deb7fa4e" width="120" alt="Sunny Duckling">
 </a>
-
-<a href="https://thispersondoesnotexist.com" target="_blank">
-  <img src="https://github.com/user-attachments/assets/fb462c08-ee24-4259-b2f5-f2a8a4ea2ca5" width="120" alt="Friend 2">
+<a href="https://www.youtube.com/@Schmerk" target="_blank">
+  <img src="https://github.com/user-attachments/assets/ca33f38c-6725-456f-a130-c5a032798636" width="120" alt="Schmerk">
 </a>
-
 <a href="https://artfight.net/~ChromosomeCollector" target="_blank">
   <img src="https://github.com/user-attachments/assets/0ed78144-b1b8-422f-9066-57053c7bfedd" width="120" alt="ChromosomeCollector">
 </a>
-
 </p>
-
 ╰────────────────────୨ৎ────────────────────╯
 
 <br>
