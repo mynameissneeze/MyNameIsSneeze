@@ -10,6 +10,8 @@ Favicons
 
 Blinkies
 
+<img width="150" height="20" alt="silly-blinkie" src="https://github.com/user-attachments/assets/3ca6e258-7b4b-474f-ae12-08f001fce456" />
+<img width="151" height="20" alt="dowhatmakesuhappy" src="https://github.com/user-attachments/assets/903d0e70-18c0-4b27-b74c-686b8b5d041c" />
 
 <br>
 
@@ -21,15 +23,46 @@ Tiny blinkies
 
 
 smaller blinkies
-
+<img width="88" height="31" alt="btn-silvercruiser" src="https://github.com/user-attachments/assets/d7099538-3a62-4f95-8157-7b853cc79ab4" />
+<img width="88" height="31" alt="bobbles" src="https://github.com/user-attachments/assets/2894b028-0fbc-4227-b6c6-28644412d589" />
+<img width="88" height="31" alt="bikobatanari" src="https://github.com/user-attachments/assets/f66fb45c-be6e-4720-b4eb-e1eb334b8a77" />
+<img width="88" height="31" alt="brolove" src="https://github.com/user-attachments/assets/90bfb9d9-b8b6-4f2d-b4b0-a5386bba32cb" />
+<img width="88" height="31" alt="arizona" src="https://github.com/user-attachments/assets/be0924fd-f43b-4716-a0e2-a01a45b126dd" />
+<img width="88" height="31" alt="anarchy-now" src="https://github.com/user-attachments/assets/1a0b38c4-ecbc-44a6-a795-a022ea4e0fc7" />
+<img width="88" height="31" alt="anibanner" src="https://github.com/user-attachments/assets/01a61dbc-6d01-4af8-8d17-65f90e379c3b" />
+<img width="88" height="31" alt="b-pm" src="https://github.com/user-attachments/assets/75c260b7-bf7d-4667-b597-3e269941d5db" />
+<img width="88" height="31" alt="fingerofgod" src="https://github.com/user-attachments/assets/ad23aff8-5627-4b77-bdbd-d86102e49ae5" />
+<img width="88" height="31" alt="c88_01" src="https://github.com/user-attachments/assets/ec47ddcb-c87c-4bfe-b6f1-9ffb3e2a2e99" />
+<img width="88" height="31" alt="fic012" src="https://github.com/user-attachments/assets/f6c56d90-7f5c-4810-aa4c-61ce58e8495d" />
+<img width="88" height="31" alt="froggygif" src="https://github.com/user-attachments/assets/17aa9146-eefe-4a97-a799-1acbddc2ec00" />
+<img width="88" height="31" alt="diva" src="https://github.com/user-attachments/assets/482510ae-1203-4495-a6b5-d40e5181b6d6" />
+<img width="88" height="31" alt="dk" src="https://github.com/user-attachments/assets/b7a88a6d-a4db-41b3-b281-ab79624f53b0" />
+<img width="88" height="31" alt="ezgif2" src="https://github.com/user-attachments/assets/a4d6e4ef-fc03-4703-a8f1-bd1a4a4534ac" />
+<img width="88" height="31" alt="88-31-banner" src="https://github.com/user-attachments/assets/545827bd-fb59-4bae-94ca-0acf989d912f" />
+<img width="88" height="31" alt="88x31pinkmarble" src="https://github.com/user-attachments/assets/d3673e95-305c-4024-b662-28e3a1af1098" />
+<img width="88" height="31" alt="alltits" src="https://github.com/user-attachments/assets/4e5b6846-2afe-4e53-8c03-a1176ff9177f" />
 <img width="88" height="31" alt="5ed836e88bb532dfc44a175bbcffd807" src="https://github.com/user-attachments/assets/0e598174-58fc-41f8-8d05-f748f88593e7" />
+<img width="88" height="31" alt="fic002" src="https://github.com/user-attachments/assets/8d09e57d-4f2f-4018-a373-ca0d0ecb9d79" />
 <img width="88" height="31" alt="b6f8b99a30e6c9637d5344bfb00de8e0" src="https://github.com/user-attachments/assets/f6f7b30e-a411-43ca-8334-db632d2863b0" />
 <img width="88" height="31" alt="f3c1754edd245c2947884c98808fd5a8" src="https://github.com/user-attachments/assets/59af18fe-b05d-45b0-aefb-bd75565363d3" />
 <img width="88" height="31" alt="00b6f9c2d34f82aa29d863dbee05f0d5" src="https://github.com/user-attachments/assets/49541502-9f02-48a9-938f-50b44942f6f7" />
 <img width="88" height="31" alt="7fe10f273f6f5487aebc3d86e6e118a9" src="https://github.com/user-attachments/assets/5f53b43d-f6c6-45e2-a32f-b0dcbb14106c" />
+<img width="88" height="31" alt="fic005" src="https://github.com/user-attachments/assets/c177b9fd-8903-4ea5-a065-5cbf371ca781" />
+<img width="88" height="31" alt="88x31whitemarble" src="https://github.com/user-attachments/assets/ca3abd21-db33-470b-84f2-0e741566eec0" />
 <img width="88" height="31" alt="3cb986a4e5bae24081e48eee6f5507d0" src="https://github.com/user-attachments/assets/05205f37-97fc-442f-b6e0-c8e7e50429a2" />
 <img width="88" height="31" alt="e513268cc99600bf20422995833da91d" src="https://github.com/user-attachments/assets/2bfc2596-f317-46fc-b75b-3cc5e449c724" />
 <img width="88" height="31" alt="c333df757f7f54139267b75df1e96f35" src="https://github.com/user-attachments/assets/59c509aa-a9dd-4f70-a19d-b15c6f71cee1" />
+<img width="88" height="31" alt="88x31greenmarble" src="https://github.com/user-attachments/assets/55decbc7-9a8b-4faa-87ac-164ca0b4784c" />
+<img width="88" height="31" alt="fic009" src="https://github.com/user-attachments/assets/5587eff7-54a3-4910-a12f-aced37767d51" />
+<img width="88" height="31" alt="imhigh" src="https://github.com/user-attachments/assets/082cbb99-74f9-4a84-826e-097ef1045326" />
+<img width="88" height="31" alt="github" src="https://github.com/user-attachments/assets/94d0f5df-a8e2-409e-8a45-b464e126cf8f" />
+<img width="88" height="31" alt="juas_bu1" src="https://github.com/user-attachments/assets/8e487eec-ec33-4e29-ac1d-c11f52b2346a" />
+<img width="88" height="31" alt="shithole" src="https://github.com/user-attachments/assets/8e3d70e1-1278-4d62-bd10-34ed21a53034" />
+<img width="88" height="31" alt="nonbinary" src="https://github.com/user-attachments/assets/9f525314-ce60-48fd-9058-27a1197da284" />
+<img width="88" height="31" alt="noodle" src="https://github.com/user-attachments/assets/c0f324d8-6805-4f8c-86d6-a86e55d3b86c" />
+<img width="88" height="31" alt="u239b4" src="https://github.com/user-attachments/assets/94ffa34e-dc39-48df-bff7-d80b28ec7947" />
+<img width="88" height="31" alt="eeldnb" src="https://github.com/user-attachments/assets/bde678e7-f528-4b5a-b5b6-ac05849bd423" />
+<img width="100" height="35" alt="tumblr_7b5d27f9a6c69b5d9d22f449e2eb5d73_efe5b8b8_250" src="https://github.com/user-attachments/assets/6d1c7d38-8ef2-48ea-8d1a-f7f224f5d893" />
 
 <br>
 
@@ -38,13 +71,18 @@ bigger blinkies
 <br>
 
 stamps
+<img width="95" height="58" alt="tumblr_8db257366fc8585c17164cf803edc194_3cc98403_250" src="https://github.com/user-attachments/assets/a4522e22-23e4-49ae-9c2d-389646c5d5d5" />
+<img width="99" height="55" alt="tumblr_97a0c487981805269ed73917f48adb21_8a55d63e_250" src="https://github.com/user-attachments/assets/ebd3f75e-8511-47e8-bb65-d9629f10d6b5" />
+<img width="101" height="57" alt="jerma_burger_stamp_by_kingokingobeat_def0xs5" src="https://github.com/user-attachments/assets/2e48d41a-6aed-4645-b189-47da58293811" />
+<img width="99" height="56" alt="dusk_by_aphose_d8kq8yv" src="https://github.com/user-attachments/assets/76a01469-6fd3-4bab-8e3b-4812bff55d7b" />
+<img width="99" height="56" alt="txp5u0" src="https://github.com/user-attachments/assets/d305b878-0776-4206-ab55-ee35e46da1f4" />
 
 <br>
 
 
 Gifs
-<img width="69" height="62" alt="34298f08705991ae6de8c877f388c9d4" src="https://github.com/user-attachments/assets/0c86a957-d600-4bd5-8478-feb2d632b9ab" />
 <img width="750" height="487" alt="72be09be9fc9107db448940471cc195e" src="https://github.com/user-attachments/assets/eb75671d-a9ab-469a-968a-d7763668c5b3" />
+<img width="500" height="154" alt="tumblr_mcsvhtfxUy1qzf6qto1_500" src="https://github.com/user-attachments/assets/8ebc5861-f6c2-44ae-b966-7d07fbb5f182" />
 
 <br>
 
@@ -136,9 +174,25 @@ Pixels
 <img width="48" height="54" alt="tumblr_50254711f629424be6cbbda5c9dd6766_78b55e60_75" src="https://github.com/user-attachments/assets/62d4a032-649f-4842-8a1f-d543733b0885" />
 <img width="106" height="45" alt="tumblr_1266bde433585357c98695836af59643_0a84197b_250" src="https://github.com/user-attachments/assets/898eb7e6-5aef-45c7-ad50-79691471105c" />
 <img width="87" height="30" alt="tumblr_3e25568ad98ef7ede34ff1a64c300ea5_7bf96d6d_250" src="https://github.com/user-attachments/assets/f2ab6065-fd00-48fc-83cd-138cf331d14e" />
+<img width="69" height="62" alt="34298f08705991ae6de8c877f388c9d4" src="https://github.com/user-attachments/assets/0c86a957-d600-4bd5-8478-feb2d632b9ab" />
+<img width="74" height="59" alt="tumblr_182a419cd885fd5b5675340eb8a341e7_571b8b56_75" src="https://github.com/user-attachments/assets/4fcf04b4-0cd9-4f39-8c52-069c622c0bc9" />
+<img width="70" height="65" alt="tumblr_91e8bc7593a49ecfdc47e98ea72d25bb_48254ead_75" src="https://github.com/user-attachments/assets/849e5d87-7f16-4eab-85bb-da14dc70b70a" />
+<img width="50" height="50" alt="miemiechan-unicorn" src="https://github.com/user-attachments/assets/406c9e76-932c-4794-b631-972659b89d23" />
+<img width="200" height="200" alt="tumblr_0d99b69b9c980b92be9b503317e481c8_ae5caab7_250" src="https://github.com/user-attachments/assets/8fba2c8a-1236-4c18-836b-0fec03e3e7c5" />
+<img width="200" height="200" alt="tumblr_a8fc88565272b521f50631635209ba5a_3728a25b_250" src="https://github.com/user-attachments/assets/723c7958-ad17-41c3-8a10-7dcfc1596618" />
+<img width="200" height="200" alt="tumblr_4d776c0f6eb0ad87620dbe5a0bfb0773_e4847fd5_250" src="https://github.com/user-attachments/assets/f38805d6-a5c3-411f-acd2-3c30311f1f6f" />
+<img width="65" height="107" alt="tumblr_llxrf29CWM1qkvalqo1_100" src="https://github.com/user-attachments/assets/d26d329e-ca60-4a25-b9d5-7f1dfe5e272d" />
+<img width="90" height="90" alt="tumblr_bcb03f6513809c97605b08fb28c277aa_4a50cf89_250" src="https://github.com/user-attachments/assets/2547b900-2334-4f35-a382-1f24643d38d2" />
+<img width="90" height="90" alt="tumblr_li6h4rxGJM1qgee9lo1_100" src="https://github.com/user-attachments/assets/ef60b952-9acc-430f-9492-da985fff2d2d" />
+<img width="104" height="135" alt="tumblr_e130486b4470d663a32575b97f343b23_c3bf10e0_250" src="https://github.com/user-attachments/assets/5f1077ef-310b-4122-a9ef-f0ae6888b56b" />
 
 <br>
 
 Dividers
+<img width="412" height="80" alt="tumblr_2213cb8d339100c53d6f7f2de59abd01_dd66bfd8_500" src="https://github.com/user-attachments/assets/f20ec444-0bd3-4fe0-ab23-6fd4c6f3d043" />
+<img width="350" height="32" alt="tumblr_69e32c4c945255de22b24a72297a69f2_ad3c2b24_400" src="https://github.com/user-attachments/assets/cf3c04d3-708b-4129-995d-737007a73603" />
+<img width="408" height="73" alt="tumblr_e7f16514b68ccb5825fbc9fc0d3c5fdc_d2d355f0_500" src="https://github.com/user-attachments/assets/f859a04f-bc4d-4e7d-8b26-b0db796bddc2" />
+<img width="212" height="85" alt="tumblr_2bc687d85e3f9ddbc08a7914587120e9_4bbbb570_250" src="https://github.com/user-attachments/assets/2f58e5dd-a67e-443b-bd77-052e6c907a53" />
+<img width="342" height="147" alt="tumblr_lllzuqFPzc1qkvalqo1_400" src="https://github.com/user-attachments/assets/f410b596-4859-416d-b644-8437062c9832" />
 
 <img width="600" height="103" alt="ea7e7e9a00a23eb85a52949876636ed0" src="https://github.com/user-attachments/assets/9fd7b9d4-408a-4762-b83e-c641a8ae68ef" />
