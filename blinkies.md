@@ -354,7 +354,6 @@
 <img width="150" height="20" alt="cringeisded" src="https://github.com/user-attachments/assets/536c1c34-0ee0-4764-a70c-331a45a83638" />
 <img width="150" height="20" alt="danger-to-society" src="https://github.com/user-attachments/assets/0d2acb28-1f7e-4d00-a9be-c34939731484" />
 <img width="150" height="20" alt="birdapp" src="https://github.com/user-attachments/assets/8e3710e2-9e44-44d2-8890-53f21f28e80d" />
-<img width="150" height="20" alt="imbeingputdown" src="https://github.com/user-attachments/assets/58a1fbaa-e229-4d93-9bfc-5443a0fd5651" />
 <img width="150" height="20" alt="blackcat" src="https://github.com/user-attachments/assets/4ed821ca-14d0-4ed8-9d91-531f5cd64674" />
 <img width="150" height="20" alt="crying and throwing up" src="https://github.com/user-attachments/assets/453bff13-c68c-43a1-8f3e-b6b12196873e" />
 <img width="150" height="20" alt="eepy" src="https://github.com/user-attachments/assets/1ec0b081-5e4d-43d0-83bd-78525bd83aa6" />
