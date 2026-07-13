@@ -1,12 +1,10 @@
 
 <div align="center">
+ <img width="150" height="20" alt="a17" src="https://github.com/user-attachments/assets/b5a4473c-229d-47e9-b03e-67e261c14185" />
 <p align="center">
 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=FF9F45&center=true&vCenter=true&width=676&lines=Current+Hyperfixations">
 </p>
  
- ### UNDER CONSTRUCTION SORRY
-<img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
-
  AHHH!! Real Monsters •  My Little Pony • watching animated shows/movies •  Drawing OCs •  PonyTown •  Roblox •  Collecting GIFs, Blinkies & Stamps
 
 <br>
