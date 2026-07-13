@@ -59,7 +59,7 @@
 ⊹₊ ⋆ ⟡ ⋆ ₊⊹
 <br>
 
-### Random Pixel Art
+### Random Pixel Art/Gifs
 
 <br>
 
