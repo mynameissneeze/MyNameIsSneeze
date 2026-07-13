@@ -136,7 +136,17 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 [![Discord Presence](https://lanyard-profile-readme.vercel.app/api/444124108654116864)](https://github.com/Phineas/lanyard-profile-readme)
 
-ヾ(・ω・)メ(・ω・)ノ
+╭────────────────────୨ৎ────────────────────╮
+
+# 
+
+<p align="center">
+<img width="20" height="20" alt="KuazRCf" src="https://github.com/user-attachments/assets/2916b535-925c-486d-a03d-b7b5e78d8c30" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=4D96FF&center=true&vCenter=true&width=536&lines=Let%27s+Be+Friends%21">
+<img width="20" height="20" alt="KuazRCf" src="https://github.com/user-attachments/assets/2916b535-925c-486d-a03d-b7b5e78d8c30" />
+</p> 
+(っ˘▽˘)(˘▽˘)˘▽˘ς)
+
+╰────────────────────୨ৎ────────────────────╯
 
 <br><br>
 <img src="https://github.com/user-attachments/assets/1ddd9970-c4b7-4006-abff-6d0068a72b60" width="145">
@@ -267,17 +277,6 @@ __φ(．．) a few little things about me~
 
 <br>
 
-╭────────────────────୨ৎ────────────────────╮
-
-# 
-
-<p align="center">
-<img width="20" height="20" alt="KuazRCf" src="https://github.com/user-attachments/assets/2916b535-925c-486d-a03d-b7b5e78d8c30" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=4D96FF&center=true&vCenter=true&width=536&lines=Let%27s+Be+Friends%21">
-<img width="20" height="20" alt="KuazRCf" src="https://github.com/user-attachments/assets/2916b535-925c-486d-a03d-b7b5e78d8c30" />
-</p> 
-(っ˘▽˘)(˘▽˘)˘▽˘ς)
-
-╰────────────────────୨ৎ────────────────────╯
 
 <img src="https://github.com/user-attachments/assets/f81531f2-5136-40ea-8c36-dd7dfc01e797" width="145">
 
@@ -308,7 +307,6 @@ __φ(．．) a few little things about me~
 </p>
 
 ╰───────────────୨ৎ───────────────╯
-
 
 <br>
 
