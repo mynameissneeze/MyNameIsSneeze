@@ -43,6 +43,8 @@ stamps
 
 
 Gifs
+<img width="69" height="62" alt="34298f08705991ae6de8c877f388c9d4" src="https://github.com/user-attachments/assets/0c86a957-d600-4bd5-8478-feb2d632b9ab" />
+<img width="750" height="487" alt="72be09be9fc9107db448940471cc195e" src="https://github.com/user-attachments/assets/eb75671d-a9ab-469a-968a-d7763668c5b3" />
 
 <br>
 
@@ -99,6 +101,9 @@ Pixels
 <img width="75" height="83" alt="ab43676347743b2c89a57b179e7fcb7e" src="https://github.com/user-attachments/assets/2ceda98e-57a5-4934-8366-ab1efd1e602e" />
 <img width="56" height="90" alt="ef1f49cf68de11c17e23f3d0c9624e0f" src="https://github.com/user-attachments/assets/cad6ac1f-15af-4517-bfe6-c738eec7a6a0" />
 <img width="24" height="48" alt="26953690b6d3e4c55a28230596dc5969" src="https://github.com/user-attachments/assets/76ee2208-4466-48f9-aeb3-9d29d791ed77" />
+<img width="184" height="113" alt="c052a9fb523722cd12231afc99f5598d" src="https://github.com/user-attachments/assets/a1c25fbe-69ed-4bf2-a21a-5ad9b9d33db1" />
+<img width="46" height="47" alt="feb69dcc78e520526d7dc49d87e6a967" src="https://github.com/user-attachments/assets/23acb3b1-bb4b-48b9-a32a-d2abe7d2d7a1" />
+<img width="131" height="139" alt="9cdb8dc0b5efd32be266f54730584a1d" src="https://github.com/user-attachments/assets/04b4f6fb-753a-464c-aa0c-34b0915a70e4" />
 
 <img width="57" height="50" alt="8fef15af73bf05401428b3e74c3de28f" src="https://github.com/user-attachments/assets/25210b31-93b9-4ac4-9ded-e43484006a40" />
 <img width="195" height="185" alt="4350dfde3dc3ad5e820002b7c8b61f1e" src="https://github.com/user-attachments/assets/0ae4c7a1-f040-4b18-bdd1-4f06e4b57127" />
