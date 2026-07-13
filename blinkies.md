@@ -4,6 +4,8 @@
 
 <!-- Tiny Blinkies -->
 
+<img width="80" height="15" alt="tumblr_0a6ea262608baf7fa846802d5ad1c370_a2744ad9_100" src="https://github.com/user-attachments/assets/a6748879-dd0a-4cc7-a25d-2b38c078e47e" />
+<img width="80" height="15" alt="tumblr_2c02f3cf955f75bb0d359798085be544_05882a8b_100" src="https://github.com/user-attachments/assets/2561dc42-f9a0-47e6-a3bb-27ce779513e4" />
 <img width="80" height="15" alt="a2b6c99c29be6e3175e4a6e7ff138f3c" src="https://github.com/user-attachments/assets/4747767d-6919-4aa5-8607-36a4a861cafa" />
 <img width="80" height="15" alt="92f4e9e11453ba7dd14e04a222bc0f2a" src="https://github.com/user-attachments/assets/14b2182e-f75d-4713-800c-3cf47b9684a8" />
 <img width="80" height="15" alt="99aff123f156c3f4cea036191689b596" src="https://github.com/user-attachments/assets/b26ac4ea-4c9f-452f-a023-80c4629d9958" />
