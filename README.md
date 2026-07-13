@@ -695,7 +695,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <details>
 <summary>
 
-## 𝔹𝕝𝕚𝕟𝕜𝕚𝕖𝕤
+## <img width="20" height="20" alt="6b518171d0e8aec994ca4c0ce1fab5d9" src="https://github.com/user-attachments/assets/6f729bac-6dd4-4e1a-8888-32c51af8c62f" /> 𝔹𝕝𝕚𝕟𝕜𝕚𝕖𝕤 <img width="20" height="20" alt="6b518171d0e8aec994ca4c0ce1fab5d9" src="https://github.com/user-attachments/assets/6f729bac-6dd4-4e1a-8888-32c51af8c62f" />
 
 </summary>
 
@@ -789,7 +789,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 <summary>
 
-## 𝔽𝕒𝕧𝕠𝕣𝕚𝕥𝕖 𝔾𝕀𝔽𝕤
+## <img width="20" height="20" alt="66e9afb6bb0ff452a1946715dd0e7137" src="https://github.com/user-attachments/assets/b3d5e019-50b9-4090-86fe-db23fd716d8b" /> 𝔽𝕒𝕧𝕠𝕣𝕚𝕥𝕖 𝔾𝕀𝔽𝕤 <img width="20" height="20" alt="66e9afb6bb0ff452a1946715dd0e7137" src="https://github.com/user-attachments/assets/b3d5e019-50b9-4090-86fe-db23fd716d8b" />
 
 </summary>
 
@@ -828,7 +828,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 <summary>
 
-## ℝ𝕒𝕟𝕕𝕠𝕞 𝕀𝕟𝕥𝕖𝕣𝕟𝕖𝕥 𝕋𝕙𝕚𝕟𝕘𝕤
+## <img width="20" height="20" alt="15868f5ba664966d92beed2cbeefabbc" src="https://github.com/user-attachments/assets/2aee8828-691d-4148-b536-83e7bf5f5aa9" /> ℝ𝕒𝕟𝕕𝕠𝕞 𝕀𝕟𝕥𝕖𝕣𝕟𝕖𝕥 𝕋𝕙𝕚𝕟𝕘𝕤 <img width="20" height="20" alt="15868f5ba664966d92beed2cbeefabbc" src="https://github.com/user-attachments/assets/2aee8828-691d-4148-b536-83e7bf5f5aa9" />
 
 </summary>
 
@@ -865,7 +865,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <details>
 <summary>
 
-## <img width="20" height="20" alt="KbXT5Rp" src="https://github.com/user-attachments/assets/62a34a08-5bbd-45a3-a30a-8176fe48cd79" /> 𝔻𝕚𝕧𝕚𝕕𝕖𝕣𝕤 <img width="20" height="20" alt="KbXT5Rp" src="https://github.com/user-attachments/assets/62a34a08-5bbd-45a3-a30a-8176fe48cd79" />
+## <img width="22" height="22" alt="d608cb8040a62e787ac44d1e93fefeb6" src="https://github.com/user-attachments/assets/04113bfa-f379-45f3-ad5e-cda58db71604" /> 𝔻𝕚𝕧𝕚𝕕𝕖𝕣𝕤 <img width="22" height="22" alt="d608cb8040a62e787ac44d1e93fefeb6" src="https://github.com/user-attachments/assets/04113bfa-f379-45f3-ad5e-cda58db71604" />
 
 </summary>
 
