@@ -144,7 +144,7 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 <img width="20" height="20" alt="KuazRCf" src="https://github.com/user-attachments/assets/2916b535-925c-486d-a03d-b7b5e78d8c30" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=4D96FF&center=true&vCenter=true&width=536&lines=Let%27s+Be+Friends%21">
 <img width="20" height="20" alt="KuazRCf" src="https://github.com/user-attachments/assets/2916b535-925c-486d-a03d-b7b5e78d8c30" />
 </p> 
-(っ˘▽˘)(˘▽˘)˘▽˘ς)
+ヽ( ^o^)人(⌒-⌒ )ﾉ
 
 ╰────────────────────୨ৎ────────────────────╯
 
@@ -261,7 +261,7 @@ __φ(．．) a few little things about me~
 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=6BCB77&center=true&vCenter=true&width=300&lines=Besties%21">
 <img width="20" height="20" alt="qLEXRs3" src="https://github.com/user-attachments/assets/32710793-bd00-4ea8-986d-54bfeb842ff7" />
 </p>
-ヽ( ^o^)人(⌒-⌒ )ﾉ
+(っ˘▽˘)(˘▽˘)˘▽˘ς)
 <p align="center">
 <a href="https://bsky.app/profile/sunnyduckling.bsky.social" target="_blank">
   <img src="https://github.com/user-attachments/assets/435ae51e-2832-4b18-9b9d-b4d9deb7fa4e" width="120" alt="Sunny Duckling">
