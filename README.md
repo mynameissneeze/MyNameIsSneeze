@@ -34,6 +34,26 @@
 
 <img width="112" height="112" alt="cdb6ef86-6f87-4f73-8db0-623f04a05b75" src="https://github.com/user-attachments/assets/18f59d9a-26f7-4b02-9847-d037d6b64e77" />
 
+
+<img width="20" height="20" alt="375" src="https://github.com/user-attachments/assets/b7677099-3a38-4373-af28-50b49c1489f3" /> **25** • <img width="20" height="20" alt="607" src="https://github.com/user-attachments/assets/28ee9642-6161-4efd-91ce-b0d8641b8b4b" /> **Taken** • <img width="20" height="20" alt="378" src="https://github.com/user-attachments/assets/0b9e85fe-60b9-4fc7-96da-c02d3e0b5bf1" /> **She / Her / They / Them**
+
+<img width="20" height="20" alt="FTwwRc8" src="https://github.com/user-attachments/assets/f3b754f3-470d-4294-bd8b-46157a339d1e" /> **Digital Artist** • **Character Creator** • **Cartoon Lover** <img width="20" height="20" alt="FTwwRc8" src="https://github.com/user-attachments/assets/f3b754f3-470d-4294-bd8b-46157a339d1e" />
+
+
+<br>
+
+<img width="20" height="20" alt="128" src="https://github.com/user-attachments/assets/4ed97f7c-7509-4e98-a791-262070ee2592" /> **Commissions:** **OPEN**
+
+<img width="20" height="20" alt="251" src="https://github.com/user-attachments/assets/cd65f97a-c46f-4e1f-a261-b3044a4b8b93" /> **DMs:** **ALWAYS OPEN**
+
+<img width="20" height="20" alt="HetNHZ2" src="https://github.com/user-attachments/assets/37737f3a-0c87-41c3-bc4c-cfe14e5b0ba0" /> You'll usually find me as **MyNameIsSneeze** on just about every platform!
+
+<img width="20" height="20" alt="82EiYBS" src="https://github.com/user-attachments/assets/78b4bba1-f74c-4b03-8337-c6a76795048b" /> I'm a little shy at first, but once I get comfortable I love chatting and making new friends. (｡•̀ᴗ-)✧ <img width="20" height="20" alt="82EiYBS" src="https://github.com/user-attachments/assets/a8fcc6af-2833-4eee-baf5-ee04d68225c2" />
+
+
+<img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/4b359526-db37-4d9b-ac06-b4713abd32b2" /> I absolutely love introducing people to new movies, animation, anime, indie cartoons, and horror films! <img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/53002b65-6e14-48e4-8987-dd1e2ba7a601" />
+
+
 </div>
 ⊹₊ ⋆ ⟡ ⋆ ₊⊹
 <br>
@@ -196,25 +216,6 @@ https://artfight.net/~MyNameIsSneeze
 ### <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=FFD93D&center=true&vCenter=true&width=265&lines=little+about+me"> <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" />
 
 ╰───────────────୨ৎ───────────────╯
-
-💜 **25** • 💍 **Taken** • 🌸 **She / Her** • ✨ **They / Them**
-
-<img width="20" height="20" alt="FTwwRc8" src="https://github.com/user-attachments/assets/f3b754f3-470d-4294-bd8b-46157a339d1e" /> **Digital Artist** • **Character Creator** • **Cartoon Lover** <img width="20" height="20" alt="FTwwRc8" src="https://github.com/user-attachments/assets/f3b754f3-470d-4294-bd8b-46157a339d1e" />
-
-
-<br>
-
-🎨 **Commissions:** **OPEN**
-
-📱 **DMs:** **ALWAYS OPEN**
-
-<img width="20" height="20" alt="HetNHZ2" src="https://github.com/user-attachments/assets/37737f3a-0c87-41c3-bc4c-cfe14e5b0ba0" /> You'll usually find me as **MyNameIsSneeze** on just about every platform!
-
-<img width="20" height="20" alt="82EiYBS" src="https://github.com/user-attachments/assets/78b4bba1-f74c-4b03-8337-c6a76795048b" /> I'm a little shy at first, but once I get comfortable I love chatting and making new friends. (｡•̀ᴗ-)✧ <img width="20" height="20" alt="82EiYBS" src="https://github.com/user-attachments/assets/a8fcc6af-2833-4eee-baf5-ee04d68225c2" />
-
-
-<img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/4b359526-db37-4d9b-ac06-b4713abd32b2" /> I absolutely love introducing people to new movies, animation, anime, indie cartoons, and horror films! <img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/53002b65-6e14-48e4-8987-dd1e2ba7a601" />
-
 
 
 <br><br>
