@@ -1,4 +1,4 @@
-# 🌐 Random Internet Things
+# 🌐 Icons
 
 <div align="center">
 
