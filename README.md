@@ -1,5 +1,8 @@
-
 <div align="center">
+
+<img width="600" height="30" alt="2d9fc25df39cb57085c028e67cfe4711" src="https://github.com/user-attachments/assets/db0139b5-27d3-469a-8e3e-482717144642" />
+<br>
+
  <img width="150" height="20" alt="a17" src="https://github.com/user-attachments/assets/b5a4473c-229d-47e9-b03e-67e261c14185" />
 <p align="center">
 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=FF9F45&center=true&vCenter=true&width=676&lines=Current+Hyperfixations">
@@ -208,14 +211,6 @@ https://artfight.net/~MyNameIsSneeze
 
 <br><br>
 
-<img width="385" height="29" alt="2d9fc25df39cb57085c028e67cfe4711" src="https://github.com/user-attachments/assets/db0139b5-27d3-469a-8e3e-482717144642" />
-
-╭───────────────୨ৎ───────────────╮
-
-### <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=FFD93D&center=true&vCenter=true&width=265&lines=little+about+me"> <img width="20" height="20" alt="2b5C3cq" src="https://github.com/user-attachments/assets/cb1bf951-4de5-4e4a-8646-0b4e874836eb" />
-
-╰───────────────୨ৎ───────────────╯
-
 
 <br><br>
 
@@ -411,17 +406,15 @@ __φ(．．) a few little things about me~
 
 <br><br>
 
-<img width="385" height="29" alt="6052555cdada2e757f2012ed3553eb65" src="https://github.com/user-attachments/assets/c0e1b319-30b2-4c91-933b-f0e2d0da8356" />
+<img width="600" height="30" alt="6052555cdada2e757f2012ed3553eb65" src="https://github.com/user-attachments/assets/c0e1b319-30b2-4c91-933b-f0e2d0da8356" />
 
 ╭──────────────────୨ৎ──────────────────╮
 
-# <img width="20" height="20" alt="gxooN7b" src="https://github.com/user-attachments/assets/68b04731-a577-48de-92e0-1e1cf2f2a27a" />
-
 <p align="center">
+ <img width="20" height="20" alt="gxooN7b" src="https://github.com/user-attachments/assets/68b04731-a577-48de-92e0-1e1cf2f2a27a" />
 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=FF5DA2&center=true&vCenter=true&width=396&lines=All+About+Me">
-</p>
-
 <img width="20" height="20" alt="gxooN7b" src="https://github.com/user-attachments/assets/68b04731-a577-48de-92e0-1e1cf2f2a27a" />
+</p>
 
 ### °˖✧◝(⁰▿⁰)◜✧˖°
 
