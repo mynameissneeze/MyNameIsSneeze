@@ -764,7 +764,7 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="99" height="56" alt="617921589-9b292d41-da05-49b7-8b59-57e26a60f218" src="https://github.com/user-attachments/assets/f15f2c22-f481-418c-8e8f-b7ac6a66e2d0" />
 <img width="99" height="56" alt="617297072-8efcdb90-7064-437f-88f5-c54991bfaa7b" src="https://github.com/user-attachments/assets/0e3ff227-ebea-4403-b944-e8a179e49ffa" />
 <img width="99" height="56" alt="617297036-d02b70da-8872-4ef6-a15d-7d3720610757" src="https://github.com/user-attachments/assets/cef53974-b498-469b-8ccc-79cf0928005d" />
-<img width="298" height="168" alt="618569786-18afb188-a0e8-46f3-abad-f87d724d1577" src="https://github.com/user-attachments/assets/1f056453-df9e-4a3b-9ca0-e1713694e4b4" />
+<img width="99" height="56" alt="618569786-18afb188-a0e8-46f3-abad-f87d724d1577" src="https://github.com/user-attachments/assets/1f056453-df9e-4a3b-9ca0-e1713694e4b4" />
 <img width="101" height="57" alt="618569848-638cee87-09c6-4cb1-a4bc-b304f649b86b" src="https://github.com/user-attachments/assets/1bade4db-4ec8-4653-8398-3e89271beaf0" />
 <img width="99" height="56" alt="618650740-bf91c568-d2ab-4fa7-a5b9-d86eea195b47" src="https://github.com/user-attachments/assets/26e8cad7-049a-4d8c-a300-c3f240d394c9" />
 <img width="99" height="56" alt="618646238-119088c5-7595-4825-bb67-967e777515fe" src="https://github.com/user-attachments/assets/16e38ba0-f8b8-4c73-8334-931eae613704" />
