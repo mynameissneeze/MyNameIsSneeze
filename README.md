@@ -465,7 +465,7 @@ Marble Hornets • Welcome Home • Homestuck • ENA • The Walten Files • T
 
 ⭐ **Favorite SCP:** Long Horse
 
-🎞️ **Favorite Web Series / YouTube Animations:** ENA • Porkchop • Flatscreen
+🎞️ **Favorite Web Series / YouTube Animations:** ENA • Porkchop & Flatscreen
 
 <img width="240" height="46" alt="divider" src="https://github.com/user-attachments/assets/7ee1d12f-d17c-4488-a161-3302b28b913a" />
 
