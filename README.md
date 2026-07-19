@@ -1,7 +1,7 @@
 
 <div align="center">
 
-<img width="600" height="30" alt="2d9fc25df39cb57085c028e67cfe4711" src="https://github.com/user-attachments/assets/db0139b5-27d3-469a-8e3e-482717144642" />
+<img width="600" height="30" alt="6052555cdada2e757f2012ed3553eb65" src="https://github.com/user-attachments/assets/c0e1b319-30b2-4c91-933b-f0e2d0da8356" />
 <br>
 
  <img width="150" height="20" alt="a17" src="https://github.com/user-attachments/assets/b5a4473c-229d-47e9-b03e-67e261c14185" />
@@ -406,7 +406,7 @@ __φ(．．) a few little things about me~
 
 <img src="https://github.com/user-attachments/assets/39cae4ea-3084-4765-9d0f-e5a7046748da" width="145">
 
-<img width="600" height="30" alt="6052555cdada2e757f2012ed3553eb65" src="https://github.com/user-attachments/assets/c0e1b319-30b2-4c91-933b-f0e2d0da8356" />
+<img width="600" height="30" alt="2d9fc25df39cb57085c028e67cfe4711" src="https://github.com/user-attachments/assets/db0139b5-27d3-469a-8e3e-482717144642" />
 
 ╭──────────────────୨ৎ──────────────────╮
 
