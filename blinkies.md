@@ -1,5 +1,9 @@
 # ✨ Blinkie Collection
 
+
+[⬅ Back to Profile](README.md)
+
+
 <div align="center">
 
 <!-- Tiny Blinkies -->
