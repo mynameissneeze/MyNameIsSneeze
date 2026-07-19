@@ -1,3 +1,4 @@
+
 <div align="center">
 
 <img width="600" height="30" alt="2d9fc25df39cb57085c028e67cfe4711" src="https://github.com/user-attachments/assets/db0139b5-27d3-469a-8e3e-482717144642" />
@@ -400,7 +401,9 @@ __φ(．．) a few little things about me~
 
 <br><br>
 
+<a href="https://drive.google.com/drive/folders/1DQ1jIgqsiN1puhSVclovq4r15skB1pZF" target="_blank">
 <img src="https://github.com/user-attachments/assets/0c37c4f6-f28d-451e-b719-d30f8167783f" width="145">
+</a>
 
 <img src="https://github.com/user-attachments/assets/39cae4ea-3084-4765-9d0f-e5a7046748da" width="145">
 
@@ -830,7 +833,9 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 </summary>
 
 <div align="center">
-
+<a href="https://x.com/PrettyWhenOwned" target="_blank">
+<img width="96" height="96" alt="617965503-e1bb9cb7-87bc-4bd2-95bc-f76d9f902cf7" src="https://github.com/user-attachments/assets/5bf92656-8b42-4f19-95b7-f56cd4b8bf10" />
+</a>
 <img height="100" src="https://github.com/user-attachments/assets/36672c7d-ac9a-41a7-81bb-ffc5434bcf40" width="100">
 <img height="100" src="https://github.com/user-attachments/assets/3c03ed34-37da-434e-b4f1-f0ad1a87b46b" width="100">
 <img width="100" height="100" alt="2792b79cc8e40a10574f0a66729d4ecb" src="https://github.com/user-attachments/assets/dada1c35-0347-4dff-a734-9d21cc7cc08b" />
@@ -868,6 +873,8 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 <br>
 
+<div align="center">
+
 <img width="450" alt="2bccb031ee73fb748008f9081b5722b6" src="https://github.com/user-attachments/assets/6b2e13b9-d571-49f8-b8ac-a4a3160a3d15" />
 <img width="450" alt="34f60a5c0e3787050ffa846b0f71aa83" src="https://github.com/user-attachments/assets/cd674822-dd08-45f2-b818-b8e1d11afbf6" />
 <img width="450" alt="543a28fbbfee026e365f92654039991a" src="https://github.com/user-attachments/assets/02987634-ff3f-4d3b-85c2-7d4c974357a0" />
@@ -892,7 +899,12 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 <img width="450" alt="tumblr_a708835fed4326359f98cd909ba9ce1c_2c2dcbc9_540" src="https://github.com/user-attachments/assets/427762c2-d0a6-4538-9af9-a94cafb7bd1a" />
 <img width="450" alt="tumblr_3005daf1a32a2bf68010f725e805d044_9e4a50c5_500" src="https://github.com/user-attachments/assets/5e82b6d1-9ce0-4331-96d3-1efd83396a03" />
 <img width="450" alt="ea7e7e9a00a23eb85a52949876636ed0" src="https://github.com/user-attachments/assets/9fd7b9d4-408a-4762-b83e-c641a8ae68ef" />
+
 <br>
+
+➡️ **[View Collection](dividers.md)**
+
+</div>
 
 </details>
 </div>
