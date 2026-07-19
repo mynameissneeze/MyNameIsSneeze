@@ -1,4 +1,5 @@
 # 🎞️ GIF Collection
+[⬅ Back to Profile](README.md)
 
 <div align="center">
 <img width="200" alt="72be09be9fc9107db448940471cc195e" src="https://github.com/user-attachments/assets/eb75671d-a9ab-469a-968a-d7763668c5b3" />
