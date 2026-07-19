@@ -230,6 +230,7 @@ https://artfight.net/~MyNameIsSneeze
 __φ(．．) a few little things about me~
 
 - I draw almost exclusively with my finger.
+- I have six tattoos and six piercings
 - I'm completely self-taught.
 - I love creating original characters and writing lore for them.
 - I make way too many OCs.
