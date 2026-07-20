@@ -65,7 +65,7 @@
 <br>
 
 <!-- PIXEL-START -->
-<img src="https://github.com/user-attachments/assets/f88a7c0c-9853-4ef5-aa91-5a13e9f99b5f" width="100">
+<img src="https://github.com/user-attachments/assets/730327d5-b6ce-40ab-9206-9cd1e7c3b204" width="100">
 <!-- PIXEL-END -->
 <br>
 <img width="685" height="15" alt="60ed2c048d08142fadbf5819faa0d866" src="https://github.com/user-attachments/assets/d2387388-9491-4cb8-b099-4c070a23cf9c" />
