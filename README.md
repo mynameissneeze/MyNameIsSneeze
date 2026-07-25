@@ -18,6 +18,34 @@
 ✦ ˢᵒᵐᵉ ᵖⁱᶜᵗᵘʳᵉˢ ᵃⁿᵈ ˡⁱⁿᵏˢ ᵃʳᵉ ⁱⁿᵗᵉʳᵃᶜᵗⁱᵛᵉ ;)
 <br>
 
+### <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=FF9F45&center=true&vCenter=true&width=460&lines=Welcome+to+my+little+corner%21">
+
+<br><br>
+
+╭────────────────────୨ৎ────────────────────╮
+
+## ─═✧✧═─
+
+<p align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=B19CD9&center=true&vCenter=true&width=396&lines=Come+say+Hi%21">
+</p>
+
+─═✧✧═─
+
+╰────────────────────୨ৎ────────────────────╯
+
+<a href="https://ko-fi.com/mynameissneeze" target="_blank">
+  <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHJ3MG5rcTFrODhzdDBhNXEybDNqY2s3cmxwOTY0NXlpbHIyOXVtdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/9mNKXFygkCeOWekWew/giphy.gif" width="120" alt="Support me on Ko-fi">
+</a>
+
+<br>
+
+<a href="https://mynameissneeze.straw.page" target="_blank">
+  <img
+    src="https://github.com/user-attachments/assets/6630cde2-a56e-4c48-b0c5-b787e1e3f230"
+    width="150"
+    alt="Visit my Strawpage">
+</a>
 
 <br>
 
@@ -121,34 +149,6 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
   >
 </a>
 
-### <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=FF9F45&center=true&vCenter=true&width=460&lines=Welcome+to+my+little+corner%21">
-
-<br><br>
-
-╭────────────────────୨ৎ────────────────────╮
-
-## ─═✧✧═─
-
-<p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=B19CD9&center=true&vCenter=true&width=396&lines=Come+say+Hi%21">
-</p>
-
-─═✧✧═─
-
-╰────────────────────୨ৎ────────────────────╯
-
-<a href="https://ko-fi.com/mynameissneeze" target="_blank">
-  <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHJ3MG5rcTFrODhzdDBhNXEybDNqY2s3cmxwOTY0NXlpbHIyOXVtdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/9mNKXFygkCeOWekWew/giphy.gif" width="120" alt="Support me on Ko-fi">
-</a>
-
-<br>
-
-<a href="https://mynameissneeze.straw.page" target="_blank">
-  <img
-    src="https://github.com/user-attachments/assets/6630cde2-a56e-4c48-b0c5-b787e1e3f230"
-    width="150"
-    alt="Visit my Strawpage">
-</a>
 
 <br>
 
