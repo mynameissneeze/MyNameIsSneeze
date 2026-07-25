@@ -64,7 +64,7 @@
 <img width="112" height="112" alt="cdb6ef86-6f87-4f73-8db0-623f04a05b75" src="https://github.com/user-attachments/assets/18f59d9a-26f7-4b02-9847-d037d6b64e77" />
 
 
-<img width="20" height="20" alt="494" src="https://github.com/user-attachments/assets/d93769a1-41fc-4ed6-8b96-e504222a85d5" /> **25** • <img width="20" height="20" alt="607" src="https://github.com/user-attachments/assets/28ee9642-6161-4efd-91ce-b0d8641b8b4b" /> **Taken** • <img width="20" height="20" alt="378" src="https://github.com/user-attachments/assets/0b9e85fe-60b9-4fc7-96da-c02d3e0b5bf1" /> **She / Her / They / Them** <img width="20" height="20" alt="494" src="https://github.com/user-attachments/assets/c86df186-f088-4a4f-bd19-e6f761bb4fda" />
+<img width="20" height="20" alt="494" src="https://github.com/user-attachments/assets/d93769a1-41fc-4ed6-8b96-e504222a85d5" /> **25** • <img width="20" height="20" alt="607" src="https://github.com/user-attachments/assets/28ee9642-6161-4efd-91ce-b0d8641b8b4b" /> **Taken (8–9 years)** • <img width="20" height="20" alt="378" src="https://github.com/user-attachments/assets/0b9e85fe-60b9-4fc7-96da-c02d3e0b5bf1" /> **Nonbinary / Pansexual** <img width="20" height="20" alt="494" src="https://github.com/user-attachments/assets/c86df186-f088-4a4f-bd19-e6f761bb4fda" />
 
 
 <img width="20" height="20" alt="FTwwRc8" src="https://github.com/user-attachments/assets/f3b754f3-470d-4294-bd8b-46157a339d1e" /> **Digital Artist** • **Character Creator** • **Cartoon Lover** <img width="20" height="20" alt="FTwwRc8" src="https://github.com/user-attachments/assets/f3b754f3-470d-4294-bd8b-46157a339d1e" />
@@ -93,7 +93,7 @@
 <br>
 
 <!-- PIXEL-START -->
-<img src="https://github.com/user-attachments/assets/f9d4143f-17b4-4cbf-921a-327bd3220035" width="100">
+<img src="https://github.com/user-attachments/assets/6cc212c3-5eb4-43e1-affd-c8752f0ed77f" width="100">
 <!-- PIXEL-END -->
 <br>
 <img width="685" height="15" alt="60ed2c048d08142fadbf5819faa0d866" src="https://github.com/user-attachments/assets/d2387388-9491-4cb8-b099-4c070a23cf9c" />
@@ -437,9 +437,15 @@ Milk Rot — Young Cloudy • Bite Marks — Logan Levy • Drive Off a Bridge �
 
 <img width="600" height="40" alt="divider" src="https://github.com/user-attachments/assets/a56a6b97-fcf1-4a9a-be51-da06407c8df6" />
 
+## 🧬 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=9D4EDD&center=true&vCenter=true&width=200&lines=Kins"> ✨
+
+Fluttershy / Pinkie Pie (My Little Pony) • Bee (Bee and PuppyCat) • Mabel Pines (Gravity Falls) • Panty (Panty & Stocking) • Finn / BMO (Adventure Time) • Steven / Amethyst (Steven Universe) • Tuca (Tuca & Bertie) • Eclipsa / Star (Star vs. the Forces of Evil)
+
+<img width="349" height="13" alt="divider" src="https://github.com/user-attachments/assets/b478f882-ecd6-4c93-9070-982b7b85d756" />
+
 ## 💕 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=FF5DA2&center=true&vCenter=true&width=350&lines=Comfort+Characters"> ✨
 
-Snufkin (Moomin) • Cinnamoroll (Sanrio) • Ickis (AHHH!! Real Monsters) • Leon Kennedy (Resident Evil) • BMO (Adventure Time) • Fluttershy (My Little Pony) • Rarity (My Little Pony) • Bee (Bee and PuppyCat)
+Snufkin (Moomin) • Cinnamoroll (Sanrio) • Ickis (AHHH!! Real Monsters) • Leon Kennedy (Resident Evil) • Rarity / Discord / Princess Luna (My Little Pony)
 
 <img width="349" height="13" alt="divider" src="https://github.com/user-attachments/assets/b478f882-ecd6-4c93-9070-982b7b85d756" />
 
@@ -495,7 +501,8 @@ Halloween • Christmas • Valentine's Day • Thanksgiving
 
 ## 🕸️ <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=5CE1E6&center=true&vCenter=true&width=450&lines=Internet+Fandoms+%2F+Web+Series"> 🌐
 
-ENA • Porkchop • Flatscreen • Marble Hornets • Welcome Home • Homestuck • The Walten Files • The Mandela Catalogue • Salad Fingers • Angel Gabby • This House Has People In It • Unedited Footage of a Bear • Alan Tutorial • Backrooms • ARGs • Analog Horror • Liminal Spaces • Lost Media
+- **Shows/Series:** Bridge Kids, ENA, Porkchop, Flatscreen
+- **Fandoms:** Marble Hornets, Welcome Home, Homestuck, The Walten Files, The Mandela Catalogue, Salad Fingers, Angel Gabby, This House Has People In It, Unedited Footage of a Bear, Alan Tutorial, Backrooms, ARGs, Analog Horror, Liminal Spaces, Lost Media
 
 <img width="240" height="46" alt="divider" src="https://github.com/user-attachments/assets/7ee1d12f-d17c-4488-a161-3302b28b913a" />
 
@@ -503,14 +510,14 @@ ENA • Porkchop • Flatscreen • Marble Hornets • Welcome Home • Homestuc
 ## <img width="20" height="20" alt="Hzvbpcm" src="https://github.com/user-attachments/assets/70e309ce-7fab-4941-a5b2-91baf358c27c" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=B19CD9&center=true&vCenter=true&width=250&lines=Favorite+Films"> <img width="20" height="20" alt="NVOIYcI" src="https://github.com/user-attachments/assets/3e157d4b-fb9a-4847-b3e5-8a9fefc0b1d8" />
 
 
-Coraline • Alice in Wonderland • Spirited Away • Ponyo • Pom Poko • Only Yesterday • The Night Is Short, Walk on Girl • Win or Lose • Ride Your Wave • Your Name • A Silent Voice • Thirteen Ghosts • Signs • Hereditary • Willy's Wonderland • The Witch • The Autopsy of Jane Doe • Scary Stories to Tell in the Dark • Silent Hill • Skinamarink • The Visit • As Above, So Below • The Blair Witch Project • Hell House LLC • Grave Encounters • Last Shift • The Ritual • The Possession • The Backrooms • Creep 1 & 2 • Spiderverse • The Labyrinth • The Dark Crystal • Never Ending Story
+Coraline • Alice in Wonderland • Spirited Away • Ponyo • Pom Poko • Only Yesterday • The Night Is Short, Walk on Girl • Win or Lose • Ride Your Wave • Your Name • A Silent Voice • Thirteen Ghosts • Signs • Hereditary • Willy's Wonderland • The Witch • The Autopsy of Jane Doe • Scary Stories to Tell in the Dark • Silent Hill • Skinamarink • The Visit • As Above, So Below • The Blair Witch Project • Hell House LLC • Grave Encounters • Last Shift • The Ritual • The Possession • The Backrooms • Creep 1 & 2 • Spiderverse • The Labyrinth • The Dark Crystal • Never Ending Story • The Book Master • Little Monsters
 
 <img width="230" height="20" alt="tumblr_7ff2a3500907912e0db00a6ab4be33b6_06c045b1_250" src="https://github.com/user-attachments/assets/5515a8b8-2472-4269-b1f3-859fe6941ac2" />
 
 ## <img width="20" height="20" alt="D0YJB9M" src="https://github.com/user-attachments/assets/1495a226-eb60-4b98-bea0-cc691cb8f415" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=FF5DA2&center=true&vCenter=true&width=250&lines=Favorite+Shows"> <img width="20" height="20" alt="D0YJB9M" src="https://github.com/user-attachments/assets/1495a226-eb60-4b98-bea0-cc691cb8f415" />
 
 
-Adventure Time • Bee and PuppyCat • Gravity Falls • Futurama • Scott Pilgrim • My Little Pony • Moomin • South Park • Final Space • Aggretsuko • AHHH!! Real Monsters • The Cuphead Show • Code Lyoko • Steven Universe • Star vs. the Forces of Evil • OK K.O.! • Infinity Train • Tuca & Bertie • The Amazing Digital Circus • Home Movies • China, IL • Clone High • Big Top Burger • MTV Downtown • Poppe the Performer • The Oblongs • The Venture Bros • Metalocalypse • Rick and Morty • Smiling Friends • The Boondocks • Aqua Teen Hunger Force • The Eric André Show • Moral Orel • Superjail! • Avatar: The Last Airbender • Over the Garden Wall • BoJack Horseman • Arcane • Hilda • The Owl House • Bob's Burgers • Disenchantment • Inside Job • Solar Opposites • Drawn Together • Kipo and the Age of Wonderbeasts • The Midnight Gospel • Regular Show • Craig of the Creek • Ducktails • Rin & Stimpy • The Legend of Korra • The Dragon Prince • F is for Family • American Dad • Centaurworld
+Adventure Time • Bee and PuppyCat • Gravity Falls • Futurama • Scott Pilgrim • My Little Pony • Moomin • South Park • Final Space • Aggretsuko • AHHH!! Real Monsters • The Cuphead Show • Code Lyoko • Steven Universe • Star vs. the Forces of Evil • OK K.O.! • Infinity Train • Tuca & Bertie • The Amazing Digital Circus • Home Movies • China, IL • Clone High • Big Top Burger • MTV Downtown • Poppe the Performer • The Oblongs • The Venture Bros • Metalocalypse • Rick and Morty • Smiling Friends • The Boondocks • Aqua Teen Hunger Force • The Eric André Show • Moral Orel • Superjail! • DuckTales • Avatar: The Last Airbender • Over the Garden Wall • BoJack Horseman • Arcane • Hilda • The Owl House • Bob's Burgers • Disenchantment • Inside Job • Solar Opposites • Drawn Together • Kipo and the Age of Wonderbeasts • The Midnight Gospel • Regular Show • Craig of the Creek • Ren & Stimpy • The Legend of Korra • The Dragon Prince • F is for Family • American Dad • Centaurworld • Summer Camp Island • Clarence • King of the Hill
 
 <img width="608" height="25" alt="843dc11a58af4226d3e64d8ed7efaf17" src="https://github.com/user-attachments/assets/7e380a5d-d90c-4137-b3c8-33ee8a8e6104" />
 
@@ -524,7 +531,7 @@ xxxHolic • Durarara!! • Osomatsu-san • Deadman Wonderland • Mob Psycho 1
 
 ## ⭐ <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=9D4EDD&center=true&vCenter=true&width=350&lines=Favorite+Characters"> 💫
 
-Wally Darling (Welcome Home) • Venomous (OK K.O.!) • Carol (OK K.O.!) • Finn (Adventure Time) • Mabel Pines (Gravity Falls) • Gamzee (Homestuck) • Sebastian (Stardew Valley) • Sun & Moon (Five Nights at Freddy's) • Amethyst (Steven Universe) • Eclipsa (Star vs. the Forces of Evil) • Tuca (Tuca & Bertie) • Paula (Home Movies) • Ichimatsu (Osomatsu-san) • Panty & Brief (Panty & Stocking) • Hikaru & Kaoru (Ouran High School Host Club) • Jeff the Killer (Creepypasta) • Grunkle Stan (Gravity Falls) • Tadano (Aggretsuko)
+Wally Darling (Welcome Home) • Venomous / Carol (OK K.O.!) • Gamzee (Homestuck) • Sebastian (Stardew Valley) • Sun & Moon (Five Nights at Freddy's) • Amethyst (Steven Universe) • Paula (Home Movies) • Ichimatsu (Osomatsu-san) • Brief (Panty & Stocking) • Hikaru & Kaoru (Ouran High School Host Club) • Jeff the Killer (Creepypasta) • Grunkle Stan (Gravity Falls) • Tadano (Aggretsuko)
 
 <img width="349" height="13" alt="divider" src="https://github.com/user-attachments/assets/b478f882-ecd6-4c93-9070-982b7b85d756" />
 
@@ -538,17 +545,8 @@ Kiwi Tapes • Smokey MCC • OneyPlays • Markiplier • Night Mind • CaseOh
 
 Minecraft • PonyTown • Cookie Run: Kingdom • Cult of the Lamb • Dead by Daylight • The Classrooms • Five Nights at Freddy's • Grounded • The Forest • Lethal Company • Life Is Strange • Resident Evil • Saints Row • Raft • Stardew Valley • Webfishing • Fran Bow • Content Warning • 7 Days to Die • Bigfoot • Roblox • Skyrim • Yandere Simulator • Silent Hill • Hello Kitty Island Adventure • Kletka • Hitman • Degrees of Lewdity • Alice: Madness Returns • What Remains of Edith Finch • Reka • Schedule 1 • Wizard101 • Wobbledogs
 
-<img width="240" height="20" alt="divider" src="https://github.com/user-attachments/assets/645c341c-2d8b-4790-99dc-353b29fc02b9" />
-
-## <img width="20" height="20" alt="mPhaeJl" src="https://github.com/user-attachments/assets/1a3e0970-3149-4837-945b-bb7084ccdd8e" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=6D6875&center=true&vCenter=true&width=535&lines=Favorite+Animal+Crossing+Villagers"> <img width="20" height="20" alt="mPhaeJl" src="https://github.com/user-attachments/assets/1a3e0970-3149-4837-945b-bb7084ccdd8e" />
-
- Pierce • Celia
-
-<img width="600" height="40" alt="71804f23b857b18d1aaabbdb34bbf959" src="https://github.com/user-attachments/assets/ae780afb-8bf2-4686-9d72-1e11ec7dcc84" />
-
-## <img width="20" height="20" alt="XwWMZDw" src="https://github.com/user-attachments/assets/fa0d6f16-b475-4a3f-9acb-61a02e1f228f" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=E76F51&center=true&vCenter=true&width=280&lines=Favorite+Pokemon"> <img width="20" height="20" alt="XwWMZDw" src="https://github.com/user-attachments/assets/fa0d6f16-b475-4a3f-9acb-61a02e1f228f" />
-
- Snorlax • Hypno • Ditto • Miltank • Piplup • Buneary • Sawsbuck • Espurr • Mimikyu • Alcremie • Maushold • Oinkologne • Scream Tail • Cubone
+- **Animal Crossing Villagers:** Pierce, Celia
+- **Pokémon:** Snorlax, Hypno, Ditto, Miltank, Piplup, Buneary, Sawsbuck, Espurr, Mimikyu, Alcremie, Maushold, Oinkologne, Scream Tail, Cubone
 
 <img width="349" height="13" alt="70e238ab1bf7a069ac1c26d35b094668" src="https://github.com/user-attachments/assets/b478f882-ecd6-4c93-9070-982b7b85d756" />
 
@@ -559,7 +557,7 @@ Keys (Daybreaker) • 99 Nights in the Forest • Death in the Box • Hitch a H
 
 <img width="20" height="20" alt="3uliWir" src="https://github.com/user-attachments/assets/db631662-70a2-4a8c-9ea7-c705e6258a62" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=D62828&center=true&vCenter=true&width=440&lines=Favorite+Foods%2FDrinks"> <img width="20" height="20" alt="3YthmDX" src="https://github.com/user-attachments/assets/e8e129f3-39fe-47d5-8319-8acc33ef9cd2" />
 
-Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries) • Pancakes • Buldak Ramen • Arizona Tea (Herbal Tonic, Green Tea, Half & Half) • Muffins • Matcha • French Toast • Aussie Lemonade • Donuts • Iced Coffee • Tea • Lemon & Lime • Boba Tea
+Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries) • Pancakes • Buldak Ramen • Arizona Tea (Herbal Tonic, Green Tea, Half & Half) • Muffins • Matcha • French Toast • Aussie Lemonade • Donuts • Iced Coffee • Tea • Lemon & Lime • Boba Tea • Fruity Pebbles
 
 <img width="132" height="14" alt="a3db08a291e6d2ed706cf18ccadfff9a" src="https://github.com/user-attachments/assets/ff904cbf-bf2b-4a43-a1eb-5189ac3ea366" /><img width="132" height="14" alt="a3db08a291e6d2ed706cf18ccadfff9a" src="https://github.com/user-attachments/assets/ff904cbf-bf2b-4a43-a1eb-5189ac3ea366" />
 
@@ -585,14 +583,9 @@ Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries) • Pancakes • Buld
 
 ## <img width="20" height="20" alt="dczKhZp" src="https://github.com/user-attachments/assets/568cb315-2955-402a-b690-7f89ffdac670" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=F4A261&center=true&vCenter=true&width=400&lines=Favorite+Music+%2F+Artists"> <img width="20" height="20" alt="fd7315976043ca778ce3bbdc8495c6a6" src="https://github.com/user-attachments/assets/78def731-dfb5-423e-9ca5-7e4803afe81a" />
 
- Gorillaz • Studio Killers • Caravan Palace • Jack Stauber • Tom Cardy • Jakey • Glaze • The Living Tombstone • Femtanyl • Rare Americans • Sia • girl in red • Vocaloid • Daughter • Mindless Self Indulgence
+Gorillaz • Studio Killers • Caravan Palace • Jack Stauber • Tom Cardy • Jakey • Glaze • The Living Tombstone • Femtanyl • Rare Americans • Sia • girl in red • Vocaloid • Daughter • Mindless Self Indulgence
 
-<img width="230" height="20" alt="d4cc80025c43b9625da2cc6e10fc264b" src="https://github.com/user-attachments/assets/258e9881-910e-4f40-95fe-62bb1aa93fc8" />
-
-## <img width="20" height="20" alt="64JT5ug" src="https://github.com/user-attachments/assets/a24a8690-8412-4f8f-ae6f-7eb3cf558770" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=F7B267&center=true&vCenter=true&width=235&lines=Favorite+Idol"> <img width="20" height="20" alt="64JT5ug" src="https://github.com/user-attachments/assets/fda4fda0-95ce-450a-b2ec-11a8de337313" />
-
-
- Jungkook
+- **Favorite Idol:** Jungkook
 
 <img width="149" height="14" alt="c6dad546fdb09b1afa794508dd79db2c" src="https://github.com/user-attachments/assets/95f4d03f-26b8-4559-b94c-de6db06705e0" />
 
@@ -600,6 +593,8 @@ Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries) • Pancakes • Buld
 
 
  Zalinki • Lisa Frank • Zach Hadel • Chris O'Neill • Amy Brown • David Firth • Daria Fedorova
+
+- **Famous Artists:** Henri-Edmond Cross, Claude Monet, Katsushika Hokusai
 
 <img width="230" height="20" alt="2c3ae17c41deef1db638a0daf9e88502" src="https://github.com/user-attachments/assets/83d3ccf7-7d58-419d-a1a9-8196b2bd27ed" /> <img width="230" height="20" alt="2c3ae17c41deef1db638a0daf9e88502" src="https://github.com/user-attachments/assets/83d3ccf7-7d58-419d-a1a9-8196b2bd27ed" />
 
@@ -616,7 +611,7 @@ Red Bull (Blueberry, Juneberry, Elderflower, Wild Berries) • Pancakes • Buld
 ## <img width="20" height="20" alt="Xq773u8" src="https://github.com/user-attachments/assets/10911601-0ddb-4983-bdf6-840da8f3038d" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=F9C74F&center=true&vCenter=true&width=355&lines=Favorite+Books%2FComics"> <img width="20" height="20" alt="Xq773u8" src="https://github.com/user-attachments/assets/3c029e9b-2c00-4011-b939-ccb1f4c5166e" />
 
 
-Life Is Strange • Scott Pilgrim
+Life Is Strange • Scott Pilgrim • Down a Dark Hall (Lois Duncan) • Penpal (Dathan Auerbach)
 
 <img width="500" height="40" alt="ee55bce560fe478542173e66e6b77dde" src="https://github.com/user-attachments/assets/12cfcd1f-377b-4be8-b44f-5905d13b69e4" />
 
@@ -636,22 +631,17 @@ Life Is Strange • Scott Pilgrim
 ## <img width="20" height="20" alt="dQ2uW83" src="https://github.com/user-attachments/assets/8397b744-cd31-4cc1-8a24-738b36e3fe8e" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=577590&center=true&vCenter=true&width=430&lines=Favorite+Animals%2FCreatures"> <img width="20" height="20" alt="dQ2uW83" src="https://github.com/user-attachments/assets/255ef8ff-addd-426a-bc39-4928f8e6a2b5" />
 
 
-⭐ **Favorite SCP:** Long Horse
-
- Rabbits • Bunnies • Hares • Deer • Pigs • Opossums • Possums • Hermit Crabs • Jackalopes • Turtles • Frogs • Toads • Mothman • Forest Spirits • Fairies • Yokai • Ghosts • Will-o'-Wisps • Mushroom People • Cryptids • Troodons • Microceratus • Eoraptor
-
-<img width="604" height="32" alt="cdae2f695466371120affcf81c92c8dc" src="https://github.com/user-attachments/assets/91a0273d-9d08-4d33-8485-a08c525a8285" />
-
-## <img width="20" height="20" alt="993d5eb49fb656140fb64c3d6a9519f6" src="https://github.com/user-attachments/assets/9f207bdf-9da4-4e8f-a89d-d32d246290a2" /> <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=43AA8B&center=true&vCenter=true&width=235&lines=Favorite+Bugs"> <img width="20" height="20" alt="scAkmBL" src="https://github.com/user-attachments/assets/8382f46a-c63e-4720-bb4a-9abec55650bd" />
-
-
- Luna Moth • Chinese Luna Moth • Woolly Aphid • Chrysolina cerealis • Cherry Blossom Isopod • Rosy Maple Moth • Orchid Mantis • Metallyticus Mantis • Empusidae Mantises • Hymenopodidae Mantises • Jumping Spiders • Snails • Slugs • Dragonflies • Fireflies • Inch Worms • Caterpillars • Jewel Beetles • Rainbow Stag Beetles • Scarabs • Leaf Beetles • Golden Tortoise Beetle • Emerald Wasp • Metallic Wood Boring Bug • Sunset Moth • Lantern Bugs
+- **Favorite SCP:** Long Horse
+- **Creatures:** Jackalopes, Mothman, Forest Spirits, Fairies, Yokai, Ghosts, Will-o'-Wisps, Mushroom People, Cryptids
+- **Animals:** Rabbits, Bunnies, Hares, Deer, Pigs, Opossums, Possums, Hermit Crabs, Turtles, Frogs, Toads
+- **Dinos:** Troodons, Microceratus, Eoraptor
+- **Bugs:** Luna Moth, Chinese Luna Moth, Woolly Aphid, Chrysolina Cerealis, Cherry Blossom Isopod, Rosy Maple Moth, Orchid Mantis, Metallyticus Mantis, Empusidae Mantises, Hymenopodidae Mantises, Jumping Spiders, Snails, Slugs, Dragonflies, Fireflies, Inch Worms, Caterpillars, Jewel Beetles, Rainbow Stag Beetles, Scarabs, Leaf Beetles, Golden Tortoise Beetle, Emerald Wasp, Metallic Wood Boring Bug, Sunset Moth, Lantern Bugs
 
 <img width="731" height="29" alt="a13746b1d913968d95392d0552a2ad1e" src="https://github.com/user-attachments/assets/94bf4720-59d8-4a75-af76-0ea2e5056b73" />
 
 ## 🌿 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=90BE6D&center=true&vCenter=true&width=250&lines=Favorite+Plants"> 🌱
 
- Ferns • Moss • Mushrooms/Fungi • Vines • Monstera Plants • Bamboo • English Ivy • Morning Glories • Weeping Willows
+Papyrus • Lotus • Ferns • Moss • Mushrooms/Fungi • Vines • Monstera Plants • Bamboo • English Ivy • Morning Glories • Cattails • Weeping Willows • Balloon Flowers • Lily Pads • Club Moss • Bleeding Hearts • Forget-Me-Nots • Baby's Breath • Red/Maroon Snapdragons • Venus Fly Trap • Bluebells • Snowdrops • Japanese Maple • Dogwood • Birch Trees • Cedar • Honeysuckle • Wild Violets • Clover • Wood Sorrel • Water Lilies • Duckweed • Water Lettuce • Pitcher Plants • Butterworts • String of Turtles
 
 
 </div>
@@ -960,3 +950,6 @@ Life Is Strange • Scott Pilgrim
 <img src="https://count.getloli.com/get/@MyNameIsSneeze">
 
 </div>
+My Puppi Dog
+<br>
+<img width="250" height="350" alt="tumblr_e7ea43153ec726780883f1ca02cf7c38_ec0fb8b3_540" src="https://github.com/user-attachments/assets/b59b5f08-be0f-4d87-b2df-826a98dd2f8e" />
