@@ -3,6 +3,8 @@
 ## 𝔻𝕚𝕧𝕚𝕕𝕖𝕣𝕤 ☆彡
 
 [⬅ Back to Profile](README.md)
+<br>
+<img width="160" height="32" alt="620397531-8ec955cd-1be5-4a3b-afe5-67dc726d0951" src="https://github.com/user-attachments/assets/8cc95905-9c44-494c-9a1d-3d82978ca64f" />
 
 <br>
 
