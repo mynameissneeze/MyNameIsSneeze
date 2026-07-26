@@ -21,6 +21,7 @@
 ### <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=FF9F45&center=true&vCenter=true&width=460&lines=Welcome+to+my+little+corner%21">
 
 <br><br>
+<img width="138" height="53" alt="474167l68h9nknqq" src="https://github.com/user-attachments/assets/d2ed3c94-1717-4d3d-bcd2-cc876065c988" />
 
 ╭────────────────────୨ৎ────────────────────╮
 
