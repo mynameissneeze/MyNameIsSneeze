@@ -12,6 +12,7 @@ bigger Favicons
 <img width="90" height="90" alt="613735tjr1rs0ze9" src="https://github.com/user-attachments/assets/c91db76a-34fa-48e9-a8d3-0aaf2057149f" />
 <img width="24" height="43" alt="747175ofnmncoyg5" src="https://github.com/user-attachments/assets/2ac7c313-575d-4711-9d5b-01ab9aa1a267" />
 <img width="32" height="32" alt="81375sazivldwoi" src="https://github.com/user-attachments/assets/4c8313e3-1f11-45e4-89f3-ba6e136d8637" />
+<img width="35" height="35" alt="1223300eg1xscwf88" src="https://github.com/user-attachments/assets/30571ef5-0827-4790-b9f4-c88ef8a7a08b" />
 
 <br>
 
@@ -66,6 +67,9 @@ Gifs
 <img width="350" height="130" alt="2544290exe4a5nfr9" src="https://github.com/user-attachments/assets/1b53acf8-3e1a-4fce-8d46-3803a2b65fd7" />
 <img width="400" height="253" alt="3766366l5qsu433ks" src="https://github.com/user-attachments/assets/1f7c4e26-56d8-46b5-8ddb-db352fd3cf85" />
 <img width="250" height="250" alt="3761771um8uzz4se4" src="https://github.com/user-attachments/assets/640fee5a-01bc-486e-a1e3-70ec3926f802" />
+<img width="150" height="60" alt="1529953vjrf7pnsuk" src="https://github.com/user-attachments/assets/7261799b-178d-4541-9cb5-cae7639c1076" />
+<img width="100" height="53" alt="321608wzbg8onm5r" src="https://github.com/user-attachments/assets/be6d1b5a-a563-4420-9db5-48f5c4dc903a" />
+<img width="500" height="317" alt="3140592krfz3k8ob5" src="https://github.com/user-attachments/assets/3c89f734-b191-4175-971b-594deef1cb4b" />
 
 <br>
 
@@ -131,6 +135,11 @@ Pixels
 <img width="35" height="55" alt="1274758cemvdbui1u" src="https://github.com/user-attachments/assets/1e56ae6c-e676-4e6f-a282-0c9911f48140" />
 <img width="130" height="163" alt="656171b5523yubfr" src="https://github.com/user-attachments/assets/4084c2f4-3db4-4c30-aed8-2071c6862daa" />
 <img width="93" height="98" alt="1520962lx86jr4bt7" src="https://github.com/user-attachments/assets/4430f2a8-aafd-4c5d-80d2-e0f459d55dc0" />
+<img width="92" height="93" alt="2071190qmyw7c59iw" src="https://github.com/user-attachments/assets/fede8260-7839-40c2-afc1-fec89f7721bd" />
+<img width="246" height="244" alt="486941nnrbm34zys" src="https://github.com/user-attachments/assets/d8d4c1ed-d7b4-43b0-b3fd-f3e09d8b14cb" />
+<img width="49" height="68" alt="478402etdf7x7coi" src="https://github.com/user-attachments/assets/6db2affa-4b8a-490b-a9cc-5bb2c24e44e6" />
+<img width="84" height="110" alt="2902582ikuwcrt2ax" src="https://github.com/user-attachments/assets/c6b0c20e-2712-4089-82e7-d12e658fdbfe" />
+<img width="75" height="103" alt="1320481uunelozwg8" src="https://github.com/user-attachments/assets/a92b310c-60e4-4b54-90c0-5ee4d64d7333" />
 
 <br>
 
