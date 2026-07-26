@@ -18,7 +18,7 @@
 ✦ ˢᵒᵐᵉ ᵖⁱᶜᵗᵘʳᵉˢ ᵃⁿᵈ ˡⁱⁿᵏˢ ᵃʳᵉ ⁱⁿᵗᵉʳᵃᶜᵗⁱᵛᵉ ;)
 <br>
 
-### <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=FF9F45&center=true&vCenter=true&width=460&lines=Welcome+to+my+little+corner%21">
+### <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=7F00FF&center=true&vCenter=true&width=460&lines=Welcome+to+my+little+corner%21">
 
 <br><br>
 <img width="138" height="53" alt="474167l68h9nknqq" src="https://github.com/user-attachments/assets/d2ed3c94-1717-4d3d-bcd2-cc876065c988" />
@@ -100,6 +100,7 @@
 <!-- PIXEL-END -->
 <br>
 <img width="685" height="15" alt="60ed2c048d08142fadbf5819faa0d866" src="https://github.com/user-attachments/assets/d2387388-9491-4cb8-b099-4c070a23cf9c" />
+➡️ **[View Collection](dividers.md)**
 
 # 
 <p align="center">
