@@ -7,6 +7,8 @@ bigger Favicons
 <img width="32" height="32" alt="650159rv76bqsl7u" src="https://github.com/user-attachments/assets/64e5e740-25f1-496c-aff5-51c9f98671f7" />
 <img width="90" height="90" alt="742146qbfzmxyqt6" src="https://github.com/user-attachments/assets/7648fda1-0492-4229-8565-dc140d82ceb2" />
 <img width="50" height="29" alt="1106014o6biqxr9xg" src="https://github.com/user-attachments/assets/3f17713b-7eef-433a-b695-2a9b1fba8214" />
+<img width="21" height="34" alt="620500869-b7f02664-67c5-4330-99f8-7593a4f47cf5" src="https://github.com/user-attachments/assets/bd5e05a0-f15c-4b1b-9abb-35b6e7d3fbc8" />
+<img width="19" height="32" alt="620500844-2bcf6806-3199-45f1-a472-254f41dab077" src="https://github.com/user-attachments/assets/2802c830-ecae-4eb4-8162-0b77fcb85559" />
 
 <br>
 
@@ -55,6 +57,7 @@ Gifs
 <img width="250" height="206" alt="3767798x1xkukljza" src="https://github.com/user-attachments/assets/042fcc71-7cc9-4c2e-9f39-818afe1da9a6" />
 <img width="587" height="151" alt="650977mwr74z03ps" src="https://github.com/user-attachments/assets/0be7f2ba-9167-4f31-a3be-b69ee4de8c52" />
 <img width="303" height="389" alt="2029330w857xf0x14" src="https://github.com/user-attachments/assets/e107e759-83a5-4f8d-9099-60ead6a523a6" />
+<img width="450" alt="tumblr_lllzuqFPzc1qkvalqo1_400" src="https://github.com/user-attachments/assets/f410b596-4859-416d-b644-8437062c9832" />
 
 <br>
 
