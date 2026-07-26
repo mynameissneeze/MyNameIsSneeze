@@ -17,6 +17,7 @@ bigger Favicons
 <img width="20" height="20" alt="3765419ygg9yyfvct" src="https://github.com/user-attachments/assets/087fa1ae-7154-4ad1-b64a-e7518f2b9f9c" />
 <img width="50" height="50" alt="3768061iqlsen1cs4" src="https://github.com/user-attachments/assets/dc4b1bb6-5cf6-48a4-87fd-68d0dd1e0955" />
 <img width="50" height="50" alt="3768063qqfam9buk2" src="https://github.com/user-attachments/assets/54ef6522-f8a3-4f7a-be0e-36ea40d2dcad" />
+<img width="35" height="30" alt="1854484dghtks36lj" src="https://github.com/user-attachments/assets/2cc7f95e-df16-41b7-aec4-af4d5ff801e0" />
 
 <br>
 
@@ -53,6 +54,7 @@ bigger blinkies
 <br>
 
 stamps
+<img width="99" height="56" alt="851870qs1gr4fndm" src="https://github.com/user-attachments/assets/c3ca7dcf-bdaf-483c-a83c-abed1aed4eab" />
 
 
 <br>
@@ -90,6 +92,7 @@ Gifs
 
 random internet stuff
 <img width="146" height="150" alt="356732bcl5nibd1p" src="https://github.com/user-attachments/assets/c924b932-003d-46b7-8e70-68b00edcc61a" />
+<img width="100" height="100" alt="198244eid8yzmay5" src="https://github.com/user-attachments/assets/af484ce3-b666-4099-a70c-397f305195e5" />
 
 <img width="99" height="99" alt="1292682oqwpys1fd8" src="https://github.com/user-attachments/assets/b57ffa8e-1e93-4a5d-9a6d-5f7aa4d66727" />
 <img width="208" height="140" alt="986354t8hvlc3sg9" src="https://github.com/user-attachments/assets/7eaf19c8-4200-4c8d-b145-7dec8a39e3a5" />
@@ -122,12 +125,24 @@ random internet stuff
 <img width="216" height="216" alt="3770750j27mo1j2m4" src="https://github.com/user-attachments/assets/b36462a7-f3d5-477c-8ab4-723174e8a193" />
 <img width="320" height="256" alt="3328489tgd0l0qte2" src="https://github.com/user-attachments/assets/376c0249-faf1-41da-ae73-7c63d50a571b" />
 <img width="120" height="90" alt="2462479sjz69xddeo" src="https://github.com/user-attachments/assets/013bb9dd-6f42-4a1a-9156-b83a66ffa0ce" />
+<img width="600" height="450" alt="2259529att9la85xv" src="https://github.com/user-attachments/assets/25860f55-27df-4db4-af28-821b685ab769" />
+<img width="100" height="100" alt="2065951sbd1jtgdpg" src="https://github.com/user-attachments/assets/1492d9ea-a2f9-4106-9215-d4e72e326f23" />
+<img width="100" height="100" alt="1742052ym8tdhjldu" src="https://github.com/user-attachments/assets/a8f79d5e-4cb6-4a7b-8a64-0adad15f7262" />
 
 
 <br>
 
 
 Pixels
+<img width="100" height="75" alt="3769851wlpk5eqr3l" src="https://github.com/user-attachments/assets/53f6f9de-8441-4a5f-9244-0b96c1ad62af" />
+<img width="120" height="120" alt="1351386mzlvv3e3zn" src="https://github.com/user-attachments/assets/8dfccef0-e5a8-4ff3-80e8-4b6c8914e56f" />
+<img width="50" height="50" alt="419060cwszoys9om" src="https://github.com/user-attachments/assets/fc25cb40-61c7-4947-8480-70483764d0b5" />
+<img width="62" height="62" alt="752316y83yl5k6bd" src="https://github.com/user-attachments/assets/ec8255e4-d45f-4aab-bb4a-657f4728beef" />
+<img width="120" height="120" alt="2825601e370j1a4fp" src="https://github.com/user-attachments/assets/1bd71932-8fbc-45e3-918b-bd95e856a73c" />
+<img width="47" height="50" alt="1257032iv9aswzutf" src="https://github.com/user-attachments/assets/2b351c79-01b0-4a6a-b1b9-6b3a91a26f2b" />
+<img width="90" height="90" alt="3307251pks63scplj" src="https://github.com/user-attachments/assets/c79ec68e-6586-4dc3-9d0a-dc88c87ff660" />
+<img width="32" height="32" alt="311000d1qbp2va3u" src="https://github.com/user-attachments/assets/6df356b7-c682-4e9f-84b0-f8aa68a0f8d2" />
+<img width="84" height="84" alt="2058179ae2ciupalu" src="https://github.com/user-attachments/assets/ed9576c6-5067-41ec-8f66-c35262f94eb7" />
 
 <br>
 
