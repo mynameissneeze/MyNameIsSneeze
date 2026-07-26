@@ -5,7 +5,7 @@
 
  <img width="150" height="20" alt="a17" src="https://github.com/user-attachments/assets/b5a4473c-229d-47e9-b03e-67e261c14185" />
 <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=FF9F45&center=true&vCenter=true&width=676&lines=Current+Hyperfixations">
+<img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=7F00FF&center=true&vCenter=true&width=676&lines=Current+Hyperfixations">
 </p>
  
  AHHH!! Real Monsters •  My Little Pony • watching animated shows/movies •  Drawing OCs •  PonyTown •  Roblox •  Collecting GIFs, Blinkies & Stamps
@@ -33,9 +33,14 @@
 ─═✧✧═─
 
 ╰────────────────────୨ৎ────────────────────╯
+<br>
+<a href="https://www.amazon.com/hz/wishlist/ls/OHK5A7E6VI81?ref_=wl_share">
+  <img width="150" height="150" alt="giphy" style="border: none;" src="https://github.com/user-attachments/assets/c8090acd-2fb6-43e8-9d25-224c222e2b7a" />
+</a>
+<br>
 
 <a href="https://ko-fi.com/mynameissneeze" target="_blank">
-  <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHJ3MG5rcTFrODhzdDBhNXEybDNqY2s3cmxwOTY0NXlpbHIyOXVtdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/9mNKXFygkCeOWekWew/giphy.gif" width="120" alt="Support me on Ko-fi">
+  <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHJ3MG5rcTFrODhzdDBhNXEybDNqY2s3cmxwOTY0NXlpbHIyOXVtdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/9mNKXFygkCeOWekWew/giphy.gif" width="200" alt="Support me on Ko-fi">
 </a>
 
 <br>
@@ -49,11 +54,9 @@
 
 <br>
 
-<div align="center">
-
 <img src="https://github.com/user-attachments/assets/b6f95b16-55e4-43c7-acf0-b9458d726a3b" width="170">
 
-<br>
+<br><br>
 
 <img src="https://github.com/user-attachments/assets/6edcaafb-92a3-4c1a-825f-e7770d56f3e5" width="99">
 
@@ -84,7 +87,6 @@
 <img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/4b359526-db37-4d9b-ac06-b4713abd32b2" /> I absolutely love introducing people to new movies, animation, anime, indie cartoons, and horror films! <img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/53002b65-6e14-48e4-8987-dd1e2ba7a601" />
 
 
-</div>
 ⊹₊ ⋆ ⟡ ⋆ ₊⊹
 <br>
 
@@ -282,8 +284,6 @@ __φ(．．) a few little things about me~
 
 <br><br>
 
-<div align="center">
-
 <img src="https://github.com/user-attachments/assets/0722659f-a665-4b4c-887d-4a0cda0ff027" width="540">
 
 <br><br>
@@ -315,49 +315,37 @@ __φ(．．) a few little things about me~
 
 <br>
 
-<div align="center">
-
-<!-- 🌸 Row 1 -->
 <img src="https://github.com/user-attachments/assets/69cc83b8-264e-4bba-9d82-cdd080aa7c0b" width="195">
 <img src="https://github.com/user-attachments/assets/f89cc244-6282-495a-b842-e3b39eb7274a" width="195">
 <img src="https://github.com/user-attachments/assets/5eea0202-6cdf-4763-99d1-e00cf0a0508d" width="195">
 
 <br><br>
 
-<!-- 🌸 Row 2 -->
 <img src="https://github.com/user-attachments/assets/bf28ae68-8f4a-4af5-a7f9-afde36c61df4" width="195">
 <img src="https://github.com/user-attachments/assets/5203f75a-f822-4e22-a582-7e248fe6ad22" width="195">
 <img src="https://github.com/user-attachments/assets/e9ddaf7b-1c3d-4250-9432-e2bf0e66927e" width="195">
 
 <br><br>
 
-<!-- 🌸 Row 3 -->
 <img src="https://github.com/user-attachments/assets/dde05b9e-db43-455f-bbca-fad24ae686b8" width="195">
 <img src="https://github.com/user-attachments/assets/769dd08c-48b4-47be-bf10-4aa254a4efac" width="195">
 <img src="https://github.com/user-attachments/assets/4b178c8e-a623-4d0e-a570-bb01e4b7dfc3" width="195">
 
 <br><br>
 
-<!-- 🌸 Row 4 -->
 <img src="https://github.com/user-attachments/assets/2a9afa40-6bab-411a-b2a9-dbe1c0b08706" width="195">
 <img src="https://github.com/user-attachments/assets/b34e7c2f-6825-4679-b9f8-455c5d5ea872" width="195">
 <img src="https://github.com/user-attachments/assets/9da51183-add4-4e68-8b73-42cf04549dfb" width="195">
 
 <br><br>
 
-<!-- 🌸 Last Row -->
 <img src="https://github.com/user-attachments/assets/3a08b59f-a154-4133-abb6-79ec2d3025f1" width="195">
-
-</div>
 
 </details>
 
 <br><br>
 
-</div>
-
-
-## <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
+# <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
 
 
 ✩₊˚.⋆☾⋆⁺₊✧ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆ ✧₊⁺⋆☾⋆.˚₊✩
@@ -420,16 +408,6 @@ __φ(．．) a few little things about me~
 ╰──────────────────୨ৎ──────────────────╯
 
 <img src="https://github.com/user-attachments/assets/a0bb67cd-2921-4414-a0e4-ec287a19f040" width="210">
-
-</div>
-
-<div align="center">
-
-
-</div>
-
-
-<div align="center">
 
 ## 🎵 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=F72585&center=true&vCenter=true&width=280&lines=Favorite+Songs"> 🎶
 
@@ -644,12 +622,6 @@ Life Is Strange • Scott Pilgrim • Down a Dark Hall (Lois Duncan) • Penpal 
 Papyrus • Lotus • Ferns • Moss • Mushrooms/Fungi • Vines • Monstera Plants • Bamboo • English Ivy • Morning Glories • Cattails • Weeping Willows • Balloon Flowers • Lily Pads • Club Moss • Bleeding Hearts • Forget-Me-Nots • Baby's Breath • Red/Maroon Snapdragons • Venus Fly Trap • Bluebells • Snowdrops • Japanese Maple • Dogwood • Birch Trees • Cedar • Honeysuckle • Wild Violets • Clover • Wood Sorrel • Water Lilies • Duckweed • Water Lettuce • Pitcher Plants • Butterworts • String of Turtles
 
 
-</div>
-
-<div align="center">
-
-<br>
-
 # <img width="20" src="https://github.com/user-attachments/assets/4f8cfb05-86b2-41f0-b3ca-f2b8d98583f9">
 
 <p align="center">
@@ -665,10 +637,7 @@ Papyrus • Lotus • Ferns • Moss • Mushrooms/Fungi • Vines • Monstera 
 ### <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=FF6B6B&center=true&vCenter=true&width=700&lines=Blinkies+-+Pixels+-+Stamps+-+Funny+GIFs+-+Hyperfixations">
 
 ₊˚⊹♡ Click a section below to browse my collection! ♡⊹˚₊
-</div>
 
-<div align="center">
- 
 <img width="700" height="11" alt="782e69f8b09ab728f2afac92737b9f73" src="https://github.com/user-attachments/assets/3365790f-e7e1-4ba0-aa4d-421833ad17a4" />
 
 <details>
@@ -677,8 +646,6 @@ Papyrus • Lotus • Ferns • Moss • Mushrooms/Fungi • Vines • Monstera 
   ## <img width="20" src="https://github.com/user-attachments/assets/195b1d55-808b-4f8c-a18e-d8d9b180aa76"> 𝔽𝕒𝕧𝕚𝕔𝕠𝕟𝕤/𝔼𝕞𝕠𝕛𝕚𝕤 <img width="20" src="https://github.com/user-attachments/assets/f250aca4-64d4-42b6-ba09-55236dc542a0">
 
 </summary>
-
-<div align="center">
 
 <img width="20" height="20" alt="5oGJ3ve" src="https://github.com/user-attachments/assets/086749b6-8bc8-4a24-8d06-745fa9147154" />
 <img width="20" height="20" alt="1CdfkrA" src="https://github.com/user-attachments/assets/c034839e-b463-4642-b01b-be2678ff57f9" />
@@ -709,18 +676,14 @@ Papyrus • Lotus • Ferns • Moss • Mushrooms/Fungi • Vines • Monstera 
 
 ➡️ **[View Collection](favicons.md)**
 
-</div>
-
 </details>
-<div align="center">
+
 <details>
 <summary>
 
 ## <img width="20" height="20" alt="6b518171d0e8aec994ca4c0ce1fab5d9" src="https://github.com/user-attachments/assets/6f729bac-6dd4-4e1a-8888-32c51af8c62f" /> 𝔹𝕝𝕚𝕟𝕜𝕚𝕖𝕤 <img width="20" height="20" alt="6b518171d0e8aec994ca4c0ce1fab5d9" src="https://github.com/user-attachments/assets/6f729bac-6dd4-4e1a-8888-32c51af8c62f" />
 
 </summary>
-
-<div align="center">
 
 <img width="150" height="20" alt="619703678-2ef3dcf7-f930-4686-9ae8-caafae4f217d" src="https://github.com/user-attachments/assets/9419592e-5507-4d6c-8e4f-c3246e863505" />
 <img width="150" height="20" alt="619596929-58a1fbaa-e229-4d93-9bfc-5443a0fd5651" src="https://github.com/user-attachments/assets/32c2e7d2-83b3-4a04-bceb-3f327c3adb09" />
@@ -749,13 +712,10 @@ Papyrus • Lotus • Ferns • Moss • Mushrooms/Fungi • Vines • Monstera 
 
 ➡️ **[View Collection](blinkies.md)**
 
-</div>
-
 </details>
 
 <br>
 
-<div align="center">
 <details>
 
 <summary>
@@ -764,8 +724,6 @@ Papyrus • Lotus • Ferns • Moss • Mushrooms/Fungi • Vines • Monstera 
 
 
 </summary>
-
-<div align="center">
 
 <img width="99" height="56" alt="620509897-28abb77e-4184-443d-bef9-adab03eae23d" src="https://github.com/user-attachments/assets/148f74e2-0fbf-4b25-be12-6c9b242dd267" />
 <img width="99" height="56" alt="620509902-a409be4b-3dcd-4649-a53a-d27f2259848d" src="https://github.com/user-attachments/assets/6c7e5b2d-5f12-4bc9-a1c0-03943f9e63ee" />
@@ -800,12 +758,9 @@ Papyrus • Lotus • Ferns • Moss • Mushrooms/Fungi • Vines • Monstera 
 
 ➡️ **[View Collection](stamps.md)**
 
-</div>
-
 </details>
 <br>
 
-<div align="center">
 <details>
 
 <summary>
@@ -813,8 +768,6 @@ Papyrus • Lotus • Ferns • Moss • Mushrooms/Fungi • Vines • Monstera 
 ## <img width="20" height="20" alt="66e9afb6bb0ff452a1946715dd0e7137" src="https://github.com/user-attachments/assets/b3d5e019-50b9-4090-86fe-db23fd716d8b" /> 𝔽𝕒𝕧𝕠𝕣𝕚𝕥𝕖 𝔾𝕀𝔽𝕤 <img width="20" height="20" alt="66e9afb6bb0ff452a1946715dd0e7137" src="https://github.com/user-attachments/assets/b3d5e019-50b9-4090-86fe-db23fd716d8b" />
 
 </summary>
-
-<div align="center">
 
 <img src="https://github.com/user-attachments/assets/ea97e0e1-9ccf-4371-b836-7c732d8e40a5" width="180">
 <img src="https://64.media.tumblr.com/4fde25a0e3ad3a647ee63c3a2d7dd3e6/8e26c760daf1b998-0a/s1280x1920/74802abe3a15918c30bb7bdbe6052e8c1fab8c64.gif" width="180">
@@ -836,14 +789,9 @@ Papyrus • Lotus • Ferns • Moss • Mushrooms/Fungi • Vines • Monstera 
 
 ➡️ **[View Collection](gifs.md)**
 
-</div>
-
 </details>
-</div>
 
 <br>
-
-<div align="center">
 
 <details>
 
@@ -853,7 +801,6 @@ Papyrus • Lotus • Ferns • Moss • Mushrooms/Fungi • Vines • Monstera 
 
 </summary>
 
-<div align="center">
 <a href="https://x.com/PrettyWhenOwned" target="_blank">
 <img width="100" height="100" alt="617965503-e1bb9cb7-87bc-4bd2-95bc-f76d9f902cf7" src="https://github.com/user-attachments/assets/5bf92656-8b42-4f19-95b7-f56cd4b8bf10" />
 </a>
@@ -876,13 +823,9 @@ Papyrus • Lotus • Ferns • Moss • Mushrooms/Fungi • Vines • Monstera 
 
 ➡️ **[View Collection](random-internet-things.md)**
 
-</div>
-
 </details>
 
 <br><br>
-
-<div align="center">
 
 <details>
 <summary>
@@ -892,8 +835,6 @@ Papyrus • Lotus • Ferns • Moss • Mushrooms/Fungi • Vines • Monstera 
 </summary>
 
 <br>
-
-<div align="center">
 
 <img width="450" alt="2bccb031ee73fb748008f9081b5722b6" src="https://github.com/user-attachments/assets/6b2e13b9-d571-49f8-b8ac-a4a3160a3d15" />
 <img width="450" alt="34f60a5c0e3787050ffa846b0f71aa83" src="https://github.com/user-attachments/assets/cd674822-dd08-45f2-b818-b8e1d11afbf6" />
@@ -924,13 +865,7 @@ Papyrus • Lotus • Ferns • Moss • Mushrooms/Fungi • Vines • Monstera 
 
 ➡️ **[View Collection](dividers.md)**
 
-</div>
-
 </details>
-</div>
-
-
-<div align="center">
 
 <img src="https://github.com/user-attachments/assets/fc7744df-963c-4e5a-ad79-63fac5df47db" width="540">
 
@@ -938,18 +873,17 @@ Papyrus • Lotus • Ferns • Moss • Mushrooms/Fungi • Vines • Monstera 
 
 ! ( ´ ▽ ` )ノ
 
-</div>
-
 <br><br>
-
-<div align="center">
 
 # visitor counter :D
 <br><br>
 
 <img src="https://count.getloli.com/get/@MyNameIsSneeze">
 
-</div>
+<br><br>
+
 My Puppi Dog
 <br>
 <img width="250" height="350" alt="tumblr_e7ea43153ec726780883f1ca02cf7c38_ec0fb8b3_540" src="https://github.com/user-attachments/assets/b59b5f08-be0f-4d87-b2df-826a98dd2f8e" />
+
+</div>
