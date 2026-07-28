@@ -1,4 +1,4 @@
-last page I was on: https://www.glitter-graphics.com/gifs?page=621
+last page I was on: [https://www.glitter-graphics.com/gifs?page=621](https://www.glitter-graphics.com/gifs?page=680)
 
 
 bigger Favicons
@@ -67,6 +67,7 @@ Gifs
 <img width="120" height="160" alt="1666239z3tbqhb1hz" src="https://github.com/user-attachments/assets/fd062fab-e1d7-41d3-a60e-d5eee2f1cacf" />
 <img width="452" height="550" alt="2746489soaukxbur1" src="https://github.com/user-attachments/assets/e6d92fc7-32c3-48ea-a207-c7d3b791ac57" />
 <img width="175" height="300" alt="3771022rrlvfcm9b4" src="https://github.com/user-attachments/assets/cf856f6b-f1cb-435c-85db-ea9523117b05" />
+<img width="500" height="350" alt="3548495jg56p3854p" src="https://github.com/user-attachments/assets/8e4c1b22-e4a1-4fe9-ae5e-a4dd10084bb7" />
 
 <img width="313" height="460" alt="561727exjfmmabgq" src="https://github.com/user-attachments/assets/fbde86c4-d3f6-489b-8b8c-8dcc93a14044" />
 <img width="400" height="400" alt="576124qdc0ooui6c" src="https://github.com/user-attachments/assets/19428666-9d5e-4019-90a5-58f39a0ec79c" />
@@ -144,6 +145,10 @@ random internet stuff
 <img width="175" height="144" alt="364052vobqnbn4y5" src="https://github.com/user-attachments/assets/2b402ac4-c592-43b5-9e64-0540e1b1f2a8" />
 <img width="450" height="387" alt="1814073dhzg9swpok" src="https://github.com/user-attachments/assets/bc3998aa-0534-410c-bcc9-06115471a4bf" />
 <img width="180" height="180" alt="3498053yw6tb4xe7f" src="https://github.com/user-attachments/assets/6abf1162-20b0-4dc8-a4bc-cf3ce70acc45" />
+<img width="450" height="409" alt="2399562no17c9f0h2" src="https://github.com/user-attachments/assets/46bf47a7-d9b8-4ee3-9be6-b9ab2d99daca" />
+<img width="90" height="90" alt="3042208vwddk75g7m" src="https://github.com/user-attachments/assets/24935b74-d8b4-4d6a-903a-74ec54a1b06d" />
+<img width="180" height="75" alt="1017465kzi5fiy18s" src="https://github.com/user-attachments/assets/6bb0ca9d-cf08-42e8-a025-af631fcd3809" />
+<img width="100" height="100" alt="360881vexiziunev" src="https://github.com/user-attachments/assets/b5664c82-472f-409f-be96-fdc6ffe81708" />
 
 
 <br>
@@ -175,6 +180,7 @@ Pixels
 <img width="60" height="98" alt="1998221p73izbbg6d" src="https://github.com/user-attachments/assets/bace874a-dc6e-476a-9853-421d7882caf8" />
 <img width="173" height="202" alt="34084vkwtx4ri0l" src="https://github.com/user-attachments/assets/2d433fc2-2e66-4e39-8c16-070008cedc69" />
 <img width="147" height="204" alt="1522939px4w8sgbw1" src="https://github.com/user-attachments/assets/6489c1bf-f488-42aa-9b54-69b4ae5a53f9" />
+<img width="56" height="64" alt="794912ma5lkmqzxl" src="https://github.com/user-attachments/assets/17efa807-8dee-4909-b798-a95f3b262c93" />
 
 <br>
 
