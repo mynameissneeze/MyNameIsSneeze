@@ -1,4 +1,4 @@
-last page I was on:
+last page I was on: https://www.glitter-graphics.com/gifs?page=621
 
 
 bigger Favicons
@@ -55,6 +55,8 @@ bigger blinkies
 
 stamps
 <img width="99" height="56" alt="851870qs1gr4fndm" src="https://github.com/user-attachments/assets/c3ca7dcf-bdaf-483c-a83c-abed1aed4eab" />
+<img width="103" height="57" alt="3363381x6bnlhnjq9" src="https://github.com/user-attachments/assets/42565a7d-3567-4dff-9f01-e687ac13b26a" />
+<img width="99" height="56" alt="1387045lumclmci9k" src="https://github.com/user-attachments/assets/8ceb2770-9d03-4e8e-8ea1-9d8db9c57e19" />
 
 
 <br>
@@ -63,6 +65,8 @@ stamps
 Gifs
 <img width="148" height="130" alt="286444dz97jy8vk7" src="https://github.com/user-attachments/assets/2c134b7c-b477-4cda-bd4c-9ebfabdde294" />
 <img width="120" height="160" alt="1666239z3tbqhb1hz" src="https://github.com/user-attachments/assets/fd062fab-e1d7-41d3-a60e-d5eee2f1cacf" />
+<img width="452" height="550" alt="2746489soaukxbur1" src="https://github.com/user-attachments/assets/e6d92fc7-32c3-48ea-a207-c7d3b791ac57" />
+<img width="175" height="300" alt="3771022rrlvfcm9b4" src="https://github.com/user-attachments/assets/cf856f6b-f1cb-435c-85db-ea9523117b05" />
 
 <img width="313" height="460" alt="561727exjfmmabgq" src="https://github.com/user-attachments/assets/fbde86c4-d3f6-489b-8b8c-8dcc93a14044" />
 <img width="400" height="400" alt="576124qdc0ooui6c" src="https://github.com/user-attachments/assets/19428666-9d5e-4019-90a5-58f39a0ec79c" />
@@ -134,6 +138,12 @@ random internet stuff
 <img width="100" height="100" alt="2065951sbd1jtgdpg" src="https://github.com/user-attachments/assets/1492d9ea-a2f9-4106-9215-d4e72e326f23" />
 <img width="100" height="100" alt="1742052ym8tdhjldu" src="https://github.com/user-attachments/assets/a8f79d5e-4cb6-4a7b-8a64-0adad15f7262" />
 <img width="320" height="240" alt="31447lh39y8j48g" src="https://github.com/user-attachments/assets/28c4ea57-7174-4d52-be1d-1f44f5542df3" />
+<img width="373" height="367" alt="1757527yjh6ld8yls" src="https://github.com/user-attachments/assets/b0412dc3-b265-4e48-b046-87af085482e6" />
+<img width="100" height="100" alt="492058a7ymiojflz" src="https://github.com/user-attachments/assets/3681f73a-eae6-493d-9523-839d43cdd494" />
+<img width="121" height="121" alt="3076234ft91lvajmp" src="https://github.com/user-attachments/assets/f87bc030-b233-4d70-94b5-32a9806b0af2" />
+<img width="175" height="144" alt="364052vobqnbn4y5" src="https://github.com/user-attachments/assets/2b402ac4-c592-43b5-9e64-0540e1b1f2a8" />
+<img width="450" height="387" alt="1814073dhzg9swpok" src="https://github.com/user-attachments/assets/bc3998aa-0534-410c-bcc9-06115471a4bf" />
+<img width="180" height="180" alt="3498053yw6tb4xe7f" src="https://github.com/user-attachments/assets/6abf1162-20b0-4dc8-a4bc-cf3ce70acc45" />
 
 
 <br>
@@ -158,6 +168,13 @@ Pixels
 <img width="75" height="81" alt="3351863i4a6uozgsc" src="https://github.com/user-attachments/assets/4f0e5a81-d149-4dfd-8294-5e493d9350f2" />
 <img width="88" height="41" alt="1366542qd87bqq0fi" src="https://github.com/user-attachments/assets/5e36467e-a743-46c2-93a5-d22d555e0b3c" />
 <img width="99" height="90" alt="1240092dyccwbej79" src="https://github.com/user-attachments/assets/70c413bf-aa1d-4679-855a-78e983b35fce" />
+<img width="90" height="250" alt="708285y6wzn4ng64" src="https://github.com/user-attachments/assets/55dd070b-2c54-4602-8f81-462b92ab2527" />
+<img width="96" height="198" alt="1209395qm1kuh5zcr" src="https://github.com/user-attachments/assets/1e082f51-f9fa-4dfa-b15a-6c90a7862ce3" />
+<img width="80" height="80" alt="1601526yu4t81dl90" src="https://github.com/user-attachments/assets/f8d20931-8191-4c49-9d0c-fb56e1b1fc04" />
+<img width="137" height="51" alt="1649470pjqdvw9efg" src="https://github.com/user-attachments/assets/089961f4-7e28-48f6-9eb1-9416d624ff6f" />
+<img width="60" height="98" alt="1998221p73izbbg6d" src="https://github.com/user-attachments/assets/bace874a-dc6e-476a-9853-421d7882caf8" />
+<img width="173" height="202" alt="34084vkwtx4ri0l" src="https://github.com/user-attachments/assets/2d433fc2-2e66-4e39-8c16-070008cedc69" />
+<img width="147" height="204" alt="1522939px4w8sgbw1" src="https://github.com/user-attachments/assets/6489c1bf-f488-42aa-9b54-69b4ae5a53f9" />
 
 <br>
 
