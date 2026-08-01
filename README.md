@@ -5,6 +5,14 @@
  <img width="150" height="20" alt="a17" src="https://github.com/user-attachments/assets/b5a4473c-229d-47e9-b03e-67e261c14185" />
 <p align="center">
 
+<p align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Caveat&size=35&duration=1&pause=999999&color=FFD700&center=true&vCenter=true&width=676&lines=Get+Commission+Info+Here" />
+</p>
+
+<p align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Caveat&size=35&duration=1&pause=999999&color=FFD700&center=true&vCenter=true&width=676&lines=DM+about+Gore%2FGuro%2FNSFW" />
+</p>
+
  <br>
 
 <img src="https://github.com/user-attachments/assets/6edcaafb-92a3-4c1a-825f-e7770d56f3e5" width="99">
