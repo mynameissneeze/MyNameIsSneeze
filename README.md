@@ -9,6 +9,8 @@
 <img src="https://readme-typing-svg.demolab.com?font=Caveat&size=35&duration=1&pause=999999&color=FFD700&center=true&vCenter=true&width=676&lines=Get+Commission+Info+Here" />
 </p>
 
+➡️ **[View Collection](commission info.md)** 
+
 <p align="center">
 <img src="https://readme-typing-svg.demolab.com?font=Caveat&size=35&duration=1&pause=999999&color=FFD700&center=true&vCenter=true&width=676&lines=DM+about+Gore%2FGuro%2FNSFW" />
 </p>
