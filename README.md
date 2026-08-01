@@ -25,11 +25,6 @@
   <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHJ3MG5rcTFrODhzdDBhNXEybDNqY2s3cmxwOTY0NXlpbHIyOXVtdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/9mNKXFygkCeOWekWew/giphy.gif" width="200" alt="Support me on Ko-fi">
 </a>
 
-
-<br>
-
-<img src="https://github.com/user-attachments/assets/35508dce-4a8e-48e6-9278-68be4225d490" width="80">
-
 <br><br>
 <img width="138" height="53" alt="474167l68h9nknqq" src="https://github.com/user-attachments/assets/d2ed3c94-1717-4d3d-bcd2-cc876065c988" />
 
@@ -39,6 +34,12 @@
 ### <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=7F00FF&center=true&vCenter=true&width=460&lines=Welcome+to+my+little+corner%21">
 
 <br><br>
+
+# Wanna make a pretty Github profile like mine? 
+<br>
+# Go here: ➡️ **[View](how-to-make-a-github-profile.md)**
+<br>
+
 ╭────────────────────୨ৎ────────────────────╮
 
 ## ─═✧✧═─
@@ -71,6 +72,7 @@
 
 <br><br>
 
+<img src="https://github.com/user-attachments/assets/35508dce-4a8e-48e6-9278-68be4225d490" width="80">
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&pause=1700&color=C127F7&center=true&vCenter=true&width=650&lines=Digital+Artist)](https://git.io/typing-svg)
 
