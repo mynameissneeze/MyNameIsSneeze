@@ -1,10 +1,21 @@
 <div align="center">
-
 <img width="600" height="30" alt="6052555cdada2e757f2012ed3553eb65" src="https://github.com/user-attachments/assets/c0e1b319-30b2-4c91-933b-f0e2d0da8356" />
-<br>
 
+<br>
  <img width="150" height="20" alt="a17" src="https://github.com/user-attachments/assets/b5a4473c-229d-47e9-b03e-67e261c14185" />
 <p align="center">
+
+ <br>
+
+<img src="https://github.com/user-attachments/assets/6edcaafb-92a3-4c1a-825f-e7770d56f3e5" width="99">
+
+ <br>
+
+<a href="https://ko-fi.com/mynameissneeze" target="_blank">
+  <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHJ3MG5rcTFrODhzdDBhNXEybDNqY2s3cmxwOTY0NXlpbHIyOXVtdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/9mNKXFygkCeOWekWew/giphy.gif" width="200" alt="Support me on Ko-fi">
+</a>
+
+<br>
 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=7F00FF&center=true&vCenter=true&width=676&lines=Current+Hyperfixations">
 </p>
  
@@ -15,14 +26,14 @@
 <img src="https://github.com/user-attachments/assets/35508dce-4a8e-48e6-9278-68be4225d490" width="80">
 
 <br><br>
+<img width="138" height="53" alt="474167l68h9nknqq" src="https://github.com/user-attachments/assets/d2ed3c94-1717-4d3d-bcd2-cc876065c988" />
+
 ✦ ˢᵒᵐᵉ ᵖⁱᶜᵗᵘʳᵉˢ ᵃⁿᵈ ˡⁱⁿᵏˢ ᵃʳᵉ ⁱⁿᵗᵉʳᵃᶜᵗⁱᵛᵉ ;)
 <br>
 
 ### <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=7F00FF&center=true&vCenter=true&width=460&lines=Welcome+to+my+little+corner%21">
 
 <br><br>
-<img width="138" height="53" alt="474167l68h9nknqq" src="https://github.com/user-attachments/assets/d2ed3c94-1717-4d3d-bcd2-cc876065c988" />
-
 ╭────────────────────୨ৎ────────────────────╮
 
 ## ─═✧✧═─
@@ -40,12 +51,6 @@
 </a>
 <br>
 
-<a href="https://ko-fi.com/mynameissneeze" target="_blank">
-  <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHJ3MG5rcTFrODhzdDBhNXEybDNqY2s3cmxwOTY0NXlpbHIyOXVtdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/9mNKXFygkCeOWekWew/giphy.gif" width="200" alt="Support me on Ko-fi">
-</a>
-
-<br>
-
 <a href="https://mynameissneeze.straw.page" target="_blank">
   <img
     src="https://github.com/user-attachments/assets/6630cde2-a56e-4c48-b0c5-b787e1e3f230"
@@ -59,9 +64,6 @@
 
 <br><br>
 
-<img src="https://github.com/user-attachments/assets/6edcaafb-92a3-4c1a-825f-e7770d56f3e5" width="99">
-
-<br><br>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&pause=1700&color=C127F7&center=true&vCenter=true&width=650&lines=𝓗𝓮𝔂,+𝓘'𝓶+𝓢𝓷𝓮𝓮𝔃𝓮!;Digital+Artist;Professional+Stoner;OC+Creator;Pixel+Collector;Welcome+to+my+little+corner+♡)](https://git.io/typing-svg)
 
