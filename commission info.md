@@ -29,6 +29,17 @@ DM me for NSFW/Gore/Guro
 
 📩 Message me if you're interested!
 
+<p align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Caveat&size=35&duration=1&pause=999999&color=FFD700&center=true&vCenter=true&width=676&lines=More+Info+Here" />
+</p>
+<img width="150" height="150" alt="pointing down blue arrow" src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExMHZtNzd1eGhoeHI5eWlmM3Y1ZWhvbmZ5bmlxMHg1amw0dGg0ZzdwcyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/Vo6eOQJMg3n6HgDuAA/giphy.gif" />
+<br>
+
+<a href="https://ko-fi.com/mynameissneeze" target="_blank">
+  <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHJ3MG5rcTFrODhzdDBhNXEybDNqY2s3cmxwOTY0NXlpbHIyOXVtdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/9mNKXFygkCeOWekWew/giphy.gif" width="200" alt="Support me on Ko-fi">
+</a>
+
+
 Sharing this also helps me out a ton 🌷
 
 ( ´•̥×•̥` ) thank you all for the support!!
