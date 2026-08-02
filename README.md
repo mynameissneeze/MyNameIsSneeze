@@ -1,4 +1,8 @@
 <div align="center">
+  ✦ 𝕤𝕠𝕞𝕖 𝕝𝕚𝕟𝕜𝕤/𝕚𝕞𝕒𝕘𝕖𝕤 𝕒𝕣𝕖 𝕚𝕟𝕥𝕖𝕣𝕒𝕔𝕥𝕚𝕧𝕖 ✦ ;)
+
+  <br>
+
   <img width="585" height="49" alt="tumblr_efac8f49d7c9191fbc073e4cc697a787_ca54ae33_400" src="https://github.com/user-attachments/assets/03249ecc-d53f-49da-9469-d307549506e5" />
 <br>
 <img width="150" height="20" alt="a17" src="https://github.com/user-attachments/assets/b5a4473c-229d-47e9-b03e-67e261c14185" />
@@ -28,7 +32,6 @@
 <br><br>
 <img width="138" height="53" alt="474167l68h9nknqq" src="https://github.com/user-attachments/assets/d2ed3c94-1717-4d3d-bcd2-cc876065c988" />
 
-✦ ˢᵒᵐᵉ ᵖⁱᶜᵗᵘʳᵉˢ ᵃⁿᵈ ˡⁱⁿᵏˢ ᵃʳᵉ ⁱⁿᵗᵉʳᵃᶜᵗⁱᵛᵉ ;)
 <br>
 
 ### <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=7F00FF&center=true&vCenter=true&width=460&lines=Welcome+to+my+little+corner%21">
