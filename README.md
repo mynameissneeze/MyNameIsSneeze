@@ -34,10 +34,12 @@
 ### <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=7F00FF&center=true&vCenter=true&width=460&lines=Welcome+to+my+little+corner%21">
 
 <br><br>
+### Wanna make a pretty Github profile like mine? 
 
- ## Wanna make a pretty Github profile like mine? 
 <br>
-# Go here: ➡️ **[View](how-to-make-a-github-profile.md)**
+
+### Go here: ➡️ **[View](how-to-make-a-github-profile.md)**
+
 <br>
 
 ╭────────────────────୨ৎ────────────────────╮
