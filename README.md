@@ -328,7 +328,7 @@ __φ(．．) a few little things about me~
 <details>
 <summary>
 <img src="https://github.com/user-attachments/assets/fbcd104f-6615-4e80-81c0-10b0d088a830" width="20">
-<b>Open My PonyTown Collection!</b>
+<b>Click to see my PonyTown Collection!</b>
 <img src="https://github.com/user-attachments/assets/d2c1e21c-aba5-4dfa-b98c-3490b498393b" width="20">
 </summary>
 
