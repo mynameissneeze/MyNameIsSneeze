@@ -35,11 +35,9 @@
 
 <br><br>
 
-# Wanna make a pretty Github profile like mine? 
+ ## Wanna make a pretty Github profile like mine? 
 <br>
-# Go here: ➡️ **[View](how-to-make-a-github-profile.md)**
-<br>
-
+## Go here: ➡️ **[View](how-to-make-a-github-profile.md)**
 ╭────────────────────୨ৎ────────────────────╮
 
 ## ─═✧✧═─
