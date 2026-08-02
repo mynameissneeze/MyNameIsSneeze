@@ -53,7 +53,13 @@
 <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=B19CD9&center=true&vCenter=true&width=396&lines=Come+say+Hi%21">
 </p>
 
+Sign my guest book!
+
 ─═✧✧═─
+
+<a href="https://mynameissneeze.atabook.org">
+<img src="https://github.com/user-attachments/assets/5e3cd3a9-2a39-450e-acbf-87f98257520c" width="100" alt="guestbook button">
+</a>
 
 ╰────────────────────୨ৎ────────────────────╯
 <br>
