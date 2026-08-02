@@ -237,11 +237,6 @@ https://artfight.net/~MyNameIsSneeze
 <img width="73" height="32" alt="stamp_fossils" src="https://github.com/user-attachments/assets/d0be86a9-9326-46f8-8fbd-2773c4d5b095" />
 <img width="73" height="32" alt="stamp_comedy" src="https://github.com/user-attachments/assets/60671502-3b43-49b0-bc6c-32f191060e93" />
 
-
-<br><br>
-
-<img src="https://github.com/user-attachments/assets/b23ebfaf-241c-4afc-a3d7-d75589494d5c" width="260">
-
 <br><br>
 
 <img width="230" height="20" alt="d369177a3b43a7e833d67bc4a7465a16" src="https://github.com/user-attachments/assets/e85896ca-d020-4761-a156-9031a1f3ee37" />
