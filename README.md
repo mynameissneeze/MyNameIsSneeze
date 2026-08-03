@@ -41,8 +41,7 @@
 
 <br>
 
-### Go here: ➡️ **[View](how-to-make-a-github-profile.md)**
-
+[![View Guide](https://img.shields.io/badge/View-Guide-blue?style=for-the-badge)](https://github.com/mynameissneeze/Make-your-Github-pretty-/blob/main/Github.for.starters.md)
 <br>
 
 ╭────────────────────୨ৎ────────────────────╮
