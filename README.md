@@ -36,6 +36,19 @@
 
 ### <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=7F00FF&center=true&vCenter=true&width=460&lines=Welcome+to+my+little+corner%21">
 
+
+<br> 
+
+<img width="159" height="48" alt="d9bb7ee9499883f05502e48051773209" src="https://github.com/user-attachments/assets/4f4fa59c-43bb-460b-ae07-aa2398f91d3e" />
+<br>
+<a href="https://youtube.com/playlist?list=PLL0kUUHCSZA6VQjBcZ8TJ-tshEMyPsSt6&si=mheDu97ucl2WdxPQ">
+  <img
+    src="https://github.com/user-attachments/assets/41e56b15-a5fa-4451-b84f-6c93e0e4bd11"
+    width="95"
+    alt="YouTube Playlist"
+  >
+</a>
+
 <br><br>
 ### Wanna make a pretty Github profile like mine? 
 
@@ -111,10 +124,6 @@ Sign my guest book!
 
 <img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/4b359526-db37-4d9b-ac06-b4713abd32b2" /> I absolutely love introducing people to new movies, animation, anime, indie cartoons, and horror films! <img width="20" height="20" alt="vXaJvQF" src="https://github.com/user-attachments/assets/53002b65-6e14-48e4-8987-dd1e2ba7a601" />
 
-
-<a href="https://www.amazon.com/hz/wishlist/ls/OHK5A7E6VI81?ref_=wl_share">
-  <img width="150" height="150" alt="giphy" style="border: none;" src="https://github.com/user-attachments/assets/c8090acd-2fb6-43e8-9d25-224c222e2b7a" />
-</a>
 <br>
 
 
@@ -132,6 +141,10 @@ Sign my guest book!
 <img width="685" height="15" alt="60ed2c048d08142fadbf5819faa0d866" src="https://github.com/user-attachments/assets/d2387388-9491-4cb8-b099-4c070a23cf9c" />
 
 <br>
+
+
+<br>
+
 
 ➡️ **[View Collection](Pixels.md)**
 
@@ -171,18 +184,11 @@ https://open.spotify.com/playlist/0PJOzoCjAPpPRHmd6ClAKN?si=244cb3c922534cf2
 
 <img src="https://github.com/user-attachments/assets/19202a0c-3f8d-4943-9427-e6721ec8b127" width="200">
 
-<br> 
-
-<img width="159" height="48" alt="d9bb7ee9499883f05502e48051773209" src="https://github.com/user-attachments/assets/4f4fa59c-43bb-460b-ae07-aa2398f91d3e" />
 <br>
-<a href="https://youtube.com/playlist?list=PLL0kUUHCSZA6VQjBcZ8TJ-tshEMyPsSt6&si=mheDu97ucl2WdxPQ">
-  <img
-    src="https://github.com/user-attachments/assets/41e56b15-a5fa-4451-b84f-6c93e0e4bd11"
-    width="95"
-    alt="YouTube Playlist"
-  >
-</a>
 
+<a href="https://www.amazon.com/hz/wishlist/ls/OHK5A7E6VI81?ref_=wl_share">
+  <img width="120" height="120" alt="giphy" style="border: none;" src="https://github.com/user-attachments/assets/c8090acd-2fb6-43e8-9d25-224c222e2b7a" />
+</a>
 
 <br>
 
