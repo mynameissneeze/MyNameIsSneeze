@@ -105,7 +105,7 @@ Sign my guest book!
 <img width="112" height="112" alt="cdb6ef86-6f87-4f73-8db0-623f04a05b75" src="https://github.com/user-attachments/assets/18f59d9a-26f7-4b02-9847-d037d6b64e77" />
 
 
-<img width="20" height="20" alt="494" src="https://github.com/user-attachments/assets/d93769a1-41fc-4ed6-8b96-e504222a85d5" /> **25** (09/092/2000) • <img width="20" height="20" alt="607" src="https://github.com/user-attachments/assets/28ee9642-6161-4efd-91ce-b0d8641b8b4b" /> **Taken (8–9 years)** • <img width="20" height="20" alt="378" src="https://github.com/user-attachments/assets/0b9e85fe-60b9-4fc7-96da-c02d3e0b5bf1" /> **Nonbinary / Pansexual** <img width="20" height="20" alt="494" src="https://github.com/user-attachments/assets/c86df186-f088-4a4f-bd19-e6f761bb4fda" />
+<img width="20" height="20" alt="494" src="https://github.com/user-attachments/assets/d93769a1-41fc-4ed6-8b96-e504222a85d5" /> **25** (09/09/2000) • <img width="20" height="20" alt="607" src="https://github.com/user-attachments/assets/28ee9642-6161-4efd-91ce-b0d8641b8b4b" /> **Taken (8–9 years)** • <img width="20" height="20" alt="378" src="https://github.com/user-attachments/assets/0b9e85fe-60b9-4fc7-96da-c02d3e0b5bf1" /> **Nonbinary / Pansexual** <img width="20" height="20" alt="494" src="https://github.com/user-attachments/assets/c86df186-f088-4a4f-bd19-e6f761bb4fda" />
 
 
 <img width="20" height="20" alt="FTwwRc8" src="https://github.com/user-attachments/assets/f3b754f3-470d-4294-bd8b-46157a339d1e" /> **Digital Artist** • **Character Creator** • **Cartoon Lover** <img width="20" height="20" alt="FTwwRc8" src="https://github.com/user-attachments/assets/f3b754f3-470d-4294-bd8b-46157a339d1e" />
