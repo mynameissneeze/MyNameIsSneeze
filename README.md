@@ -135,7 +135,7 @@ Sign my guest book!
 <br>
 
 <!-- PIXEL-START -->
-<img src="https://github.com/user-attachments/assets/ca365c02-a214-49af-a122-bf2aec2c06de" width="100">
+<img src="https://github.com/user-attachments/assets/21d56ecc-54f2-4fe3-aefc-81e49df75c90" width="100">
 <!-- PIXEL-END -->
 <br>
 <img width="685" height="15" alt="60ed2c048d08142fadbf5819faa0d866" src="https://github.com/user-attachments/assets/d2387388-9491-4cb8-b099-4c070a23cf9c" />
