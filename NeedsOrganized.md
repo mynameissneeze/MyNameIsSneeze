@@ -71,7 +71,6 @@ Gifs
 <img width="220" height="228" alt="678360721-3f8a85ba-e979-4e0c-8e0e-7707fff7c40d" src="https://github.com/user-attachments/assets/90716ed5-dcfa-4bce-a461-07f5a8f65456" />
 <img width="556" height="405" alt="3144014yei5mj8ukt" src="https://github.com/user-attachments/assets/ec61de12-d5c3-4cb1-a26d-1219530886c3" />
 <img width="140" height="89" alt="825850huzzur2y9k" src="https://github.com/user-attachments/assets/788765b2-a82a-4dd1-aee5-dc62893fe62e" />
-<img width="100" height="100" alt="3326970dpd9ad7v2o" src="https://github.com/user-attachments/assets/46c6bb5c-8a9d-479f-90f8-fb23e743e4e0" />
 <img width="148" height="130" alt="286444dz97jy8vk7" src="https://github.com/user-attachments/assets/2c134b7c-b477-4cda-bd4c-9ebfabdde294" />
 <img width="120" height="160" alt="1666239z3tbqhb1hz" src="https://github.com/user-attachments/assets/fd062fab-e1d7-41d3-a60e-d5eee2f1cacf" />
 <img width="452" height="550" alt="2746489soaukxbur1" src="https://github.com/user-attachments/assets/e6d92fc7-32c3-48ea-a207-c7d3b791ac57" />
