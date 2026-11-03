@@ -16,27 +16,26 @@
 <img src="https://readme-typing-svg.demolab.com?font=Caveat&size=35&duration=1&pause=999999&color=FFD700&center=true&vCenter=true&width=676&lines=DM+about+Gore%2FGuro%2FNSFW" />
 </p>
 
-<br>
 <img src="https://github.com/user-attachments/assets/6edcaafb-92a3-4c1a-825f-e7770d56f3e5" width="99">
-<br>
+
 <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Caveat&size=35&duration=1&pause=999999&color=FFD700&center=true&vCenter=true&width=676&lines=More+Info+Here" />
+<img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=7F00FF&center=true&vCenter=true&width=460&lines=Find+Me+Here%21" />
 </p>
-<img width="150" height="150" alt="pointing down blue arrow" src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExMHZtNzd1eGhoeHI5eWlmM3Y1ZWhvbmZ5bmlxMHg1amw0dGg0ZzdwcyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/Vo6eOQJMg3n6HgDuAA/giphy.gif" />
-<br>
+
+<p align="center">
+<a href="https://toyhou.se/MyNameIsSneeze">ToyHouse</a> •
+<a href="https://artfight.net/~MyNameIsSneeze">Art Fight</a> •
+<a href="https://mynameissneeze.straw.page">Strawpage</a> •
+<a href="https://steamcommunity.com/profiles/76561199161885022/">Steam</a>
+</p>
 
 <a href="https://ko-fi.com/mynameissneeze" target="_blank">
   <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHJ3MG5rcTFrODhzdDBhNXEybDNqY2s3cmxwOTY0NXlpbHIyOXVtdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/9mNKXFygkCeOWekWew/giphy.gif" width="200" alt="Support me on Ko-fi">
 </a>
 
-<br><br>
 <img width="138" height="53" alt="474167l68h9nknqq" src="https://github.com/user-attachments/assets/d2ed3c94-1717-4d3d-bcd2-cc876065c988" />
 
-<br>
-
 ### <img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=24&duration=1&pause=999999&color=7F00FF&center=true&vCenter=true&width=460&lines=Welcome+to+my+little+corner%21">
-
-Check out my ToyHouse: https://toyhou.se/MyNameIsSneeze
 
 <br> 
 
