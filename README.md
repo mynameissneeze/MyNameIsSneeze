@@ -32,6 +32,7 @@
 <a href="https://ko-fi.com/mynameissneeze" target="_blank">
   <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExbHJ3MG5rcTFrODhzdDBhNXEybDNqY2s3cmxwOTY0NXlpbHIyOXVtdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/9mNKXFygkCeOWekWew/giphy.gif" width="200" alt="Support me on Ko-fi">
 </a>
+<br> 
 
 <img width="138" height="53" alt="474167l68h9nknqq" src="https://github.com/user-attachments/assets/d2ed3c94-1717-4d3d-bcd2-cc876065c988" />
 
