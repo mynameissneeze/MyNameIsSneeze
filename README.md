@@ -282,25 +282,21 @@ __φ(．．) a few little things about me~
 - I can talk about animation, horror, cartoons, character design, and my OCs for hours.
 - My favorite aesthetic is anything cute, spooky, nostalgic, colorful, or weird.
 
-╭────────────────────୨ৎ────────────────────╮
-<p align="center">
-<img width="20" height="20" alt="qLEXRs3" src="https://github.com/user-attachments/assets/37462ee6-9a09-483e-b1a2-49d61fbef091" />
-<img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=6BCB77&center=true&vCenter=true&width=300&lines=Besties%21">
-<img width="20" height="20" alt="qLEXRs3" src="https://github.com/user-attachments/assets/32710793-bd00-4ea8-986d-54bfeb842ff7" />
-</p>
-(っ˘▽˘)(˘▽˘)˘▽˘ς)
-<p align="center">
-<a href="https://bsky.app/profile/sunnyduckling.bsky.social" target="_blank">
-  <img src="https://github.com/user-attachments/assets/435ae51e-2832-4b18-9b9d-b4d9deb7fa4e" width="120" alt="Sunny Duckling">
-</a>
-<a href="https://www.youtube.com/@Schmerk" target="_blank">
-  <img src="https://github.com/user-attachments/assets/ca33f38c-6725-456f-a130-c5a032798636" width="120" alt="Schmerk">
-</a>
-<a href="https://artfight.net/~ChromosomeCollector" target="_blank">
-  <img src="https://github.com/user-attachments/assets/0ed78144-b1b8-422f-9066-57053c7bfedd" width="120" alt="ChromosomeCollector">
-</a>
-</p>
-╰────────────────────୨ৎ────────────────────╯
+	<!-- ===== BESTIES ===== -->
+	<div style="margin:16px auto;padding:14px;max-width:560px;border-radius:20px;background:rgba(27,22,64,.75);border:2px solid #a9c8ff;">
+		<div style="color:#ffb3de;font-size:.85em;overflow:hidden;white-space:nowrap;">╭────────────────────୨ৎ────────────────────╮</div>
+		<div style="margin:8px 0;"><img width="20" height="20" alt="" src="https://github.com/user-attachments/assets/37462ee6-9a09-483e-b1a2-49d61fbef091" class="fr-fic fr-dii">
+			<img src="https://readme-typing-svg.demolab.com?font=Pacifico&size=35&duration=1&pause=999999&color=6BCB77&center=true&vCenter=true&width=300&lines=Besties%21" alt="Besties!" class="fr-fic fr-dii" width="300" height="50">
+			<img width="20" height="20" alt="" src="https://github.com/user-attachments/assets/32710793-bd00-4ea8-986d-54bfeb842ff7" class="fr-fic fr-dii"></div>
+		<div style="color:#f3eaff;">(っ˘▽˘)(˘▽˘)˘▽˘&sigmaf;)</div>
+		<div style="margin:8px 0;">
+			<a href="https://bsky.app/profile/sunnyduckling.bsky.social" target="_blank"><img src="https://github.com/user-attachments/assets/435ae51e-2832-4b18-9b9d-b4d9deb7fa4e" width="120" alt="Sunny Duckling" class="fr-fic fr-dii" height="120"></a>
+			<a href="https://www.youtube.com/@Schmerk" target="_blank"><img src="https://github.com/user-attachments/assets/ca33f38c-6725-456f-a130-c5a032798636" width="120" alt="Schmerk" class="fr-fic fr-dii" height="120"></a>
+			<!-- THIRD BESTIE: Dolly-Deimos -->
+			<a href="https://toyhou.se/Dolly-Deimos" target="_blank"><img src="https://64.media.tumblr.com/f4437f4ac41c1963a87ac53440421b0b/ddc22cb6e0a7d26c-42/s2048x3072/08acb42d9c4065bf84a18702662bec62c2622b88.pnj" width="120" alt="Dolly-Deimos" class="fr-fic fr-dii" height="120"></a>
+		</div>
+		<div style="color:#ffb3de;font-size:.85em;overflow:hidden;white-space:nowrap;">╰────────────────────୨ৎ────────────────────╯</div>
+	</div>
 
 <br>
 
